@@ -1,17 +1,3 @@
-// presentacion del Rey Dal
-
-// escenario - desayuno en el palco real del gran castillo de Cabildo - Cabildo ciudad capital de Cunabula
-
-// Dana (hermana menor del rey) aparece y se reune con su hermano Dal (rey) tienen un momento familiar
-
-// Mashal aparece e interrumpe la reunion
-
-// a la distancia Dana se concentra en elevar las fuentes de poder de emergencia de Cunabula pensando en su familia y el destino de Cunabula
-
-
-P1
----
-
 Una densa niebla envolvía el horizonte esa mañana, extendiendo un velo gris sobre el paisaje. Desde el palco del majestuoso castillo real de Cunabula, el Rey Dal observaba con pesar el panorama. Aunque la niebla no le sorprendía, dada la estación del año, una parte de él había anhelado que esa mañana se presentara más radiante.
 
 "¿Dónde te escondes, gran sol? ¿Por qué nos abandonas?" susurró con amargura el Rey, mientras observaba cómo la oscuridad de la niebla se extendía sobre la gran ciudad que se desplegaba bajo sus pies. Esas mismas sombras evocaban el peligro que acechaba al reino.
@@ -104,62 +90,60 @@ Después de un emotivo intervalo de silencio, Dana se apartó de su hermano. Se 
 
 Al escuchar estas palabras de ánimo, Dal recobró parte de su confianza. Su hermana siempre le daba la fuerza para continuar.
 
-"Sí, es verdad. No podemos rendirnos tan fácilmente. Aún hay mucho que hacer", dijo Dal después de limpiarse el rostro con una toalla. Aún se notaba cansado, pero ahora sus ojos brillaban con una luz más intensa. Dana se sintió aliviada al ver este cambio.
+"Sí, es verdad. No podemos rendirnos tan fácilmente. Aún hay mucho que hacer", dijo Dal después de limpiarse el rostro con una toalla. Aunque seguía cansado, ahora sus ojos brillaban con una luz más intensa. Dana se sintió aliviada al ver este cambio.
 
 "Así es, hermano. Además, hay algo que quería compartirte..."
 
-Entonces , interrumpiendo aquel momento, alguien toco la puerta sorprendiendo a Dana y a Dal, mientras la criada recibia al invitado, Dana volvio de inmediato a su asiento y el rey volvio a colocarse la corona de hojas doradas en su cabeza.
+Entonces, interrumpiendo aquel momento, alguien tocó la puerta, sorprendiendo a Dana y a Dal. Mientras la criada recibía al invitado, Dana volvió de inmediato a su asiento y el rey se colocó la corona de hojas doradas en su cabeza.
 
-"Disculpe la interrupcion mi Rey pero el gran canciller Mashal se encuentra aqui y desea conversar con su majestad de inmediato"
+"Disculpe la interrupción, mi Rey, pero el gran canciller Mashal se encuentra aquí y desea conversar con su majestad de inmediato", anunció la criada.
 
-"¿Acaso el canciller tambien piensa en privarle a mi hermano de su tiempo de descanso?" respondio molesta Dana
+"¿Acaso el canciller también piensa en privarle a mi hermano de su tiempo de descanso?" respondió molesta Dana.
 
-"No. Esta bien Dana, puedo imaginar porque el recien nombrado gran canciller Mashal esta tan ansioso de verme..."
+"No. Está bien, Dana. Puedo imaginar por qué el recién nombrado gran canciller Mashal está tan ansioso de verme..."
 
-"Hermano ..." respondio Dana preocupada
+"Hermano..." respondió Dana, preocupada.
 
-"No te preocupes Dana" repitio Dal a su hermana, luego de diriguio de vuelta a la criada "Si esta bien, el gran canciller puede pasar"
+"No te preocupes, Dana", repitió Dal a su hermana. Luego se dirigió de vuelta a la criada, "Sí, está bien. El gran canciller puede pasar."
 
-Un momento despues las puertas del gran salon se abrieron, como se esperaba ahi estaba el gran canciller Mashal portando su carateristico turbante,  acompañado de una pequeño grupo de sus partidarios. Sin esperar que las puertas se abrieran por completo, aquel grupo de individuos, con Mashal a la cabeza, ingreso al salon con un paso solemne pero orgulloso.
+Un momento después, las puertas del gran salón se abrieron, y allí estaba el gran canciller Mashal, portando su característico turbante, acompañado de un pequeño grupo de sus partidarios. Sin esperar a que las puertas se abrieran por completo, aquel grupo de individuos, con Mashal a la cabeza, ingresó al salón con un paso solemne pero orgulloso.
 
-"Saludos Rey Dal, Primado Dana ante todo me disculpo por interrumpir su muy agradable reunion, sin embargo dada la situcion extraordinaria que esta viviendo nuestro reino, me veo abligado a realizar este tipo actos tan faltos de modales, espero me perdone. " dijo Mashal al llegar a la mesa. Dana noto que Mashal aun llamaba Rey a su hermano, probablemente porque aun se encontraban en una transicion ...
+"Saludos, Rey Dal, Primado Dana. Ante todo, me disculpo por interrumpir su muy agradable reunión, sin embargo, dada la situación extraordinaria que está viviendo nuestro reino, me veo obligado a realizar estos actos tan faltos de modales. Espero que me perdone", dijo Mashal al llegar a la mesa. Dana notó que Mashal aún llamaba Rey a su hermano, probablemente porque aún se encontraban en una transición...
 
-"Entiendo gran canciller Mashal, le perdono , ahora diga ¿cual es el asunto que lo trae tan tamprano aqui?"
+"Entiendo, gran canciller Mashal. Le perdono. Ahora, diga, ¿cuál es el asunto que lo trae tan temprano aquí?"
 
-"Es sobre el estado actual de los miembros de la Orden de Caballeria. Como sabra su majestad, ya ha sido anunciado mi autoridad sobre ellos, sin embargo  muchos me an enviado cartas expresando sus dudas sobre esta transferencia de poder. Requiero de su consejo para conciliar estos desacuerdos"
+"Es sobre el estado actual de los miembros de la Orden de Caballería. Como sabrá, su majestad, ya ha sido anunciada mi autoridad sobre ellos; sin embargo, muchos me han enviado cartas expresando sus dudas sobre esta transferencia de poder. Requiero de su consejo para conciliar estos desacuerdos."
 
-"Si es asi ... cuente con mi apoyo gran canciller" respondio el Rey Dal en tono cansado
+"Si es así... cuente con mi apoyo, gran canciller", respondió el Rey Dal en tono cansado.
 
-"Se lo agradesco su majestad" respondio Mashal con una reverencia.
+"Se lo agradezco, su majestad", respondió Mashal con una reverencia.
 
-Dana que se mantenia al margen de la conversacion, no veia con buenos ojos a Mashal. Ella no lo conocia personalmente, debido a que se encontraba siempre ocupada con las tareas del templo o en misiones en el exterior,  dificilmente habria tenido tiempo para poder establecer una relacion con algun miembro del concilio.  
+Dana, que se mantenía al margen de la conversación, no veía con buenos ojos a Mashal. Ella no lo conocía personalmente, debido a que se encontraba siempre ocupada con las tareas del templo o en misiones en el exterior, por lo que difícilmente habría tenido tiempo para establecer una relación con algún miembro del concilio. Además, estaba el hecho de que el Gran Patriarca le había pedido mantenerse alejada de esos asuntos.
 
-Ademas estaba el hecho que el Gran Patriarca le habia pedido mantenerse alejada de esos asuntos.
+"Ah, cierto, Primado Dana", dijo Mashal, volviéndose en dirección a ella. "Los miembros del templo me han informado que están teniendo problemas para activar las prismas de almacenamiento de magia del reino. Considero que requerirán de su talento para llevar a cabo con éxito esa importante tarea."
 
-"Ha cierto Primado Dana" dijo de Mashal volviendose en direcciona a Dana "Los miembros del templo me an informado que estan teniendo problemas para activar las prismas de almacenamiento de magia del reino, considero que requeriran de su talento para llevar a cabo con exito esa importante tarea."
+"Sí, estoy al tanto de eso", respondió fría Dana a Mashal. Luego se volvió a su hermano, "Su majestad, si me permite retirarme ahora."
 
-"Si, estoy al tanto de eso" respondio fria Dana a Mashal, luego se volvio a su hermano "Su majestad si me permite retirarme ahora."
+"Sí, está bien, Primado Dana. Se lo permito, pero antes debo agradecerle por el tiempo que ha dedicado en acompañar a este ordinario ciudadano durante esta oscura mañana", dijo Dal con una sonrisa brillante.
 
-"Si, esta bien Primado Dana. Se lo permito, pero antes debo agradecerle por el tiempo que ha dedico en acompañar a este ordinario ciudadano durante esta oscura mañana" dijo Dal con una sonrisa brillante.
+"Solo cumplo con mi deber de cuidar de los ciudadanos del reino", respondió Dana también con una sonrisa, entendiendo la broma de su hermano.
 
-"Solo cumplo con mi deber de cuidar de los ciudadanos del reino" respondio Dana tambien con una sonrisa entendiendo la broma de su hermano.
+"Es verdad", respondió aún alegre el rey, pero su mirada cambió pronto a una más seria. "Ahora, vaya a cumplir su deber. Cunabula cuenta con usted."
 
-"Es verdad" respondio aun alegre el rey pero su mirada cambio pronto a una mas seria "Ahora vaya a cumplir su deber, Cunabula cuenta con usted."
-
-"Muchas Gracias su majestad" repondio Dana, se despidio de Mashal y de inmediato abandono la sala.
+"Muchas gracias, su majestad", respondió Dana, se despidió de Mashal y de inmediato abandonó la sala.
 
 --------------------
 
-Ya con las puertas cerradas y Dana lejos. El viejo Rey volvio su mirada hacia el invitado que acababa de tomar asiento.
+Ya con las puertas cerradas y Dana lejos, el viejo Rey volvió su mirada hacia el invitado que acababa de tomar asiento.
 
-"Mantente alejado de mi hermana Mashal, no tolerare que hagas uso de ella." dijo el Rey Dal con una mirada sumamente severa.
+"Mantente alejado de mi hermana, Mashal. No toleraré que hagas uso de ella", dijo el Rey Dal con una mirada sumamente severa.
 
-"No se preocupe su majestad. No pienso hacer algo semejante ... por el momento." respondio  Mashal con una tranquila actitud antes de tomar una tasa de te. Atras de Mashal, sus acompañantes, comenzabab a despejar una mesa y a sacar varios folios de documentos.
+"No se preocupe, su majestad. No pienso hacer algo semejante... por el momento", respondió Mashal con una tranquila actitud antes de tomar una taza de té. Detrás de Mashal, sus acompañantes comenzaban a despejar una mesa y a sacar varios folios de documentos.
 
 ---------------------
 
-Lejos de las habitaciones reales, en una de las atalayas Dana contemplaba la gris atmosfera que cubria toda la isla esa mañana.
+En lo alto de una de las atalayas, lejos de las habitaciones reales, Dana contemplaba la gris atmósfera que cubría toda la isla esa mañana.
 
-"No te preocupes hermano, encontrare a Danu y al resto de caballeros, cambiaremos el destino... " murmuro Dana esperanzada antes de saltar hacia las nubes. Entonces, en plena caida, una alas doradas surgieron de sus costados asi como un brillante cuerno en su frente. 
+"No te preocupes, hermano. Encontraré a Danu y al resto de los caballeros. Cambiaremos el destino..." murmuró Dana con esperanza antes de lanzarse hacia las nubes. En medio de su descenso, unas alas doradas surgieron de sus costados, junto con un brillante cuerno en su frente.
 
-Descidida a no seguir ocultandose, Dana surco los cielos, descendiendo a la gran ciudad debajo de ella que ahora mas que nunca la necesitaba.
+Decidida a no seguir ocultándose, Dana surcó los cielos, descendiendo hacia la gran ciudad que se extendía bajo ella, una ciudad que ahora, más que nunca, la necesitaba.
