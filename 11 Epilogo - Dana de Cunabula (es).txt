@@ -12,10 +12,62 @@
 P1
 ---
 
+Una densa niebla envolvía el horizonte esa mañana, extendiendo un velo gris sobre el paisaje. Desde el palco del majestuoso castillo real de Cunabula, el Rey Dal observaba con pesar el panorama. Aunque la niebla no le sorprendía, dada la estación del año, una parte de él había anhelado que esa mañana se presentara más radiante.
 
+"¿Dónde te escondes, gran sol? ¿Por qué nos abandonas?" susurró con amargura el Rey, su voz apenas un murmullo en la vastedad del espacio, mientras observaba cómo la oscuridad de la niebla se extendía sobre la gran ciudad que se desplegaba bajo sus pies. Esas mismas sombras evocaban el peligro que acechaba al reino.
 
-P2
----
+Cunabula se encontraba frente a la mayor amenaza que había surgido en los últimos mil años.
+
+El cambio...
+
+La medianoche había descendido sobre Cunabula. El reino que había recibido de su padre yacía moribundo, y no había nada que Dal pudiera hacer para detener el inexorable final que se aproximaba.
+
+Los mil años de paz que habían caracterizado al reino llegarían a su fin con el último suspiro de ese día. Al amanecer, no habría más rey para gobernar, ni constitución que seguir, y sobre todo, no habría más Árbol de la Armonía para protegerlos.
+
+"El ocaso de mi reino... el fin de Cunabula..." murmuró Dal. Aunque aún conservaba la corona, en ese momento se sentía tan desolado como cualquier otro habitante del reino. Una parte íntima de él deseaba dejar de lado la máscara de seguridad que siempre mostraba a sus súbditos; deseaba simplemente sentarse y permitirse llorar...
+
+Justo cuando la tristeza comenzaba a empañar sus ojos, una voz resonó desde el interior de la habitación tras él.
+
+"Su majestad, el Primado Dana ha llegado a sus aposentos y desea reunirse con usted", anunció una criada con reverencia.
+
+"Sí, por supuesto. Que me espere en la sala, la recibiré de inmediato", respondió Dal sin voltearse. Una vez que la criada se retiró, Dal tomó una toalla cercana y limpió su rostro cansado. Después de un momento de frotar vigorosamente su cara, dejó escapar una exhalación profunda, liberando la tensión acumulada.
+
+Al retirar la toalla, Dal volvió a ser el Rey Dal, soberano de Cunabula.
+
+Con calma renovada, el rey Dal regresó a sus aposentos. La recién llegada invitada representaba toda la luz de esperanza que necesitaba en su corazón.
+
+------------------------
+
+Dana aguardaba impaciente en la sala la llegada del Rey Dal. El espacio, habitualmente reservado para los desayunos del monarca con otros miembros destacados de la sociedad de Cunabula, cobraba un aire distinto en aquel momento. Aunque las reuniones solían tener un carácter puramente ceremonial, sin connotaciones sentimentales, ese día prometía ser distinto.
+
+Ella no habia acudido esa mañana para tratar asuntos con el Rey de Cunabula, sino para encontrarse con su hermano.
+
+Pronto, la figura de un leoponi de avanzada edad se revelo al otro lado de la sala. Su melena, marcada por líneas rojas y naranjas, evidenciaba las tonalidades que habría lucido en su juventud. Su porte orgulloso se veía realzado por un manto celeste de bordes blancos, adornado con un bello broche con la forma del sol y la luna. En su cabeza reposaba una corona de hojas doradas.
+
+En otras ocasiones, el invitado habría realizado reverencias al rey, pero aquella formalidad habría resultado excesiva para los intensos sentimientos de la joven Dana.
+
+"¡DAL!" exclamó emocionada Dana, acercándose a su hermano y apoyándose en él con cariño.
+
+"Dana, por favor, si el sueño no me ha derribado, tú lo harás", respondió con alegría Dal al recibir a su hermana.
+
+"No bromees así, hermano. ¿Has logrado descansar?"
+
+"No mucho, apenas una hora."
+
+"Lo siento mucho. Tal vez debería haber venido más tarde."
+
+"Para nada, hermanita. He tenido días más duros. Lo que realmente me preocupa es que mis consejeros no hayan dormido más que yo."
+
+"Conociéndolos, es probable que aún estén en la cama."
+
+"Espero que no", replicó Dal con una risa fresca, aunque en su interior albergaba auténtica preocupación. El día apenas comenzaba y, sin sus consejeros, no se sentía capaz de enfrentarlo.
+
+"Vamos, hermano, desayunemos antes de que la mañana llegue a su fin."
+
+"Sí, me parece bien."
+
+Dana se dirigió hacia la amplia mesa de la sala, donde un delicioso desayuno aguardaba a ambos.
+
 
 
 P3
@@ -33,9 +85,9 @@ Interrumpiendo aquel momento, alguien toco la puerta, mientras la criada recibia
 
 "No te preocupes Dana" repitio Dal a su hermana, luego de diriguio de vuelta a la criada "Si esta bien, el gran canciller puede pasar"
 
-Un momento despues las puertas del gran salon se abrieron, como se esperaba ahi estaba el gran canciller Mashal acompañado de una pequeño grupo de sus partidarios. Sin esperar que las puertas se abrieran por completo, aquel grupo de personas, con Mashal a la cabeza, ingreso al salon con un paso solemne pero orgulloso.
+Un momento despues las puertas del gran salon se abrieron, como se esperaba ahi estaba el gran canciller Mashal portando su carateristico turbante,  acompañado de una pequeño grupo de sus partidarios. Sin esperar que las puertas se abrieran por completo, aquel grupo de individuos, con Mashal a la cabeza, ingreso al salon con un paso solemne pero orgulloso.
 
-"Saludos Rey Dal, Primado Dana " dijo Mashal antes de detenerse frente a la mesa de desayuno "Ante todo me disculpo por interrumpir su muy agradable reunion, sin embargo dada la situcion extraordinaria que esta viviendo nuestro reino, me veo abligado a realizar este tipo actos tan faltos de modales, espero me perdone. "
+"Saludos Rey Dal, Primado Dana ante todo me disculpo por interrumpir su muy agradable reunion, sin embargo dada la situcion extraordinaria que esta viviendo nuestro reino, me veo abligado a realizar este tipo actos tan faltos de modales, espero me perdone. " dijo Mashal al llegar a la mesa. Dana noto que Mashal aun llamaba Rey a su hermano, probablemente porque aun se encontraban en una transicion ...
 
 "Entiendo gran canciller Mashal, le perdono , ahora diga ¿cual es el asunto que lo trae tan tamprano aqui?"
 
@@ -43,3 +95,36 @@ Un momento despues las puertas del gran salon se abrieron, como se esperaba ahi 
 
 "Si es asi ... cuente con mi apoyo gran canciller" respondio el Rey Dal en tono cansado
 
+"Se lo agradesco su majestad" respondio Mashal con una reverencia.
+
+Dana que se mantenia al margen de la conversacion, no veia con buenos ojos a Mashal. Ella no lo conocia personalmente, debido a que se encontraba siempre ocupada con las tareas del templo o en misiones en el exterior,  dificilmente habria tenido tiempo para poder establecer una relacion con algun miembro del concilio.  
+
+Ademas estaba el hecho que el Gran Patriarca le habia pedido mantenerse alejada de esos asuntos.
+
+"Ha cierto Primado Dana" dijo de Mashal volviendose en direcciona a Dana "Los miembros del templo me an informado que estan teniendo problemas para activar las prismas de almacenamiento de magia del reino, considero que requeriran de su talento para llevar a cabo con exito esa importante tarea."
+
+"Si, estoy al tanto de eso" respondio fria Dana a Mashal, luego se volvio a su hermano "Su majestad si me permite retirarme ahora."
+
+"Si, esta bien Primado Dana. Se lo permito, pero antes debo agradecerle por el tiempo que ha dedico en acompañar a este ordinario ciudadano durante esta oscura mañana" dijo Dal con una sonrisa brillante.
+
+"Solo cumplo con mi deber de cuidar de los ciudadanos del reino" respondio Dana tambien con una sonrisa entendiendo la broma de su hermano.
+
+"Es verdad" respondio aun alegre el rey pero su mirada cambio pronto a una mas seria "Ahora vaya a cumplir su deber, Cunabula cuenta con usted."
+
+"Muchas Gracias su majestad" repondio Dana, se despidio de Mashal y de inmediato abandono la sala.
+
+--------------------
+
+Ya con las puertas cerradas y Dana lejos. El viejo Rey volvio su mirada hacia el invitado que acababa de tomar asiento.
+
+"Mantente alejado de mi hermana Mashal, no tolerare que hagas uso de ella." dijo el Rey Dal con una mirada sumamente severa.
+
+"No se preocupe su majestad. No pienso hacer algo semejante ... por el momento." respondio  Mashal con una tranquila actitud antes de tomar una tasa de te. Atras de Mashal, sus acompañantes, comenzabab a despejar una mesa y a sacar varios folios de documentos.
+
+---------------------
+
+Lejos de las habitaciones reales, en una de las atalayas Dana contemplaba la gris atmosfera que cubria toda la isla esa mañana.
+
+"No te preocupes hermano, encontrare a Danu y al resto de caballeros, cambiaremos el destino... " murmuro Dana esperanzada antes de saltar hacia las nubes. Entonces, en plena caida, una alas doradas surgieron de sus costados asi como un brillante cuerno en su frente. 
+
+Descidida a no seguir ocultandose, Dana surco los cielos, descendiendo a la gran ciudad debajo de ella que ahora mas que nunca la necesitaba.
