@@ -50,19 +50,25 @@ Twilight utilizó su magia para acercar el "perchero de ideas" y sacó un juego 
 
 //-------------
 
-Habían pasado un par de horas y Twilight finalmente había terminado de revisar el penúltimo pergamino y cerrar sus anotaciones. Al mirar a su alrededor, notó un plato vacío con migajas de budín sobre la mesa. Spike había sido de gran ayuda al principio, haciendo sugerencias y ordenando las anotaciones en el "perchero de ideas". Pero ahora, estaba cómodamente sentado en un sofá, bebiendo chocolate caliente mientras leía un voluminoso libro de marco dorado.
+Habían pasado un par de horas, y Twilight finalmente había terminado de revisar el penúltimo pergamino de los muchos que tenía pendientes. Tomándose un respiro de su trabajo, con casi todas sus tarjetas de anotaciones agotadas, miró a su alrededor, notando un plato vacío con migajas de budín sobre la mesa. Spike había sido de gran ayuda al principio, dando sugerencias y organizando las anotaciones en el "perchero de ideas". Ahora, sin embargo, descansaba cómodamente en un sofá, bebiendo chocolate caliente mientras leía un voluminoso libro con un elegante marco dorado.
 
-La curiosidad de Twilight se despertó al ver el libro que estaba leyendo Spike. "¿Qué estás leyendo, Spike?"
+La curiosidad de Twilight se despertó al ver el llamativo libro que estaba leyendo su relajado asistente.
+
+"¿Qué estás leyendo, Spike?" preguntó con interés.
 
 "Mmm, es el último libro de A.K. Yearling, 'Daring Do y los Viajes Inconclusos'."
 
-Twilight se mordió el labio. Después de una larga espera, la escritora A.K. Yearling finalmente había lanzado un nuevo libro de Daring Do a principios de semana. Spike notó la expresión de desánimo de Twilight y adoptó una postura arrogante. "Tiene el récord de ser el libro más vendido en la primera semana de su lanzamiento y también es el más largo que ha escrito. Es una antología de historias cortas de distintos géneros que narran sus viajes por Equestria y el mundo. Incluye historias autobiográficas y material..."
+Twilight se mordió el labio de inmediato. Tras una larga espera, la escritora A.K. Yearling había lanzado un nuevo libro de Daring Do a principios de esa semana.
 
-"Por favor, no sigas, Spike", interrumpió Twilight con un suspiro. Aunque tenía su propia copia del libro, no había tenido tiempo de leerlo debido al trabajo de la última semana. Rainbow Dash probablemente se lo restregaría en la cara durante toda la noche de mañana. Pero si tan solo pudiera echar un vistazo rápido al resumen...
+Al observar la expresión de desánimo de Twilight, Spike adoptó una postura presumida. "Tiene el récord de ser el libro más vendido en su primera semana y también es el más largo que ha escrito. Es una antología de historias cortas de distintos géneros que narran sus viajes por Equestria y el mundo. Incluye historias autobiográficas y material..."
 
-"¡No!", frenó internamente Twilight sus pensamientos. Sabía que debía terminar el trabajo de hoy y solo quedaba un pergamino por revisar. Era el único pergamino rojo que tenía, y recordaba muy bien su contenido.
+"Por favor, no sigas, Spike", lo interrumpió Twilight con un suspiro. Aunque tenía su propia copia, no había tenido tiempo de leerlo debido al trabajo de los últimos días. Ya podía imaginarse a su amiga Rainbow Dash, fan acérrima de Daring Do, presumiendo todo lo que sabía sobre el libro durante la reunión de mañana. Algo que sería menos incómodo, si pudiera echarle un vistazo rápido al resumen...
 
-"Gracias, pero dejemos los 'spoilers' para más adelante, ¿de acuerdo?" dijo Twilight mientras abría el último pergamino y comenzaba a revisarlo. Spike la observó preocupado mientras terminaba su taza de chocolate caliente. Él también sabía de qué trataba ese pergamino.
+"¡No!", se reprendió internamente Twilight. Sabía que debía terminar su trabajo, y solo quedaba un pergamino por revisar.
+
+Decidida, tomó el único pergamino rojo que quedaba y leyó la etiqueta. Recordó de inmediato de qué trataba.
+
+"Gracias, pero dejemos los 'spoilers' para más adelante, ¿de acuerdo?" dijo Twilight con una expresión seria mientras abría el último pergamino y comenzaba a revisarlo. Spike la observó, preocupado, mientras terminaba su taza de chocolate caliente. Él también sabía de qué trataba ese pergamino.
 
 Este era un asunto delicado que Twilight no podía seguir ignorando.
 
