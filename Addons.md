@@ -4,14 +4,14 @@ Promt para traducir fanfics de español a ingles
 
 
 [
-    -> Edita el siguiente fragmento de mi fanfic para mejorar (la claridad) (la fluidez) (el impacto emocional). 
+    -> Edita el siguiente fragmento de mi fanfic de my little pony para mejorar (la claridad) (la fluidez) (el impacto emocional) (dialogos ingeniosos). 
     -> Corrige cualquier error gramatical o de puntuación que encuentres.
     -> Respeta el uso de comillas dobles ""
     -> La escena actual es parte de: 
 ]
 
 [
-    -> Edita el siguiente fragmento de mi fanfic para mejorar (la claridad) (la fluidez) (dialogos ingeniosos). 
+    -> Edita el siguiente fragmento de mi fanfic de my little pony para mejorar (la claridad) (la fluidez). 
     -> Corrige cualquier error gramatical o de puntuación que encuentres. Considera buen uso de los gerundios.
     -> Respeta el uso de comillas dobles "" no las reemplaces
     -> La escena actual es parte de la descripcion: Twilight cierra su dificil dia pensando ya en mañana
