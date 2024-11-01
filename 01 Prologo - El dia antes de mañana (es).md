@@ -76,29 +76,29 @@ Este era un asunto delicado que Twilight no podía seguir ignorando.
 
 Los "Caballeros del Orden"...
 
-Todo había comenzado tres años atrás. Poco después de su coronación, Twilight empezaba a definir el rumbo que tomaría Equestria bajo su mandato. Fue entonces cuando se propuso mejorar las relaciones con los reinos limítrofes a Equestria y más allá. Enviando a sus amigas y conocidos como embajadores con un mensaje de amistad y respeto, esperaba conocer más sobre la realidad de esos reinos y, si era posible, establecer una asociación común con ellos.
+Todo comenzó tres años atrás. Poco después de su coronación, Twilight empezó a definir el rumbo que tomaría Equestria bajo su mandato. Entre sus primeros objetivos estaba mejorar las relaciones con los reinos vecinos y más allá. Envió a sus amigas y conocidos como embajadores, portando un mensaje de amistad y respeto, con la esperanza de aprender más sobre la realidad de esos territorios y, si era posible, establecer lazos de colaboración mutua.
 
-Estas expediciones lograron con éxito llegar a sus destinos y transmitir el mensaje de amistad que Twilight deseaba compartir. Sin embargo, durante el transcurso de estos viajes, se hizo un inesperado descubrimiento: la existencia de otros Árboles de la Armonía fuera de Equestria. Estos árboles, con significados y magia distintos al que alguna vez existió en el reino de los ponis, supusieron un desafío innegable para los grupos expedicionarios. Con la ayuda improvisada de los embajadores de Equestria y el apoyo de los nuevos amigos en estos reinos, se logró activar la magia de cada uno de estos nuevos Árboles de la Armonía y descubrir a los portadores que los representaban.
+Estas expediciones lograron llegar a sus destinos, transmitiendo con éxito el mensaje de amistad de Twilight. Sin embargo, durante estos viajes, ocurrió un descubrimiento inesperado: la existencia de otros Árboles de la Armonía fuera de Equestria. Estos árboles, con significados y magia distintos al que conocían en el reino de los ponis, presentaron desafíos complejos para los equipos expedicionarios. Con el apoyo improvisado de los embajadores y la ayuda de nuevos aliados en estos reinos, lograron activar la magia de cada uno de estos Árboles y descubrir a sus portadores.
 
-Fue entonces cuando comenzaron a surgir problemas. Sus amigas pronto descubrieron que ellas no eran las primeras en encontrar estos Árboles.
+Fue entonces cuando comenzaron los problemas. Las amigas de Twilight pronto descubrieron que ellas no habían sido las primeras en encontrar estos Árboles.
 
-Muchas lunas atrás... un grupo misterioso de individuos había llegado desde una lejana tierra a esos reinos y había activado la magia de los Árboles de la Armonía con el mensaje de proteger a esos reinos y brindar prosperidad a sus habitantes. Erigieron templos donde se encontraban cada uno de los Árboles, y dentro de los templos colocaron mecanismos para que los habitantes de cada reino pudieran acceder a la magia de los Árboles de la manera correcta.
+Muchas lunas atrás, un misterioso grupo había llegado desde tierras lejanas a estos reinos, despertando la magia de los Árboles de la Armonía con la intención de proteger dichos territorios y traer prosperidad a sus habitantes. Erigieron templos en los lugares donde se encontraban los Árboles y colocaron mecanismos que permitieran a los habitantes de cada reino acceder correctamente a su magia.
 
-Estos individuos se presentaron a sí mismos como los Caballeros de la Armonía. Provenientes del reino mágico de Cunabula, estaban en una misión para despertar la magia de la armonía en el mundo. Una cruzada los llevó a descubrir cinco de los seis Árboles de la Armonía existentes, y estaban a punto de despertar el sexto y último en Equestria.
+Se hacían llamar los Caballeros de la Armonía y provenían del reino mágico de Cunabula. Su misión era despertar la magia de la armonía en el mundo. En una cruzada por el equilibrio, descubrieron cinco de los seis Árboles existentes y estaban a punto de despertar el sexto y último en Equestria.
 
-Sin embargo, no lograron su cometido. Al llegar al reino de los ponis, se encontraron desafortunadamente con que este estaba bajo el dominio de Discord, el Señor del Caos. Discord, malicioso en aquel entonces, al no poder tomar a los Caballeros de la Armonía como sus juguetes, decidió usar su magia del caos para manipular a los habitantes de los otros reinos que habían visitado previamente e iniciar una guerra contra ellos.
+Sin embargo, su propósito no se cumplió. Al llegar al reino de los ponis, se encontraron con Discord, el Señor del Caos. En aquel entonces, Discord, malicioso e impredecible, decidió que, si no podía tomar a los Caballeros de la Armonía como sus juguetes, usaría su magia del caos para manipular a los habitantes de los otros reinos que los Caballeros habían visitado previamente, provocando una guerra contra ellos.
 
-Los resultados de este conflicto fueron devastadores para Cunabula. Al verse traicionados por las naciones que antes habían ayudado, los Caballeros de la Armonía decidieron clausurar cada uno de los templos que habían construido y eliminar cualquier rastro de magia de la armonía que pudiera haber en ellos. Ocultaron su propio reino de los ojos del mundo y borraron cualquier evidencia de su existencia.
+El conflicto fue devastador para Cunabula. Traicionados por los mismos reinos a los que habían ayudado, los Caballeros de la Armonía clausuraron los templos que habían construido y eliminaron cualquier rastro de magia de la armonía en ellos. Decidieron ocultar su reino de los ojos del mundo y borrar toda evidencia de su existencia.
 
-Dejando atrás el título de los Caballeros de la Armonía, se rebautizaron como los Caballeros del Orden, con el juramento de proteger su reino y mantener el orden en el mundo. Estaban decididos a eliminar a cualquiera que intentara despertar nuevamente la magia de los Árboles.
+Renunciando al título de los Caballeros de la Armonía, se rebautizaron como los Caballeros del Orden, con el juramento de proteger su reino y mantener el orden en el mundo. Estaban decididos a eliminar a cualquiera que intentara despertar nuevamente la magia de los Árboles.
 
-Esta cruzada había permanecido en letargo durante más de un milenio, hasta que Twilight y sus amigas la reavivaron sin saberlo.
+Esta cruzada quedó en letargo por más de un milenio, hasta que Twilight y sus amigas, sin saberlo, la reavivaron.
 
-Sin esperar ninguna explicación, los Caballeros del Orden se pusieron en marcha, tomando medidas en contra de los reinos donde se había despertado la magia de los Árboles de la Armonía. Esta escalada llevó a que Danu, el líder de los Caballeros actuales, se enfrentara a Twilight y sus amigas en el mismísimo Canterlot. Tras un intenso enfrentamiento, Twilight y sus amigas quedaron acorraladas, a merced de los Caballeros, quienes tenían la intención de eliminarlas y así erradicar la magia de la armonía que aún existía en ellas.
+Sin ofrecer explicaciones, los Caballeros del Orden tomaron medidas en contra de los reinos donde la magia de los Árboles de la Armonía había sido despertada. Esto llevó a Danu, el líder de los Caballeros actuales, a enfrentarse directamente a Twilight y sus amigas en Canterlot. Tras un intenso enfrentamiento, Twilight y sus amigas quedaron acorraladas, a merced de los Caballeros, quienes planeaban erradicar la magia de la armonía que aún habitaba en ellas.
 
-Afortunadamente, con la ayuda de otros amigos presentes en ese momento y la oportuna llegada de nuevos aliados de los otros reinos, se frustraron estos planes y se salvó la ciudad de la catástrofe.
+Afortunadamente, con la ayuda de otros amigos presentes en ese momento y la oportuna llegada de nuevos aliados de los otros reinos, lograron frustrar los planes de los Caballeros y salvar la ciudad de una catástrofe.
 
-Entonces, los Caballeros del Orden fueron derrotados y, con la aprobación de los líderes de los otros reinos, fueron apresados y llevados al Tártaro, la prisión mágica de Equestria, donde permanecerían encerrados hasta el presente...
+Derrotados, y con el consentimiento de los líderes de los otros reinos, los Caballeros del Orden fueron apresados y llevados al Tártaro, la prisión mágica de Equestria, donde permanecerían encerrados hasta el presente...
 
 //-------------
 
