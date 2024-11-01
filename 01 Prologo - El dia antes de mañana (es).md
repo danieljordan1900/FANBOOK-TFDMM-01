@@ -12,7 +12,7 @@ El Festival de las Dos Hermanas estaba programado para el día siguiente, y hab�
 
 Ella era una alicornio y, aún más importante, una poni que sabía organizarse. Tenía el tiempo y la experiencia necesarios para sobrellevar sus responsabilidades diarias. Sin embargo, había días como este en los que sentía que había envejecido siglos desde su coronación. Era consciente de que era una exageración, ya que solo habían pasado tres años. Aun así, cuando se encontraba sola y reflexionaba sobre el tiempo transcurrido, lleno de trabajo intenso y responsabilidades, no podía evitar sentir un fugaz e infantil sentimiento de frustración.
 
-Twilight levantó un casco en el aire y dio un golpe fuerte contra el sofá, y luego cuatro veces más. Después de esto, tras un intervalo de estar quieta, se levantó y lo examinó brevemente para verificar que no lo hubiera dañado. Al confirmar que estaba en perfectas condiciones, cayó pesadamente sobre él.
+Twilight levantó un casco en el aire y dio un fuerte golpe contra el sofá, y luego lo repitio cuatro veces más. Después de esto, tras un intervalo de estar quieta, se levantó y lo examinó brevemente para verificar que no lo hubiera dañado. Al confirmar que estaba en perfectas condiciones, cayó pesadamente sobre él.
 
 El sofá esponjoso había resistido el golpe de sus cascos como ningún otro sofá en Equestria podría haberlo hecho. Lo había adquirido siguiendo el consejo de una buena amiga. Al principio, Twilight pensaba que el precio de ese mueble era escandaloso, pero hasta ahora había valido cada moneda que había pagado por él.
 
