@@ -9,3 +9,14 @@ Promt para traducir fanfics de español a ingles
     -> Respeta el uso de comillas dobles ""
     -> La escena actual es parte de: 
 ]
+
+[
+    -> Edita el siguiente fragmento de mi fanfic para mejorar (la claridad) (la fluidez). 
+    -> Corrige cualquier error gramatical o de puntuación que encuentres. Considera buen uso de los gerundios.
+    -> Respeta el uso de comillas dobles "" no las reemplaces
+    -> La escena actual es parte de la descripcion: Twilight en su habitacion especial
+]
+
+Escenas:
+
+-> Twilight en su habitacion especial.
