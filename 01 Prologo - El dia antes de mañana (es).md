@@ -50,7 +50,7 @@ Twilight utilizó su magia para acercar el "perchero de ideas" y sacó un juego 
 
 //-------------
 
-Habían pasado un par de horas, y Twilight finalmente había terminado de revisar el penúltimo pergamino de los muchos que tenía pendientes. Tomándose un respiro de su trabajo, con casi todas sus tarjetas de anotaciones agotadas, miró a su alrededor, notando un plato vacío con migajas de budín sobre la mesa. Spike había sido de gran ayuda al principio, dando sugerencias y organizando las anotaciones en el "perchero de ideas". Ahora, sin embargo, descansaba cómodamente en un sofá, bebiendo chocolate caliente mientras leía un voluminoso libro con un elegante marco dorado.
+Habían pasado un par de horas, y Twilight finalmente había terminado de revisar el penúltimo pergamino de los muchos que habia tenido pendientes. Tomándose un respiro de su trabajo, con casi todas sus tarjetas de anotaciones agotadas, miró a su alrededor, notando un plato vacío con migajas de budín sobre la mesa. Spike había sido de gran ayuda al principio, dando sugerencias y organizando las anotaciones en el "perchero de ideas". Ahora, sin embargo, descansaba cómodamente en un sofá, bebiendo chocolate caliente mientras leía un voluminoso libro con un elegante marco dorado.
 
 La curiosidad de Twilight se despertó al ver el llamativo libro que estaba leyendo su relajado asistente.
 
