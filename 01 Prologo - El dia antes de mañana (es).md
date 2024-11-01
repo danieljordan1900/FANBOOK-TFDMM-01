@@ -102,15 +102,15 @@ Derrotados, y con el consentimiento de los líderes de los otros reinos, los Cab
 
 //-------------
 
-Twilight suspiró al terminar de leer el contenido del pergamino rojo. El informe que leía era lo que esperaba; la situación de los Caballeros del Orden en el Tártaro se mantenía sin cambios, y los resultados de las investigaciones sobre Cunabula eran los mismos que el año anterior.
+Twilight suspiró al terminar de leer el contenido del pergamino rojo. El informe era justo lo que esperaba: la situación de los Caballeros del Orden en el Tártaro se mantenía sin cambios, y los resultados de las investigaciones sobre Cunabula seguían siendo los mismos que el año anterior.
 
 En otras palabras, no había habido ningún progreso.
 
-Desde el encierro de los Caballeros del Orden, estos habían permanecido allí sin intentar escapar ni cooperar para mejorar su situación penitenciaria. A pesar de los mejores esfuerzos de Twilight por establecer una conexión con Danu, el líder de los Caballeros, este se había mantenido inflexible en su negativa a dirigirle la palabra durante las visitas que ella le hacía. Lo mismo ocurría con sus compañeros. Por lo tanto, aparte de lo que habían descubierto en su primer encuentro, no se había aprendido nada más sobre ellos.
+Desde que fueron encarcelados, los Caballeros del Orden habían permanecido en el Tártaro sin intentar escapar ni cooperar para mejorar su situación. A pesar de los esfuerzos de Twilight por establecer una conexión con Danu, el líder de los Caballeros, él había mantenido una postura rígida, negándose a hablar con ella durante sus visitas. Sus compañeros actuaban de la misma manera. Así, aparte de lo que descubrieron en su primer encuentro, no habían logrado aprender nada más sobre ellos.
 
-Por otro lado, la isla de Cunabula seguía siendo un misterio difícil de desentrañar. No se encontraba en ningún libro de historia de Equestria ni en los reinos aliados. En una carta de Star Swirl el Barbado desde Ornithia, el sabio afirmó haber descubierto la bandera de aquella nación, la cual era un estandarte verde que exhibía un árbol plateado rodeado de seis estrellas. Su exhaustiva investigación lo llevó a concluir que la ubicación de ese reino probablemente se hallaba en algún lugar de los mares del sur. Desafortunadamente, eso era toda la información que pudo encontrar. A pesar de ello, Twilight decidió prorrogar la investigación un año más, y luego otro, hasta el día de hoy.
+Por otro lado, la isla de Cunabula seguía siendo un misterio impenetrable. No aparecía en ningún libro de historia de Equestria ni en los archivos de los reinos aliados. En una carta desde Ornithia, Star Swirl el Barbado afirmó haber descubierto la bandera de aquella nación: un estandarte verde con un árbol plateado rodeado de seis estrellas. Tras una exhaustiva investigación, concluyó que el reino probablemente se encontraba en algún lugar de los mares del sur. Desafortunadamente, esa era toda la información que pudo encontrar. Aun así, Twilight había decidido prorrogar la investigación, año tras año, hasta el día de hoy.
 
-Twilight se dejó caer en su sofá boca arriba. Que la situación se mantuviera igual podría considerarse un éxito para un líder poco comprometido que solo improvisara soluciones. Ella no era ese tipo de líder. A medida que pensaba más en los Caballeros del Orden, su duda crecía...
+Twilight se dejó caer boca arriba en el sofá. Que la situación permaneciera igual podría considerarse un éxito para un líder poco comprometido que se conformara con soluciones improvisadas. Pero ella no era ese tipo de líder. Cuanto más pensaba en los Caballeros del Orden, más crecía su inquietud...
 
 "Dime, Spike, ¿por qué crees que ningún representante de Cunabula ha intentado comunicarse con nosotros después de la derrota de los Caballeros del Orden?" preguntó Twilight sin apartar la mirada del techo.
 

@@ -14,7 +14,7 @@ Promt para traducir fanfics de español a ingles
     -> Edita el siguiente fragmento de mi fanfic para mejorar (la claridad) (la fluidez). 
     -> Corrige cualquier error gramatical o de puntuación que encuentres. Considera buen uso de los gerundios.
     -> Respeta el uso de comillas dobles "" no las reemplaces
-    -> La escena actual es parte de la descripcion: La historia misteriosa y oscura de los caballeros del orden
+    -> La escena actual es parte de la descripcion: Twilight reflexiona sobre los caballeros del orden aprisionados
 ]
 
 Escenas:
@@ -26,3 +26,6 @@ Escenas:
 -> Twilight se toma un respiro de su trabajo de revision antes de revisar el ultimo y mas complicado pergamino
 
 -> La historia misteriosa y oscura de los caballeros del orden
+
+-> Twilight reflexiona sobre los caballeros del orden aprisionados
+-> Twilight y Spike conversan sobre los caballeros del orden aprisionados
