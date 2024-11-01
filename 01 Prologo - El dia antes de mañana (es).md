@@ -114,45 +114,47 @@ Twilight se dejó caer boca arriba en el sofá. Que la situación permaneciera i
 
 "Dime, Spike, ¿por qué crees que ningún representante de Cunabula ha intentado comunicarse con nosotros después de la derrota de los Caballeros del Orden?" preguntó Twilight sin apartar la mirada del techo.
 
-"Uhmm..." meditó Spike en una postura reflexiva, aunque era un gesto fingido ya que esperaba que Twilight le preguntara sobre ese tema. "Podría ser que son muy impopulares en casa y les hicimos un favor a su gente al encerrarlos."
+"Uhmm..." meditó Spike, adoptando una postura reflexiva, aunque en realidad estaba preparado para esa pregunta. "Tal vez no son muy populares en su hogar y, al encerrarlos, les hicimos un favor a su gente."
 
-"¿Realmente?" respondió Twilight sin voltear a ver a su dragón asistente. "Recuerdo bien mi primer encuentro con Danu y sus compañeros. No percibí que fueran tiranos imprudentes, sino más bien individuos conservadores, demasiado comprometidos con su causa..."
+"¿De verdad crees eso?" respondió Twilight sin voltear hacia su asistente. "Recuerdo bien mi primer encuentro con Danu y sus compañeros. No parecían tiranos imprudentes, sino más bien individuos conservadores, demasiado comprometidos con su causa..."
 
-Twilight cerró los ojos y comenzó a reflexionar. Tal vez les estaba dando demasiado crédito, pero mucho en el discurso de Danu le hacía creer que solo estaba viendo una faceta de su oponente. Que el líder de los caballeros hubiera sido quien planteara la conversación inicial en su primer encuentro reforzaba esta idea.
+Twilight cerró los ojos, reflexionando. Quizás les estaba dando demasiado crédito, pero muchas de las palabras de Danu le hacían pensar que solo había visto una faceta de su oponente. Que él mismo hubiera iniciado la conversación en su primer encuentro reforzaba esa idea.
 
-"Bueno... quizás no saben qué hacer en su país ahora que ellos no están," continuó Spike sin considerar mucho sus palabras, "o tal vez les da mucho miedo salir de su isla... digo, hogar."
+"Bueno... quizás en Cunabula están algo perdidos ahora que ellos no están," continuó Spike, sin medir demasiado sus palabras, "o tal vez tienen miedo de salir de su isla... digo, hogar."
 
-"Ya han pasado tres años, Spike. En Cunabula ya deberían tener nuevos líderes," respondió Twilight abriendo los ojos. "Incluso si no fuera así, sus propios partidarios habrían intentado buscarlos o rescatarlos... Ten en cuenta además lo rápido que pudieron llegar a Equestria y lo poderosos que demostraron ser en batalla. No creo que tengan miedo de salir de su hogar por temor a perderse o ser lastimados."
+"Han pasado tres años, Spike. Para ahora, Cunabula ya debería tener nuevos líderes," respondió Twilight abriendo los ojos. "Incluso si no fuera así, sus seguidores habrían intentado buscarlos o rescatarlos. Además, considera lo rápido que pudieron llegar a Equestria y el poder que demostraron en batalla. No creo que el miedo a perderse o ser heridos los esté reteniendo."
 
-Si tomaba en cuenta el complot de Ornithia, la actuación de los Caballeros del Orden en Canterlot y sus propios descubrimientos sobre los templos de la armonía, Twilight podía estar segura de que Cunabula no era algo para tomar a la ligera. Era un reino que ya empleaba la magia de la armonía desde hace más de mil años. Evidentemente, estaban muy adelantados a su época en aquel entonces. En la actualidad, no podía imaginar cuánto podía ser la diferencia. El haber estado aislados del mundo tanto tiempo debería haber retrasado mucho de su progreso, pero esto mismo podría haber impulsado su desarrollo en otras direcciones insospechadas.
+Twilight pensó en el complot de Ornithia, la actuación de los Caballeros del Orden en Canterlot y sus descubrimientos sobre los templos de la armonía. Cunabula no era algo que pudiera tomarse a la ligera. Era un reino que ya utilizaba la magia de la armonía hace más de mil años. Evidentemente, estaban muy adelantados a su época en aquel momento. No podía imaginar cuánto había cambiado desde entonces. Estar aislados del mundo tanto tiempo podría haber frenado su progreso en ciertos aspectos, pero también podría haber impulsado su desarrollo en otras direcciones inesperadas.
 
-"Creo que esas son todas mis opciones..." replicó Spike cansado, que de inmediato se acomodó en su asiento y no dijo más. Twilight no se lo reprochó, tenía muchas cosas en su cabeza en ese momento.
+"Creo que esas son todas mis teorías..." murmuró Spike, agotado, acomodándose en su asiento. Twilight no le reprochó nada; ella también tenía demasiadas cosas en la cabeza en ese momento.
 
-Tenía que admitirlo. Sabía demasiado poco de Cunabula. Su gobierno, su historia, sus costumbres... era demasiado. Bien podrían haber otros actores desconocidos que estuvieran guiando la toma de decisiones en aquel reino y observando fríamente de lejos los acontecimientos en Equestria. Esta hipótesis explicaría la conducta de los Caballeros del Orden, que simplemente estarían esperando el momento adecuado para actuar.
+Twilight tuvo que admitirlo: sabía muy poco sobre Cunabula. Su gobierno, su historia, sus costumbres... el desconocimiento era abrumador. Bien podrían existir otros actores ocultos que, desde la sombra, estuvieran guiando las decisiones en ese reino y observando los acontecimientos en Equestria con frialdad. Esta hipótesis explicaría la conducta de los Caballeros del Orden, quienes quizá solo esperaban el momento adecuado para actuar.
 
-Si fuera así, entonces lo ocurrido en el ataque a Canterlot se repetiría y podría resultar en algo peor...
+Si fuera así, lo ocurrido en el ataque a Canterlot podría repetirse... o resultar en algo aún peor.
 
-Después de su reflexión, Twilight empezó a sentir un desagradable sabor que se esparcía por su boca. Era una sensación tan molesta como la de tener algo frente a su nariz y no poder verlo.
+A medida que reflexionaba, Twilight sintió un amargo sabor esparcirse en su boca, como si algo estuviera justo frente a ella, sin poder verlo del todo.
 
-¿Podía realmente tomar una decisión responsable habiendo tantas cosas que desconocía? ¿Debería simplemente archivar el caso y dejar a los Caballeros del Orden en el Tártaro indefinidamente? ¿Hacer más planes de escape en caso de ataque serviría de algo?
+¿Realmente podía tomar una decisión responsable con tanto que desconocía? ¿Debía archivar el caso y dejar a los Caballeros del Orden en el Tártaro indefinidamente? ¿Tendría sentido preparar más planes de escape en caso de otro ataque?
 
-Lo más irresponsable que podía hacer era simplemente dejarlos ir, aunque eso sería...
+Lo más irresponsable sería simplemente dejarlos ir, aunque...
 
 "¿Y si simplemente los dejamos ir?" sugirió Spike en tono de broma, intentando aliviar la tensión.
 
-Twilight lo miró molesta. "Bueno... solo estoy diciendo que si esto es demasiado para nosotros... tal vez dejarlos ir no marcaría una gran diferencia", explicó Spike, un poco nervioso ante la mirada de la princesa.
+Twilight lo miró, claramente molesta. "¿De verdad piensas eso?"
+
+Spike levantó las garras, nervioso. "Bueno... solo digo que, si todo esto es demasiado para nosotros, tal vez dejarlos ir no haría una gran diferencia..."
 
 "¿Discord te sugirió eso?" preguntó Twilight con una mirada seria.
 
-"Sí", respondió Spike hundiendose en su asiento. Él ya había consultado al "Señor del Caos" sobre el asunto, después de todo, él era en parte responsable de la situación actual. Por supuesto, aunque ahora era considerado un amigo, la respuesta que recibió fue típicamente discordante.
+"Sí," admitió Spike, hundiéndose un poco en su asiento. Había consultado al "Señor del Caos" sobre el tema, considerando que él era en parte responsable de la situación. Naturalmente, la respuesta de Discord había sido típicamente discordante.
 
-Twilight de pronto suspiró una vez más. "Creo que tiene razón", admitió. "Pero no es una decisión que pueda tomar sola. Necesito que los otros reinos consideren mi punto de vista. Sin embargo, no tengo argumentos sólidos que respalden esa acción... solo una débil esperanza", dijo mientras miraba desanimada el pergamino.
+Twilight suspiró una vez más. "Creo que, en cierto modo, tiene razón. Pero no es una decisión que pueda tomar sola. Necesito que los otros reinos consideren mi punto de vista. Sin embargo, no tengo argumentos sólidos que respalden esa acción... solo una débil esperanza," dijo, mirando desanimada el pergamino.
 
-Si pedía ayuda a Discord para llevar a cabo un juicio, el caso podría volverse en su contra debido a las travesuras que él había cometido en el pasado. Además, no podía imaginar a los Caballeros del Orden aceptando las "sinceras" disculpas del "Señor del Caos".
+Pedir ayuda a Discord para juzgar el caso podría volverse en su contra debido a sus travesuras pasadas. Además, dudaba que los Caballeros del Orden aceptaran unas "sinceras" disculpas del "Señor del Caos".
 
-Si simplemente los liberaba, los otros reinos sin duda considerarían a Equestria como un aliado no confiable. Además, permitir que aquellos criminales, que habían jurado destruirlos y ya habían atacado dos reinos, regresaran a su país para continuar con sus conspiraciones, pondría a Equestria en peligro. Aunque ella quería creer que los Caballeros del Orden no volverían a intervenir, sabía que era más probable que lo hicieran.
+Si simplemente los liberaba, los otros reinos seguramente verían a Equestria como un aliado poco confiable. Y permitir que esos criminales, que habían jurado destruirlos y atacado ya dos reinos, regresaran a su país para continuar sus conspiraciones pondría en riesgo a Equestria. Aunque Twilight quería creer que los Caballeros del Orden no volverían a intervenir, sabía que lo más probable era lo contrario.
 
-Al final, no podía tomar una decisión todavía. Tendría que esperar y reflexionar más sobre el asunto antes de llegar a una conclusión.
+Al final, todavía no podía decidir. Tendría que esperar y reflexionar más antes de llegar a una conclusión.
 
 Con su magia, Twilight colocó cuidadosamente el pergamino en una caja especial que ya contenía otros documentos que serían atendidos el próximo año. Al ver la cantidad de pergaminos en comparación con el año anterior, se dio cuenta de lo poco que había disminuido su carga de trabajo. Con esto en mente, procedió a ordenar el resto de los documentos.
 
