@@ -14,17 +14,17 @@ Ella era una alicornio y, aún más importante, una poni que sabía organizarse.
 
 Twilight levantó un casco en el aire y dio un golpe fuerte contra el sofá, y luego cuatro veces más. Después de esto, tras un intervalo de estar quieta, se levantó y lo examinó brevemente para verificar que no lo hubiera dañado. Al confirmar que estaba en perfectas condiciones, cayó pesadamente sobre él.
 
-El sofá esponjoso resistió sus cascos como ningún otro sofá en Equestria podría haberlo hecho. Lo había adquirido siguiendo el consejo de una buena amiga. Al principio, Twilight pensaba que el precio de ese mueble era escandaloso, pero hasta ahora había valido cada moneda que había pagado por el.
+El sofá esponjoso había resistido el golpe de sus cascos como ningún otro sofá en Equestria podría haberlo hecho. Lo había adquirido siguiendo el consejo de una buena amiga. Al principio, Twilight pensaba que el precio de ese mueble era escandaloso, pero hasta ahora había valido cada moneda que había pagado por él.
 
-Ese era el famoso sofá súper esponjoso y suave recomendado por Rarity, en palabras de ella, "digno del descanso 'real' de una princesa", y contaba con la aprobación especial de Rainbow Dash. Claro que la "aprobación especial" consistió en que Rainbow Dash lo usara primero y luego se negara a abandonarlo debido a lo cómodo que era. Incluso tuvieron que usar magia para sacarla de allí.
+Ese era el famoso sofá súper esponjoso y suave recomendado por Rarity, quien decía que era "digno del descanso 'real' de una princesa", y contaba con la aprobación especial de Rainbow Dash. Claro que la "aprobación especial" consistía en que Rainbow Dash lo usara primero, algo que no resultó nada bien, dada la negativa de su amiga a abandonarlo debido a lo cómodo que era. Tan vergonzoso fue el incidente en la tienda que incluso tuvieron que usar magia para sacarla de allí.
 
-Twilight esbozó una pequeña sonrisa mientras rememoraba aquellos tiempos, y recorrió con la mirada el resto de la habitación. Allí se encontraban otros objetos familiares y queridos, como la mini máquina automática de confitería de Pinkie Pie. Siempre lograba brindarle el sabor perfecto para reactivarse en los días más pesados.
+Recostada en su sofá, Twilight esbozó una pequeña sonrisa mientras rememoraba aquellos tiempos y recorría con la mirada el resto de la habitación. Allí se encontraban otros objetos familiares y queridos, como la mini máquina automática de confitería de Pinkie Pie, cuyos dulces siempre lograban brindarle el sabor perfecto para reactivarse en los días más pesados.
 
-También estaba la biblioteca de libros de relajación de Fluttershy. Cada vez que tenía problemas para conciliar el sueño, tomaba en un libro al azar y se sumergia en el. Nunca había llegado a terminar alguno. Le bastaba leer una pagina para caer dormida ahi mismo.
+También estaba la biblioteca de libros de relajación de Fluttershy. Cada vez que tenía problemas para conciliar el sueño, tomaba un libro al azar y se sumergía en él. Hasta la fecha, no había llegado a terminar ninguno; le bastaba leer una o dos páginas para caer dormida ahí mismo.
 
-Por último, estaba el perchero de pie de Applejack, que, curiosamente, era el objeto que más había utilizado. No para colgar vestidos o ropa de realeza, sino como un verdadero "árbol de ideas" o "perchero de ideas", donde colgaba todas sus ideas y pensamientos cuando tenía que resolver algún problema complejo.
+Por último, estaba el perchero de pie de Applejack, que, curiosamente, era el objeto que más había utilizado. No para colgar vestidos o ropa de realeza, sino particularmente como un verdadero "árbol de ideas" o "perchero de ideas", donde colgaba todos sus planes y pensamientos escritos en tarjetas cuando tenía que resolver algún problema complejo.
 
-Todos estos objetos eran regalos de sus amigas, y le traían buenos recuerdos de momentos compartidos. Mañana se reunirían de nuevo, pero Twilight sabía que aún quedaba trabajo por hacer. Y a pesar de su cansancio, se sentía con la energía suficiente para terminarlo.
+Todos estos objetos eran regalos de sus amigas y le traían buenos recuerdos de momentos compartidos en el pasado. Mañana se reunirían de nuevo y eso la emocionaba mucho, pero Twilight también sabía que aún quedaba trabajo por hacer. Y, a pesar de su cansancio, tenía el deber y la energía suficiente para terminarlo.
 
 Alguien tocó a la puerta con un ligero golpeteo.
 
