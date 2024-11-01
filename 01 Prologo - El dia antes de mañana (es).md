@@ -48,7 +48,7 @@ Twilight utilizó su magia para acercar el "perchero de ideas" y sacó un juego 
 
 "Spike, ¿puedes traerme un poco de budín y chocolate? ¡Necesitaremos un poco de combustible para esta pequeña maratón!", pidió Twilight, esbozando una sonrisa.
 
-//-------------
+[---]
 
 Habían pasado un par de horas, y Twilight finalmente había terminado de revisar el penúltimo pergamino de los muchos que habia tenido pendientes. Tomándose un respiro de su trabajo, con casi todas sus tarjetas de anotaciones agotadas, miró a su alrededor, notando un plato vacío con migajas de budín sobre la mesa. Spike había sido de gran ayuda al principio, dando sugerencias y organizando las anotaciones en el "perchero de ideas". Ahora, sin embargo, descansaba cómodamente en un sofá, bebiendo chocolate caliente mientras leía un voluminoso libro con un elegante marco dorado.
 
@@ -72,7 +72,7 @@ Decidida, tomó el único pergamino rojo que quedaba y leyó la etiqueta. Record
 
 Este era un asunto delicado que Twilight no podía seguir ignorando.
 
-//-------------
+[---]
 
 Los "Caballeros del Orden"...
 
@@ -100,7 +100,7 @@ Afortunadamente, con la ayuda de otros amigos presentes en ese momento y la opor
 
 Derrotados, y con el consentimiento de los líderes de los otros reinos, los Caballeros del Orden fueron apresados y llevados al Tártaro, la prisión mágica de Equestria, donde permanecerían encerrados hasta el presente...
 
-//-------------
+[---]
 
 Twilight suspiró al terminar de leer el contenido del pergamino rojo. El informe era justo lo que esperaba: la situación de los Caballeros del Orden en el Tártaro se mantenía sin cambios, y los resultados de las investigaciones sobre Cunabula seguían siendo los mismos que el año anterior.
 
