@@ -156,22 +156,22 @@ Si simplemente los liberaba, los otros reinos seguramente verían a Equestria co
 
 Al final, todavía no podía decidir. Tendría que esperar y reflexionar más antes de llegar a una conclusión.
 
-Con su magia, Twilight colocó cuidadosamente el pergamino en una caja especial que ya contenía otros documentos que serían atendidos el próximo año. Al ver la cantidad de pergaminos en comparación con el año anterior, se dio cuenta de lo poco que había disminuido su carga de trabajo. Con esto en mente, procedió a ordenar el resto de los documentos.
+Con su magia, Twilight guardó cuidadosamente el pergamino en una caja especial junto con otros documentos que también serían atendidos el próximo año. Al ver la cantidad acumulada en comparación con el año anterior, se dio cuenta de cuánto seguía aumentando su carga de trabajo. Con un suspiro resignado, comenzó a ordenar el resto de los documentos.
 
-Una vez que terminó su tarea, se sintió un poco más animada. El reloj marcaba el final de la hora y se dio cuenta de que todavía faltaban tres horas para la medianoche.
+Cuando terminó, sintió un ligero alivio. El reloj señalaba que todavía faltaban tres horas para la medianoche.
 
-"¡Todavía es temprano! ¿Qué te parece si hacemos una inspección sorpresa para evaluar el estado de las decoraciones de este año?", propuso Twilight a Spike poniéndose de pie.
+"¡Todavía es temprano! ¿Qué te parece si hacemos una inspección sorpresa para revisar las decoraciones de este año?", propuso Twilight a Spike mientras se ponía de pie.
 
-"No sé, Twilight. Hoy me siento un poco cansado", respondió Spike, fingiendo un bostezo mientras intentaba ocultar un grueso libro que tenía. "¿Por qué no vas sola esta vez?"
+"No sé, Twilight. Hoy me siento algo cansado," respondió Spike, fingiendo un bostezo mientras intentaba ocultar un grueso libro detrás de él. "¿Por qué no vas sola esta vez?"
 
-"¿De verdad? Pensé que llevar a mi asistente número uno en mi 'real espalda' sería una recompensa apropiada por su arduo trabajo", bromeó Twilight con una mirada cómplice mientras se colocaba su atuendo de realeza. Ella ya intuía el origen del cansancio de su compañero dragón.
+"¿En serio? Pensé que llevar a mi 'asistente número uno' sobre mi 'real espalda' sería una gran recompensa por su arduo trabajo," bromeó Twilight con una sonrisa astuta mientras se ponía su atuendo de realeza. Ya tenía una idea del verdadero origen del "cansancio" de Spike.
 
-Spike no pudo resistirse y, con un batir de alas, saltó a la espalda de Twilight.
+Spike no pudo resistir la tentación y, agitando sus pequeñas alas, saltó a la espalda de Twilight.
 
-"Acabo de recordar que tengo unos mensajes especiales para el chef en jefe. ¿Te importaría si vamos allí primero, Twilight?"
+"Ahora que lo pienso, creo que tengo un mensaje importante para el chef en jefe. ¿Te importa si pasamos por la cocina primero, Twilight?"
 
-"No, si en el camino me cuentas algunas historias del nuevo libro de Daring Do", respondió ella mientras su corona real levitaba y se colocaba suavemente en su cabeza.
+"Claro, si en el camino me cuentas algunas historias del nuevo libro de Daring Do," respondió ella mientras hacía levitar su corona y la colocaba suavemente sobre su cabeza.
 
-"¡Perfecto! ¿Has leído alguna vez sobre la 'Colina de la Eternidad'?", preguntó Spike emocionado.
+"¡Perfecto! ¿Alguna vez has oído hablar de la 'Colina de la Eternidad'?", preguntó Spike, entusiasmado.
 
-Ambos partieron sonrientes de la habitación, dejando atrás un budín y una taza de chocolate sin tocar.
+Ambos salieron de la habitación sonriendo, dejando atrás un budín y una taza de chocolate que quedaron sin tocar.

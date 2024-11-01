@@ -11,10 +11,10 @@ Promt para traducir fanfics de español a ingles
 ]
 
 [
-    -> Edita el siguiente fragmento de mi fanfic para mejorar (la claridad) (la fluidez). 
+    -> Edita el siguiente fragmento de mi fanfic para mejorar (la claridad) (la fluidez) (dialogos ingeniosos). 
     -> Corrige cualquier error gramatical o de puntuación que encuentres. Considera buen uso de los gerundios.
     -> Respeta el uso de comillas dobles "" no las reemplaces
-    -> La escena actual es parte de la descripcion: Twilight reflexiona sobre los caballeros del orden aprisionados
+    -> La escena actual es parte de la descripcion: Twilight cierra su dificil dia pensando ya en mañana
 ]
 
 Escenas:
@@ -29,3 +29,5 @@ Escenas:
 
 -> Twilight reflexiona sobre los caballeros del orden aprisionados
 -> Twilight y Spike conversan sobre los caballeros del orden aprisionados
+
+-> Twilight cierra su dificil dia pensando ya en mañana
