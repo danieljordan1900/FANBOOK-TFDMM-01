@@ -14,7 +14,7 @@ Promt para traducir fanfics de español a ingles
     -> Edita el siguiente fragmento de mi fanfic para mejorar (la claridad) (la fluidez). 
     -> Corrige cualquier error gramatical o de puntuación que encuentres. Considera buen uso de los gerundios.
     -> Respeta el uso de comillas dobles "" no las reemplaces
-    -> La escena actual es parte de la descripcion: Twilight recuerda sus dias pasados con sus amigas
+    -> La escena actual es parte de la descripcion: Twilight recibe a Spike y su encargo en la habitacion
 ]
 
 Escenas:
@@ -22,3 +22,4 @@ Escenas:
 -> Twilight en su habitacion especial.
 -> Twilight recuerda su dificil dia 
 -> Twilight recuerda sus dias pasados con sus amigas
+-> Twilight recibe a Spike y su encargo en la habitacion

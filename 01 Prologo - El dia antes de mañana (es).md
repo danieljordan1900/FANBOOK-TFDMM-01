@@ -26,27 +26,27 @@ Por último, estaba el perchero de pie de Applejack, que, curiosamente, era el o
 
 Todos estos objetos eran regalos de sus amigas y le traían buenos recuerdos de momentos compartidos en el pasado. Mañana se reunirían de nuevo y eso la emocionaba mucho, pero Twilight también sabía que aún quedaba trabajo por hacer. Y, a pesar de su cansancio, tenía el deber y la energía suficiente para terminarlo.
 
-Alguien tocó a la puerta con un ligero golpeteo.
+Alguien tocó la puerta con un ligero golpeteo.
 
-"Twilight, ¿ya estás ahí? Tengo los documentos que me pediste", dijo Spike tras la puerta.
+"Twilight, ¿ya estás ahí? Tengo los documentos que me pediste", dijo Spike desde el otro lado.
 
-"Sí, Spike, espera un momento". Twilight enderezó su postura para parecer más noble, utilizando su magia para acomodar su atuendo real que estaba esparcido por la habitación. Finalmente, abrió la puerta y una pila de pergaminos ingresó con obediente Spike debajo de ellos.
+"Sí, Spike, espera un momento". Twilight enderezó su postura para parecer más digna, utilizando su magia para acomodar su atuendo real, que estaba esparcido por la habitación. Finalmente, abrió la puerta, y una pila de pergaminos ingresó con Spike obedientemente atrapado debajo.
 
-"Bien, aquí están todos los pergaminos. Vaya, que están más ligeros que el año pasado", dijo el joven dragon morado con sarcasmo cuando los dejó caer en el centro de la mesa.
+"Bien, aquí están todos los pergaminos. Vaya, ¡están más ligeros que el año pasado!", exclamó el joven dragón morado con sarcasmo, dejando caer la carga en la mesa central de la habitación.
 
-"Sí, este año hemos resuelto muchos problemas. Pero mira el lado positivo, el próximo año tendrás menos peso que cargar", respondió Twilight mientras comenzaba a recoger algunos pergaminos que habían caído al suelo con su magia.
+"Sí, este año hemos resuelto muchos problemas. Pero mira el lado positivo: el próximo año tendrás menos peso que cargar", respondió Twilight mientras recogía algunos pergaminos que habían caído al suelo con su magia.
 
-"Sólo me preocupa que sea más de lo que podamos resolver", dijo Spike con preocupación.
+"Sólo me preocupa que sea más de lo que podamos resolver", dijo Spike, frunciendo el ceño con preocupación.
 
-Twilight no respondió y comenzó a ordenar los pergaminos por el color de su etiqueta. Cada uno de ellos era un resumen de algún asunto, problema o evento que había sido marcado como "observado" en el transcurso del año. Desafortunadamente, algunos de ellos eran del año anterior.
+Twilight no respondió y empezó a ordenar los pergaminos según el color de sus etiquetas. Cada uno, en un tamaño diferente, era un resumen de algún asunto, problema o evento que había sido marcado como "observado" durante el año.
 
-El color de los pergaminos variaba en cuatro tonos que representaban el motivo del etiquetado: verde para oportunidades, azul para fortalezas, naranja para debilidades y rojo para amenazas.
+Los pergaminos también variaban en cuatro tonos que representaban el motivo del etiquetado: verde para oportunidades, azul para fortalezas, naranja para debilidades y rojo para amenazas.
 
-Este era un ejercicio básico de administración que era necesario realizar, ya que sería el preámbulo del análisis anual que haría después de las fiestas.
+Este ejercicio básico de administración era necesario, ya que serviría como preámbulo para el análisis anual que realizaría después de las fiestas.
 
-Twilight utilizó su magia para acercar el "perchero de ideas" y sacó un juego limpio de tarjetas de anotaciones. Estaba lista para empezar con los temas verdes y terminar con los rojos.
+Twilight utilizó su magia para acercar el "perchero de ideas" y sacó un juego limpio de tarjetas de anotaciones. Estaba lista, mentalizándose para empezar con los pergaminos verdes y terminar con los rojos.
 
-"Spike, trae un poco de budín y chocolate, ¿sí?" pidió Twilight.
+"Spike, ¿puedes traerme un poco de budín y chocolate? ¡Necesitaremos un poco de combustible para esta pequeña maratón!", pidió Twilight, esbozando una sonrisa.
 
 //-------------
 
