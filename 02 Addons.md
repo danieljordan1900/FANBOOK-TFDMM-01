@@ -4,13 +4,13 @@ El texto es parte de una historia mas grande compuesta de las siguientes escenas
 
 Escenas:
 
-- Twilight en su habitacion especial.
+- Cunabula durante el dia de la purificación del sol. 
 
 [
-    -> Edita el siguiente fragmento de mi fanfic de my little pony para mejorar (la claridad) (la fluidez). 
+    -> Edita el siguiente fragmento de mi fanfic de my little pony para mejorar (la claridad) (la fluidez) (descripciones ambientales). 
     -> Corrige cualquier error gramatical o de puntuación que encuentres. Considera buen uso de los gerundios.
     -> Respeta el uso de comillas dobles "" no las reemplaces
-    -> La escena actual es parte de la descripcion: Twilight cierra su dificil dia pensando ya en mañana
+    -> La escena actual es parte de la descripcion: Cunabula durante el dia de la purificación del sol
 ]
 
 ¿Estas listo para la traduccion?
