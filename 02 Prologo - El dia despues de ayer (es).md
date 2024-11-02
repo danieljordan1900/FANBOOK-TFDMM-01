@@ -6,23 +6,39 @@ Precisamente, abarcando este último aspecto, la Gran Procesión, organizada por
 
 Además de esta gran actividad, existían otras que podían llevarse a cabo ese día, aunque su significado e importancia variaban según los grupos particulares de personas que las realizaban. Tal era el caso de la hoguera de la purificación, el salto de fe, el andar lunar, entre otros.
 
-No obstante, ajeno a toda al festividad que inundaba el aire de la tarde de ese dia. Una figura insospechada observaba todo esto desde lo alto.
+No obstante, ajeno a toda al festividad que inundaba el aire de la tarde de ese dia. Una figura insospechada observaba a lo lejos la celebracion.
 
-Posicionado, en uno de los miradores de la cima más alta de la isla, esta peculiar criatura  se encontraba observando cómo transcurría la ceremonia debajo de el.
+Posicionado, en uno de los miradores de la cima montañosa más alta de la isla, esta peculiar  y pequeña figura apenas visible se encontraba observando cómo transcurría la ceremonia debajo de el.
 
-Mitad inferior de leon, mitad superior de poni, se trataba de un 'leoponi'. Mas precisamente un joven cachorro de leoponi.
+Mitad inferior de leon, mitad superior de poni, se trataba de una criatura nativa de la isla, un 'leoponi'. 
 
-Este joven leoponi, sentado en los bordes del mirador, pasaba desapercibido de la vista de cualquiera que alzara la mirada al lugar donde estaba. El joven leoponi tenia detrás de al que se podria considerar la construccion mas importe de todo el reino.
+Mas precisamente un joven leoponi.
 
-Ahi, en la cima mas alta se alzaba el Templo Sagrado de Cunabula, que brillaba con un fulgor sobrenatural. En su interior, guardaba la magia más poderosa de la isla: la magia del árbol de la armonía. Durante aquel día, la magia protegía al templo con una bendición, haciéndolo impenetrable y aumentando el poder de todos los habitantes de la isla. El brillo del templo reflejaba la fe del pueblo en su reino y su patriotismo, y esta conexión los ocultaba y protegía de las amenazas del mundo exterior.
+Perteneciendo a una de las seis principales razas que habitaban la isla de Cunabula, los 'leoponis' eran una especie heterogenea distribuida en todos los niveles sociales del gobierno feudal dominante del reino. Sin un liderazgo claro dentro de sus propias castas, solo contaban con una ligera mayoria de miembros dentro de las fuerzas de seguridad ciudadana y el ejercito.
 
-El joven leoponi se encontraba en la cima más alta de la isla, con la mirada fija en la celebración que se llevaba a cabo debajo. Los sonidos de la fiesta se filtraban a través del viento y le resultaban molestos. El ruido contrastaba con la sensación de pesar que lo embargaba.
+No obstante, a pesar de su mirada severa y porte marcial, el joven leoponi que observaba desde mirador, no pertenecia a ninguno de estos dos grupos. 
 
-En su mente había una pregunta que lo atormentaba: ¿Cómo podían estar celebrando en medio de la crisis en la que se encontraban?
+Sino a uno mas importante. 
 
-Él era un aprendiz de la Hermandad de Caballería, el grupo de élite encargado de proteger a Cunábula de cualquier amenaza. Sin embargo, en este momento, los líderes de la Hermandad, conocidos como los 'Caballeros del Orden', no se encontraban en la isla.
+Él era un aprendiz de la Hermandad de Caballería, el grupo de élite encargado de asegurar la seguridad y prosperidad de Cunábula. Educados tanto en magia como en inteligencia, los miembros de la Hermandad de Caballería ocupaban sin excepcion los puestos mas relevantes del gobierno de la isla, llegando a obtener cargos como los de generales, consejeros reales y grandes jueces. Ser escogido para ser miembro de este grupo era considerado un gran honor en todos los niveles sociales. 
 
-Era algo inédito en los últimos mil años y como uno de los miembros más leales de la Hermandad, esto lo perturbaba profundamente.
+Y esto no podia llegar a ser menos. Ya que aquellos que fueran escogidos para ser miembros de la Hermandad de Caballería, tenian tambien la posibilidad de alcanzar el titulo mas alto dentro del reino. Ser llamado miembro de los 'Caballeros del Orden'. El maximo exponente de virtud para un miembro de cada una de las seis razas que conformaban a los habitantes de la isla.
+
+Muchos niños (e incluso adultos) soñaban con ser miembros de esta elite de la elite.
+
+Sin embargo el joven leoponi que permanecia inmovil frente al panoraba. No se encontraba soñando, tampoco se encontraba en una mision especial de los miembros de su selecto grupo.
+
+Se encontraba sinceramente preocupado.
+
+"¡¿Cómo pueden estar celebrando en medio de la crisis en la que estamos?!" gritaba en su interior el joven leoponi con una expresion amarga en el rostro.
+
+La causa de su aflixion, se hallaba a sus espaldas, mas bien aquellos que no estaban a su espalda.
+
+Ahi, en la cima mas alta se alzaba el Templo Sagrado de Cunabula, que brillaba con un fulgor sobrenatural. En su interior, se guardaba la magia más poderosa del reino: la magia del árbol de la armonía. Durante aquel día, la magia protegía al templo con una bendición, haciéndolo impenetrable y aumentando el poder de todos los habitantes de la isla. El brillo del templo reflejaba la fe del pueblo en su nacion, su patriotismo, y esta conexión alimentaba el velo magico que ocultaba y protegía a toda Cunabula del mundo exterior.
+
+Por supuesto, este lugar tan importante, no carecia de guardias. El joven leoponi y todos en el reino sabian que el templo era resguardado ese dia sagrado por los líderes de la Hermandad de Caballería. Sin embargo, en ese momento, los renombrados lideres, los 'Caballeros del Orden', no se encontraban en la isla.
+
+Era algo inédito en los últimos mil años y, el joven leoponi, como uno de los miembros más leales de la Hermandad, consideraba esto profundamente perturbador.
 
 Sin embargo, parecía que a nadie más le importaba. La celebración continuaba como si todo estuviera bien. El Gran Patriarca, líder de la Cofradía del Templo y provisionalmente también de la Hermandad de Caballería, no mencionó nada al respecto en su discurso de mediodía. El joven leoponi envió una carta solicitando refuerzos de seguridad, pero solo recibió una invitación para unirse a la Gran Procesión, junto con una recomendación de pasar el día con su familia y amigos. Por supuesto, él no aceptó esa respuesta.
 
