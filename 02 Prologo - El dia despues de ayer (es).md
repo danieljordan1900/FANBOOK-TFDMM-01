@@ -6,7 +6,15 @@ Precisamente, abarcando este último aspecto, la Gran Procesión, organizada por
 
 Además de esta gran actividad, existían otras que podían llevarse a cabo ese día, aunque su significado e importancia variaban según los grupos particulares de personas que las realizaban. Tal era el caso de la hoguera de la purificación, el salto de fe, el andar lunar, entre otros.
 
-No obstante, en medio de todo el júbilo y la celebración propios de la fecha, había un joven leoponi que se encontraba en la cima más alta de la isla, observando cómo transcurría la ceremonia. Detrás de él se alzaba el Templo Sagrado, que brillaba con un fulgor sobrenatural. En su interior, guardaba la magia más poderosa de la isla: la magia del árbol de la armonía. Durante aquel día, la magia protegía al templo con una bendición, haciéndolo impenetrable y aumentando el poder de todos los habitantes de la isla. El brillo del templo reflejaba la fe del pueblo en su reino y su patriotismo, y esta conexión los ocultaba y protegía de las amenazas del mundo exterior.
+No obstante, ajeno a toda al festividad que inundaba el aire de la tarde de ese dia. Una figura insospechada observaba todo esto desde lo alto.
+
+Posicionado, en uno de los miradores de la cima más alta de la isla, esta peculiar criatura  se encontraba observando cómo transcurría la ceremonia debajo de el.
+
+Mitad inferior de leon, mitad superior de poni, se trataba de un 'leoponi'. Mas precisamente un joven cachorro de leoponi.
+
+Este joven leoponi, sentado en los bordes del mirador, pasaba desapercibido de la vista de cualquiera que alzara la mirada al lugar donde estaba. El joven leoponi tenia detrás de al que se podria considerar la construccion mas importe de todo el reino.
+
+Ahi, en la cima mas alta se alzaba el Templo Sagrado de Cunabula, que brillaba con un fulgor sobrenatural. En su interior, guardaba la magia más poderosa de la isla: la magia del árbol de la armonía. Durante aquel día, la magia protegía al templo con una bendición, haciéndolo impenetrable y aumentando el poder de todos los habitantes de la isla. El brillo del templo reflejaba la fe del pueblo en su reino y su patriotismo, y esta conexión los ocultaba y protegía de las amenazas del mundo exterior.
 
 El joven leoponi se encontraba en la cima más alta de la isla, con la mirada fija en la celebración que se llevaba a cabo debajo. Los sonidos de la fiesta se filtraban a través del viento y le resultaban molestos. El ruido contrastaba con la sensación de pesar que lo embargaba.
 
