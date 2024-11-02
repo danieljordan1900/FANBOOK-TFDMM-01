@@ -12,7 +12,7 @@ Escenas:
     -> Edita el siguiente fragmento de mi fanfic de my little pony para mejorar (la claridad) (la fluidez) (descripciones ambientales). 
     -> Corrige cualquier error gramatical o de puntuación que encuentres. Considera buen uso de los gerundios.
     -> Respeta el uso de comillas dobles "" no las reemplaces
-    -> La escena actual es parte de la descripcion: El joven leoponi vigilante, la Hermandad de Caballería y los Caballeros del Orden.
+    -> La escena actual es parte de la descripcion: El joven leoponi angustiado, el templo y los Caballeros del Orden.
 ]
 
 ¿Estas listo para la traduccion?

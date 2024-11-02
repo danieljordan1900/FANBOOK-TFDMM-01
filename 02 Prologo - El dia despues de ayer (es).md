@@ -26,27 +26,29 @@ Y no podía ser menos, ya que aquellos escogidos para la Hermandad de Caballerí
 
 Muchos niños (e incluso adultos) soñaban con pertenecer a esta élite de la élite.
 
-Sin embargo el joven leoponi que permanecia inmovil frente al panoraba. No se encontraba soñando, tampoco se encontraba en una mision especial de los miembros de su selecto grupo.
+Sin embargo, el joven leoponi, que permanecía inmóvil frente al panorama, no estaba soñando, ni se encontraba en una misión especial de su selecto grupo.
 
-Se encontraba sinceramente preocupado.
+Estaba sinceramente preocupado.
 
-"¡¿Cómo pueden estar celebrando en medio de la crisis en la que estamos?!" gritaba en su interior el joven leoponi con una expresion amarga en el rostro.
+"¡¿Cómo pueden estar celebrando en medio de la crisis en la que estamos?!", gritaba en su interior el joven leoponi, con una amarga expresión en el rostro.
 
-La causa de su aflixion, se hallaba a sus espaldas, mas bien aquellos que no estaban a su espalda.
+La causa de su aflicción se hallaba a sus espaldas, o más bien, aquello que no estaba a sus espaldas.
 
-Ahi, en la cima mas alta se alzaba el Templo Sagrado de Cunabula, que brillaba con un fulgor sobrenatural. En su interior, se guardaba la magia más poderosa del reino: la magia del árbol de la armonía. Durante aquel día, la magia protegía al templo con una bendición, haciéndolo impenetrable y aumentando el poder de todos los habitantes de la isla. El brillo del templo reflejaba la fe del pueblo en su nacion, su patriotismo, y esta conexión alimentaba el velo magico que ocultaba y protegía a toda Cunabula del mundo exterior.
+Allí, en la cima más alta, se alzaba el Templo Sagrado de Cunábula, brillando con un fulgor sobrenatural. En su interior se guardaba la magia más poderosa del reino: la magia del árbol de la armonía. Durante aquel día, el templo estaba protegido por una bendición mágica, que lo volvía impenetrable y aumentaba el poder de todos los habitantes de la isla. Su resplandor reflejaba la fe del pueblo en su nación, su patriotismo, que a su vez, alimentaba el velo mágico que ocultaba y protegía a toda Cunábula del mundo exterior.
 
-Por supuesto, este lugar tan importante, no carecia de guardias. El joven leoponi y todos en el reino sabian que el templo era resguardado ese dia sagrado por los líderes de la Hermandad de Caballería. Sin embargo, en ese momento, los renombrados lideres, los 'Caballeros del Orden', no se encontraban en la isla.
+Por supuesto, este lugar tan importante no carecía de guardias. El joven leoponi y todos en el reino sabían que el templo era resguardado ese día sagrado por los líderes de la Hermandad de Caballería. Sin embargo, en ese momento, los renombrados líderes, los "Caballeros del Orden", no se encontraban en la isla.
 
-Era algo inédito en los últimos mil años y, el joven leoponi, como uno de los miembros más leales de la Hermandad, consideraba esto profundamente perturbador.
+Era algo inédito en los últimos mil años y, como uno de los miembros más leales de la Hermandad, el joven leoponi consideraba esto profundamente perturbador.
 
-Sin embargo, parecía que a nadie más le importaba. La celebración continuaba como si todo estuviera bien. El Gran Patriarca, líder de la Cofradía del Templo y provisionalmente también de la Hermandad de Caballería, no mencionó nada al respecto en su discurso de mediodía. El joven leoponi envió una carta solicitando refuerzos de seguridad, pero solo recibió una invitación para unirse a la Gran Procesión, junto con una recomendación de pasar el día con su familia y amigos. Por supuesto, él no aceptó esa respuesta.
+Sin embargo, parecía que a nadie más le importaba. La celebración continuaba como si todo estuviera bien. El Gran Patriarca, líder de la Cofradía del Templo y provisionalmente también de la Hermandad de Caballería, no mencionó nada al respecto en su discurso de mediodía. El joven leoponi entonces envió una carta solicitando refuerzos de seguridad, pero solo recibió una invitación para unirse a la Gran Procesión, junto con una recomendación de pasar el día con su familia y amigos. 
 
-Invitó a sus compañeros de la Hermandad de Caballería a participar en una vigilia por el reino. La vigilia incluía el ayuno de purificación, una prueba reservada solo para los más devotos, consistente en no probar bocado durante todo el día, con el propósito de purificar el espíritu e incrementar el poder mágico.
+Por supuesto, él no aceptó esa respuesta.
 
-Pero nadie acudió.
+Sin muchas mas opciones, invitó a sus compañeros de la Hermandad de Caballería a participar en una vigilia por el reino. La vigilia incluía el ayuno de purificación, una prueba reservada solo para los más devotos, consistente en no probar bocado durante todo el día, con el propósito de purificar el espíritu e incrementar el poder mágico.
 
-El joven leoponi se encontraba solo, acompañado únicamente por su incómoda soledad.
+Pero tampoco funciono, nadie habia acudido.
+
+El joven leoponi se encontraba solo, abandonado por sus compañeros, y contando únicamente con su incómoda soledad.
 
 No, en realidad algo más lo acompañaba: una cesta de frutas. Su amiga Dana, hija del actual rey y aprendiz de acolita de la Cofradía del Templo, se la había dejado antes de que comenzara la ceremonia de purificación. A pesar de la diferencia de posiciones entre ellos, se llevaban bien y habían compartido buenos momentos en la escuela de iniciados. Aunque últimamente se veían poco, ella lo conocía lo suficiente como para saber que él intentaría el ayuno y la vigilia. ¿Había dejado la cesta para poner a prueba su fe o simplemente porque pensó en él?
 
