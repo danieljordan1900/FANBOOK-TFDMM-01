@@ -1,6 +1,6 @@
-En la isla de Cunabula, aproximadamente dos horas antes del inicio del día de purificación del sol, una leoponi en armadura ligera observaba desde la cima más alta de la isla los preparativos para la "ceremonia de purificación".
+En la isla de Cunabula, aproximadamente dos horas antes del inicio del día de purificación del sol, una leoponi en armadura ligera observaba, desde la cima más alta de la isla, los preparativos para celebrar la fecha más importante del año.
 
-Se trataba de Dana de Cunabula, la hermana menor del Rey Dal y ostentaba el título de 'Primado' de la cofradía del templo. Como Primado, a ella le correspondía acompañar al Gran Patriarca durante toda la Gran Procesión, estar presente en el discurso de mediodía del Rey y dirigir el discurso de clausura, entre otras tareas.
+Se trataba de Dana de Cunabula, la hermana menor del Rey Dal y ostentaba el título de 'Primado' de la 'Cofradía del Templo'. Como Primado, a ella le correspondía acompañar al Gran Patriarca durante toda la Gran Procesión, estar presente en el discurso de mediodía del Rey y dirigir el discurso de clausura, entre otras tareas.
 
 Apesar de la sobrecarga de deberes que tenia, ninguna de estas responsabilidades le causaban desánimo, todo lo contrario, le proporcionaban un verdadero sentido de propósito y plenitud. Dana amaba su trabajo, amaba Cunabula e incluso desde que era una cachorra, había esperado siempre con una sonrisa este día especial.
 
@@ -14,11 +14,11 @@ Sin embargo, lo más crucial no era descubrir la identidad del extranjero, sino 
 
 Dana cerró los ojos y pronunció una oración por el reino. Era todo lo que podía hacer en ese momento, aferrándose aún a la débil esperanza de que todo saldría bien...
 
-"Disculpe, Primado Dana. Los preparativos para la ceremonia de bienvenida están completos", habló de pronto alguien a sus espaldas. Dana se dio la vuelta y vio a uno de sus compañeros de la cofradía del templo, inclinado en una postura de reverencia. Dana suspiró en silencio; habían interrumpido su rezo, pero no se lo tomó a mal, ya que le había ordenado antes que la informara de inmediato cuando todo estuviera listo.
+"Disculpe, Primado Dana. Los preparativos para la ceremonia de bienvenida están completos", habló de pronto alguien a sus espaldas. Dana se dio la vuelta y vio a uno de sus compañeros de la 'Cofradía del Templo', inclinado en una postura de reverencia. Dana suspiró en silencio; habían interrumpido su rezo, pero no se lo tomó a mal, ya que le había ordenado antes que la informara de inmediato cuando todo estuviera listo.
 
 "Acompáñame. Revisaré el trabajo que has preparado", respondió Dana en un tono solemne. Sin perder un segundo más, ambos se dirigieron hacia el templo.
 
-Frente al gran templo del Árbol de la Armonía, una pequeña multitud de miembros de la hermandad de caballería y de la cofradía del templo se había congregado. Los miembros de la orden de caballería se habían dividido en seis pelotones de seis integrantes cada uno, formados en tres grupos a ambos lados de la alfombra de bienvenida. Cada pelotón representaba una de las seis casas principales de Cunabula: la Casa Draco Dragon, la Casa Quetzalkan, la Casa Urutaú, la Casa Ofiotauro, la Casa Akhtubut Qirshin y, por último, la Casa Leopony. Además, había soldados regulares en el perímetro del templo y un reducido número de miembros de la cofradía del templo esperando al otro lado de la alfombra de bienvenida.
+Frente al gran templo del Árbol de la Armonía, una pequeña multitud de miembros de la 'Hermandad de Caballería' y de la 'Cofradía del Templo' se había congregado. Los miembros de la 'Hermandad de Caballería' se habían dividido en seis pelotones de seis integrantes cada uno, formados en tres grupos a ambos lados de la alfombra de bienvenida. Cada pelotón representaba una de las seis casas principales de Cunabula: la Casa Draco Dragon, la Casa Quetzalkan, la Casa Urutaú, la Casa Ofiotauro, la Casa Akhtubut Qirshin y, por último, la Casa Leopony. Además, había soldados regulares en el perímetro del templo y un reducido número de miembros de la 'Cofradía del Templo' esperando al otro lado de la alfombra de bienvenida.
 
 Dana repasó rápidamente las formaciones. En su camino, se detuvo un par de veces para evaluar la disciplina de los soldados, la limpieza del lugar, la iluminación y las decoraciones. Finalmente, ascendió los escalones más altos del templo y asintió satisfecha.
 
@@ -42,7 +42,7 @@ Dana se giró y dirigió su mirada hacia el templo. La luz que siempre emanaba d
 
 En respuesta a sus palabras, hubo una explosión de luz proveniente del templo. Este se incendió en llamas multicolores y un rayo arcoíris se disparó hacia el cielo. Pronto, todo el firmamento comenzó a titilar, revelando la cúpula invisible que cubría toda la isla.
 
-Las puertas del templo comenzaron a abrirse y Dana se inclinó en señal de respeto. Siete trompetas comenzaron a sonar sucesivamente mientras los estandartes de la hermandad de caballeros y la cofradía del templo se alzaban majestuosamente.
+Las puertas del templo comenzaron a abrirse y Dana se inclinó en señal de respeto. Siete trompetas comenzaron a sonar sucesivamente mientras los estandartes de la hermandad de caballeros y la 'Cofradía del Templo' se alzaban majestuosamente.
 
 Finalmente, las puertas del templo se abrieron por completo, revelando dos figuras que avanzaban hacia Dana. Una de ellas era el Gran Patriarca, reconocido por su autoridad y sabiduría. La otra figura, envuelta en misterio y oculta bajo una túnica negra, era el Emisario de Medianoche.
 
