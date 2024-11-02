@@ -6,25 +6,25 @@ Precisamente, abarcando este último aspecto, la Gran Procesión, organizada por
 
 Además de esta gran actividad, existían otras que podían llevarse a cabo ese día, aunque su significado e importancia variaban según los grupos particulares de personas que las realizaban. Tal era el caso de la hoguera de la purificación, el salto de fe, el andar lunar, entre otros.
 
-No obstante, ajeno a toda al festividad que inundaba el aire de la tarde de ese dia. Una figura insospechada observaba a lo lejos la celebracion.
+No obstante, ajeno a toda la festividad que inundaba el aire de la tarde de ese día, una figura insospechada observaba a lo lejos la celebración.
 
-Posicionado, en uno de los miradores de la cima montañosa más alta de la isla, esta peculiar  y pequeña figura apenas visible se encontraba observando cómo transcurría la ceremonia debajo de el.
+Posicionada en uno de los miradores de la cima montañosa más alta de la isla, esta peculiar y pequeña figura apenas visible contemplaba cómo transcurría la ceremonia debajo de él.
 
-Mitad inferior de leon, mitad superior de poni, se trataba de una criatura nativa de la isla, un 'leoponi'. 
+Mitad inferior de león, mitad superior de poni, se trataba de una criatura nativa de la isla: un “leoponi”.
 
-Mas precisamente un joven leoponi.
+Más precisamente, un joven leoponi.
 
-Perteneciendo a una de las seis principales razas que habitaban la isla de Cunabula, los 'leoponis' eran una especie heterogenea distribuida en todos los niveles sociales del gobierno feudal dominante del reino. Sin un liderazgo claro dentro de sus propias castas, solo contaban con una ligera mayoria de miembros dentro de las fuerzas de seguridad ciudadana y el ejercito.
+Pertenecientes a una de las seis principales razas que habitaban la isla de Cunábula, los “leoponis” formaban una especie heterogénea distribuida en todos los niveles sociales del gobierno feudal dominante del reino. Sin un liderazgo claro dentro de sus propias castas, contaban con una ligera mayoría de miembros dentro de las fuerzas de seguridad ciudadana y el ejército.
 
-No obstante, a pesar de su mirada severa y porte marcial, el joven leoponi que observaba desde mirador, no pertenecia a ninguno de estos dos grupos. 
+A pesar de su mirada severa y porte marcial, el joven leoponi que observaba desde el mirador no pertenecía a ninguno de estos dos grupos.
 
-Sino a uno mas importante. 
+Sino a uno más importante.
 
-Él era un aprendiz de la Hermandad de Caballería, el grupo de élite encargado de asegurar la seguridad y prosperidad de Cunábula. Educados tanto en magia como en inteligencia, los miembros de la Hermandad de Caballería ocupaban sin excepcion los puestos mas relevantes del gobierno de la isla, llegando a obtener cargos como los de generales, consejeros reales y grandes jueces. Ser escogido para ser miembro de este grupo era considerado un gran honor en todos los niveles sociales. 
+Era un aprendiz de la Hermandad de Caballería, el grupo de élite encargado de asegurar la seguridad y prosperidad de Cunábula. Educados tanto en magia como en inteligencia, los miembros de la Hermandad de Caballería ocupaban, sin excepción, los puestos más relevantes del gobierno de la isla, llegando a obtener cargos como generales, consejeros reales y grandes jueces. Ser elegido para formar parte de este grupo era considerado un gran honor en todos los niveles sociales.
 
-Y esto no podia llegar a ser menos. Ya que aquellos que fueran escogidos para ser miembros de la Hermandad de Caballería, tenian tambien la posibilidad de alcanzar el titulo mas alto dentro del reino. Ser llamado miembro de los 'Caballeros del Orden'. El maximo exponente de virtud para un miembro de cada una de las seis razas que conformaban a los habitantes de la isla.
+Y no podía ser menos, ya que aquellos escogidos para la Hermandad de Caballería también tenían la posibilidad de alcanzar el título más alto dentro del reino: ser llamados miembros de los “Caballeros del Orden”, el máximo exponente de virtud para un miembro de cada una de las seis razas que habitaban la isla.
 
-Muchos niños (e incluso adultos) soñaban con ser miembros de esta elite de la elite.
+Muchos niños (e incluso adultos) soñaban con pertenecer a esta élite de la élite.
 
 Sin embargo el joven leoponi que permanecia inmovil frente al panoraba. No se encontraba soñando, tampoco se encontraba en una mision especial de los miembros de su selecto grupo.
 
