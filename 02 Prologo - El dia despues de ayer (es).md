@@ -60,42 +60,49 @@ Rápidamente recordó las enseñanzas de su líder y maestro, el Gran Patriarca:
 
 "¡Lo juro, Dana! Cuando termine la vigilia, disfrutaré hasta la última gota del néctar de este regalo bendito", prometió el joven, bajando la cabeza en señal de resignación.
 
-De repente, el joven leoponi fue sorprendido por un aroma desconocido que llegó con una suave brisa. Algo no iba bien. Giró la cabeza hacia el camino vacío que había estado vigilando y notó a una figura encapuchada que se acercaba al templo.
+De repente, mientras el joven leoponi se perdía en sus pensamientos, un olor desconocido llegó a su nariz.
 
-"¡Alto ahí!", rugió el leoponi, alertando al desconocido.
+Algo no estaba bien.
 
-El encapuchado dio unos pasos más y se detuvo.
+Alarmado, giró la cabeza hacia el camino vacío que había estado vigilando y distinguió una figura encapuchada acercándose al templo.
 
-El leoponi lo observó rápidamente. El individuo no parecía ser hostil, pero su instinto le indicaba que no debía bajar la guardia. La sombra del extraño se proyectaba en el suelo como una espada, lo cual aumentaba la inquietud del leoponi.
+"¡Alto ahí!", rugió el leoponi, en un tono firme que resonó en el aire.
 
-"¡Muéstrese de inmediato! El ocultamiento está prohibido en este Templo Sagrado", proclamó el leoponi, procurando no faltarle el respeto a algún superior. Había tenido varios problemas en el pasado por "atacar primero" y "preguntar después". ¿De dónde había salido aquel individuo? La teletransportación y la invisibilidad también estaban prohibidas. ¿Podría tratarse de alguien importante del "concilio"?
+El encapuchado dio unos pasos más antes de detenerse.
 
-La cabeza del leoponi comenzó a doler. Ayunar definitivamente había sido una mala idea.
+El leoponi lo observó con cautela. Aunque la figura no parecía hostil, su instinto le decía que no debía bajar la guardia. Bajo el sol de la tarde, la sombra del extraño se extendía en el suelo como una espada, lo cual solo intensificaba la inquietud del leoponi.
 
-"Saludos, disculpa cachorro, pero he venido a ver al 'Gran Patriarca'. Es un conocido mío, así que ¿puedes ir a llamarlo de inmediato?", dijo una voz femenina, como la de una doncella, pero extrañamente combinada con un tono musical. Nunca había escuchado una voz así entre los miembros del "concilio" ni en ningún otro lugar del reino. Eso significaba que...
+"¡Muéstrese de inmediato! El ocultamiento está prohibido en este Templo Sagrado", proclamó el leoponi, esforzándose por mantener un tono respetuoso. Ya había tenido problemas en el pasado por “atacar primero y preguntar después”.
 
-Era un extranjero. ¡Era un enemigo! ¿¡Aquí!? ¿¡Por fin había llegado el momento de ponerse a prueba!? ¿Podría... pelear?
+Pero el encapuchado se quedó en silencio, observándolo sin responder.
 
-Exhaló profundamente, sus dudas se desvanecieron y devolvió una mirada feroz al enemigo que tenía frente a él.
+La falta de respuesta solo aumentaba la preocupación del leoponi. Su mente trabajaba frenéticamente: ¿De dónde ha salido este individuo? La teletransportación y la invisibilidad están prohibidas aquí. ¿Podría ser alguien importante del "Concilio"? Mientras continuaba analizando, una punzada de dolor en la cabeza le recordó que ayunar no había sido para nada una buena idea.
 
-"Ningún conocido del 'Gran Patriarca' vendría como un ladrón a este santuario. Tampoco se ha anunciado tu llegada. Extrajero, te doy una oportunidad. ¡Márchate y déjanos en paz!", habló el leoponi con toda la firmeza que pudo reunir, mientras se preparaba para el combate.
+Entonces, el extraño rompió el silencio.
 
-"Vaya, esto es lo que tenemos... ¿Ni siquiera preguntas por mi nombre?... Muy bien, seguiré mi camino", respondió el encapuchado con una tranquilidad que parecía un insulto. Sin inmutarse, continuó avanzando.
+"Saludos, cachorro. He venido a ver al 'Gran Patriarca'. Es un conocido mío, así que, ¿podrías llamarlo de inmediato?", dijo una voz femenina, suave y musical, aunque extrañamente encantadora. Nunca había escuchado una voz así entre los miembros del "Concilio" ni en ningún otro lugar del reino. Eso solo significaba una cosa...
+
+Era una extranjera. ¡Una enemiga! ¿Aquí? ¿Había llegado finalmente el momento de demostrar su valía? ¿Podría… pelear?
+
+Exhaló profundamente, disipando sus dudas, y le clavó una mirada feroz a la extraña.
+
+"Ningún conocido del 'Gran Patriarca' vendría aquí como un ladrón. Tampoco se ha anunciado tu llegada. Te daré una oportunidad: ¡márchate y déjanos en paz!", declaró el leoponi con toda la firmeza que pudo reunir, preparándose para el combate.
+
+"Vaya, así que esto es lo que tenemos... ¿Ni siquiera preguntas mi nombre?... Muy bien, seguiré mi camino", respondió el encapuchado con una calma que resultaba insultante. Sin inmutarse, continuó avanzando.
 
 "¡Qué arrogante... Prueba esto!", pensó el leoponi mientras lanzaba su primer ataque.
 
-Tres grandes rocas salieron disparadas desde los lados del camino. Era un movimiento imposible para alguien tan joven como él, pero gracias a la bendición del templo y al ayuno de ese día, había acumulado suficiente magia para llevarlo a cabo.
+Tres grandes rocas emergieron a los lados del camino y salieron disparadas hacia el encapuchado. Era una hazaña notable para alguien tan joven como él, pero gracias a la bendición del templo y al ayuno de ese día, había acumulado suficiente magia para realizarla.
 
-Sin embargo, ninguna roca impactó a su objetivo.
+Sin embargo, ninguna roca impactó su objetivo.
 
-En cambio, las tres rocas comenzaron a orbitar alrededor del encapuchado, quien parecía no darle importancia al ataque. Al cabo de un momento, las rocas regresaron a sus posiciones originales.
+En lugar de eso, las tres rocas comenzaron a orbitar alrededor del encapuchado, quien parecía completamente indiferente al ataque. Al cabo de un momento, las rocas regresaron a sus posiciones originales.
 
 El leoponi quedó atónito, sin poder creer lo que acababa de presenciar.
 
 "Mmm... ahora es mi turno", pronunció el encapuchado.
 
-Un repentino calor invadió el cuerpo del leoponi. Un segundo después, perdió el conocimiento.
-
+Un calor repentino invadió el cuerpo del leoponi, y un segundo después, todo se volvió oscuro.
 
 //	------------------
 
