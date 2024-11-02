@@ -104,8 +104,7 @@ El leoponi quedó atónito, sin poder creer lo que acababa de presenciar.
 
 Un calor repentino invadió el cuerpo del leoponi, y un segundo después, todo se volvió oscuro.
 
-//	------------------
-
+[---]
 
 Su cabeza le dolía. Sentía cómo su cuerpo se balanceaba en el vacío, como si alguien lo estuviera llevando. Todo era confuso. Voces resonaban cerca de él.
 
