@@ -1,7 +1,8 @@
 Promt para traducir fanfics de español a ingles
 
-[Traduce el siguiente fanfic de my little pony del español al inglés. Mantén la narrativa fluida, coherente y fiel a la voz de los personajes. Asegúrate de que el tono, la emoción y los matices originales se conserven en inglés, incluyendo expresiones idiomáticas y modismos que suenen naturales para un lector de habla inglesa. Respeta los nombres y términos específicos de la obra original y mantén el estilo informal y descriptivo propio de los fanfics. Por favor tomate tu tiempo para revisar el texto paso a paso.]
+[Traduce el siguiente fanfic de my little pony del español al inglés. Mantén la narrativa fluida, coherente y fiel a la voz de los personajes. Asegúrate de que el tono, la emoción y los matices originales se conserven en inglés, incluyendo expresiones idiomáticas y modismos que suenen naturales para un lector de habla inglesa. Respeta los nombres y términos específicos de la obra original y mantén el estilo informal y descriptivo propio de los fanfics. Por favor conserva el uso de comillas dobles "". Por favor tomate tu tiempo para revisar el texto paso a paso.]
 
+[Translate the following my little pony fanfic from English into Russian. Keep the narrative fluid, consistent, and true to the characters' voices. Ensure that the original tone, emotion and nuances are preserved in Russian, including idiomatic expressions and idioms that sound natural to a Russian-speaking reader. Respect names and terms specific to the original work and maintain the informal, descriptive style typical of fanfic. Retain the use of double quotation marks "". Please take your time to go through the text step by step.]
 
 [
     -> Edita el siguiente fragmento de mi fanfic de my little pony para mejorar (la claridad) (la fluidez) (el impacto emocional) (dialogos ingeniosos). 
