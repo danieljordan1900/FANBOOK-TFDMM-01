@@ -6,12 +6,13 @@ Escenas:
 
 - Cunabula durante el dia de la purificación del sol. 
 - El joven leoponi angustiado por la seguridad del reino.
+- El joven leoponi y sus conflictos personales.
 
 [
-    -> Edita el siguiente fragmento de mi fanfic de my little pony para mejorar (la claridad) (la fluidez) (descripciones y tiempos verbales). 
+    -> Edita el siguiente fragmento de mi fanfic de my little pony para mejorar (la claridad) (la fluidez) (conflictos y emociones). 
     -> Corrige cualquier error gramatical o de puntuación que encuentres. Considera buen uso de los gerundios.
     -> Respeta el uso de comillas dobles "" no las reemplaces
-    -> La escena actual es parte de la descripcion: El joven leoponi angustiado por la seguridad del reino.
+    -> La escena actual es parte de la descripcion: El joven leoponi y sus conflictos personales.
 ]
 
 ¿Estas listo para la traduccion?
