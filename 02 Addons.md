@@ -5,14 +5,13 @@ El texto es parte de una historia mas grande compuesta de las siguientes escenas
 Escenas:
 
 - Cunabula durante el dia de la purificación del sol. 
-- El joven leoponi vigilante, la Hermandad de Caballería y los Caballeros del Orden.
-- El joven leoponi angustiado, el templo y los Caballeros del Orden.
+- El joven leoponi angustiado por la seguridad del reino.
 
 [
-    -> Edita el siguiente fragmento de mi fanfic de my little pony para mejorar (la claridad) (la fluidez) (descripciones ambientales). 
+    -> Edita el siguiente fragmento de mi fanfic de my little pony para mejorar (la claridad) (la fluidez) (descripciones y tiempos verbales). 
     -> Corrige cualquier error gramatical o de puntuación que encuentres. Considera buen uso de los gerundios.
     -> Respeta el uso de comillas dobles "" no las reemplaces
-    -> La escena actual es parte de la descripcion: El joven leoponi angustiado, el templo y los Caballeros del Orden.
+    -> La escena actual es parte de la descripcion: El joven leoponi angustiado por la seguridad del reino.
 ]
 
 ¿Estas listo para la traduccion?

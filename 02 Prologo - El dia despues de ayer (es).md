@@ -46,7 +46,7 @@ Por supuesto, él no aceptó esa respuesta.
 
 Sin muchas mas opciones, invitó a sus compañeros de la Hermandad de Caballería a participar en una vigilia por el reino. La vigilia incluía el ayuno de purificación, una prueba reservada solo para los más devotos, consistente en no probar bocado durante todo el día, con el propósito de purificar el espíritu e incrementar el poder mágico.
 
-Pero tampoco funciono, nadie habia acudido.
+Pero eso tampoco funciono, nadie habia acudido.
 
 El joven leoponi se encontraba solo, abandonado por sus compañeros, y contando únicamente con su incómoda soledad.
 
