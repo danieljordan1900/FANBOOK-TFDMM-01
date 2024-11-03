@@ -1,6 +1,6 @@
 En la isla bendita de Cunábula, al atardecer del día de la purificación del sol, la celebración se encontraba en pleno apogeo. Esta fecha, la más importante del año, era celebrada por todos los habitantes del reino, quienes, sin importar su raza, estatus o edad, participaban en alguna o varias de las actividades que se desarrollaban durante ese día.
 
-Este antiquísimo culto, que conmemoraba el día de la purificación del sol, estaba estrechamente vinculado al solsticio de verano y representaba una demostración contundente del amor y respeto de cada individuo por su nación. También era una oportunidad única para la renovación espiritual y el reforzamiento de vínculos entre los participantes.
+Este antiquísimo culto, el día de la purificación del sol, estaba estrechamente vinculado al solsticio de verano y representaba una demostración contundente del amor y respeto de cada individuo de la isla por su nación. También era una oportunidad única para la renovación espiritual y el reforzamiento de vínculos entre los participantes de la solemne fecha.
 
 Precisamente, abarcando este último aspecto, la Gran Procesión, organizada por la Cofradía del Templo, se erguía como la actividad más destacada entre todas las que se llevaban a cabo ese día. Recorriendo toda la isla, el gran patriarca y los principales sacerdotes del templo viajaban de comarca a comarca, purificando la tierra de cualquier corrupción mágica. Acompañados también de músicos y de las multitudes de seguidores, esta maratón de fe, desde el amanecer hasta el atardecer, representaba vivamente el saludable espíritu de la nación.
 
@@ -26,7 +26,7 @@ Y no podía ser de otra forma, ya que los escogidos para la Hermandad de Caballe
 
 Muchos niños (e incluso adultos) soñaban con pertenecer a esta élite de la élite.
 
-Sin embargo, el joven leoponi, inmóvil frente al panorama, no estaba soñando, ni se encontraba en una misión especial de su selecto grupo.
+Sin embargo, el joven leoponi, inmóvil frente al panorama debajo de él, no estaba soñando, tampoco se encontraba en una misión especial de su selecto grupo, ni mucho menos disfrutando en privado del jubilo del dia.
 
 Estaba sinceramente preocupado.
 
@@ -36,29 +36,29 @@ La causa de su aflicción se hallaba a sus espaldas, o más bien, en lo que no e
 
 Allí, en la cima más alta, se alzaba el Templo Sagrado de Cunábula, que brillaba con un fulgor sobrenatural. En su interior se guardaba la magia más poderosa del reino: la magia del árbol de la armonía. Durante aquel día, el templo estaba protegido por una bendición mágica, volviéndolo impenetrable y aumentando el poder de todos los habitantes de la isla. Su resplandor reflejaba la fe del pueblo en su nación y su patriotismo, alimentando a su vez el velo mágico que ocultaba y protegía a toda Cunábula del mundo exterior.
 
-Por supuesto, este lugar tan importante no carecía de guardias. El joven leoponi y todos en el reino sabían que el templo era custodiado ese día sagrado por los líderes de la Hermandad de Caballería. Sin embargo, en ese momento, los renombrados líderes, los "Caballeros del Orden", no se encontraban en la isla.
+Por supuesto, este lugar tan importante no carecía de guardias. El joven leoponi y todos en el reino sabían que el templo era custodiado ese día sagrado por los líderes de la Hermandad de Caballería. Sin embargo, en ese momento, los renombrados líderes, los "Caballeros del Orden", no se encontraban ahí.
 
-Era algo inédito en los últimos mil años y, como uno de los miembros más leales de la Hermandad, el joven leoponi consideraba esto profundamente perturbador.
+Este era un suceso inédito en los últimos mil años y, como uno de los miembros más leales de la Hermandad, el joven leoponi consideraba esto profundamente perturbador.
 
 Aun así, parecía que a nadie más le importaba. La celebración continuaba como si todo estuviera bien. El Gran Patriarca, líder de la Cofradía del Templo y provisionalmente también de la Hermandad de Caballería, no mencionó nada al respecto en su discurso de mediodía. El joven leoponi, preocupado, envió una carta solicitando refuerzos de seguridad, pero solo recibió una invitación para unirse a la Gran Procesión, junto con una recomendación de pasar el día con su familia y amigos.
 
 Por supuesto, él no aceptó esa respuesta.
 
-Sin muchas opciones restantes, invitó a sus compañeros de la Hermandad de Caballería a participar en una vigilia por el reino. La vigilia incluía el ayuno de purificación, una prueba reservada solo para los más devotos, que consistía en no probar bocado durante todo el día, con el propósito de purificar el espíritu y aumentar el poder mágico.
+Sin muchas opciones a las que acudir, invitó a sus compañeros de la Hermandad de Caballería a participar en una vigilia por el reino. Vigilia que incluiria el ayuno de purificación, una prueba reservada solo para los más devotos, que consistía en no probar bocado durante todo el día, con el propósito de purificar el espíritu y aumentar el poder mágico.
 
-Pero eso tampoco funcionó. Nadie acudió.
+Eso tampoco funcionó. Nadie acudió.
 
 El joven leoponi se encontraba solo, abandonado por sus compañeros y acompañado únicamente por la incómoda compañía de su propia soledad.
 
 O, tal vez, no estaba tan solo: a su lado descansaba una cesta de frutas.
 
-Mirando la cesta, pensó en su amiga Dana, hija del actual rey y aprendiz acólita de la Cofradía del Templo. Ella misma había dejado la cesta antes de que comenzara la ceremonia de purificación. A pesar de la diferencia en sus posiciones, se llevaban bien y habían compartido buenos momentos en la escuela de iniciados. Aunque últimamente se veían poco, ella lo conocía lo suficiente como para saber que él intentaría el ayuno y la vigilia. ¿Había dejado la cesta para poner a prueba su fe o simplemente porque pensó en él?
+Mirando la cesta, pensó en su amiga Dana, hija del actual rey y aprendiz acólita de la Cofradía del Templo. Dana misma le había dejado la cesta antes de que comenzara la ceremonia de purificación. A pesar de la diferencia en sus posiciones, se llevaban bien y habían compartido buenos momentos en la escuela de iniciados. Aunque últimamente se veían poco, ella lo conocía lo suficiente como para saber que él intentaría el ayuno y la vigilia. Teniendo todo esto en cuenta. ¿Dana había dejado la cesta para poner a prueba su fe o simplemente porque pensó en él?
 
 El joven leoponi cerró los ojos, manteniéndose firme. No dejaría escapar ninguna lágrima. Tras un momento de sincera melancolía, volvió a mirar la cesta a sus pies. El brillo de las frutas maduras y el aroma dulce que desprendían invadían sus sentidos. Su estómago gruñó.
 
 Rápidamente recordó las enseñanzas de su líder y maestro, el Gran Patriarca: "Limpia tu mente, limpia tu espíritu de las tentaciones de este mundo". Sin embargo, su estómago continuaba rugiendo.
 
-"¡Lo juro, Dana! Cuando termine la vigilia, disfrutaré hasta la última gota del néctar de este regalo bendito", prometió el joven, bajando la cabeza en señal de resignación.
+"¡Lo juro, Dana! Cuando termine la vigilia, disfrutaré hasta la última gota del néctar de este regalo bendito", prometió el joven con fervor, bajando la cabeza en señal de resignación.
 
 De repente, mientras el joven leoponi se perdía en sus pensamientos, un olor desconocido llegó a su nariz.
 
@@ -72,11 +72,11 @@ El encapuchado dio unos pasos más antes de detenerse.
 
 El leoponi lo observó con cautela. Aunque la figura no parecía hostil, su instinto le decía que no debía bajar la guardia. Bajo el sol de la tarde, la sombra del extraño se extendía en el suelo como una espada, lo cual solo intensificaba la inquietud del leoponi.
 
-"¡Muéstrese de inmediato! El ocultamiento está prohibido en este Templo Sagrado", proclamó el leoponi, esforzándose por mantener un tono respetuoso. Ya había tenido problemas en el pasado por “atacar primero y preguntar después”.
+"¡Muéstrese de inmediato! El ocultamiento está prohibido en este Templo Sagrado", proclamó el leoponi, esforzándose por mantener un tono respetuoso. Ya había tenido problemas en el pasado con sus superiores por “atacar primero y preguntar después”.
 
 Pero el encapuchado se quedó en silencio, observándolo sin responder.
 
-La falta de respuesta solo aumentaba la preocupación del leoponi. Su mente trabajaba frenéticamente: ¿De dónde ha salido este individuo? La teletransportación y la invisibilidad están prohibidas aquí. ¿Podría ser alguien importante del "Concilio"? Mientras continuaba analizando, una punzada de dolor en la cabeza le recordó que ayunar no había sido para nada una buena idea.
+La falta de respuesta solo aumentaba la preocupación del leoponi. Su mente trabajaba frenéticamente: ¿De dónde ha salido este individuo? La teletransportación y la invisibilidad están prohibidas aquí. ¿Podría ser alguien importante del "Concilio"? Mientras continuaba analizando, una punzada de dolor en la cabeza le recordó que ayunar ese dia no había sido para nada una buena idea.
 
 Entonces, el extraño rompió el silencio.
 
@@ -84,7 +84,7 @@ Entonces, el extraño rompió el silencio.
 
 Era una extranjera. ¡Una enemiga! ¿Aquí? ¿Había llegado finalmente el momento de demostrar su valía? ¿Podría… pelear?
 
-Exhaló profundamente, disipando sus dudas, y le clavó una mirada feroz a la extraña.
+Descidido, con sus pensamientos ya en orden. Exhaló profundamente, disipando sus dudas restantes, y le clavó una mirada feroz a la extraña.
 
 "Ningún conocido del 'Gran Patriarca' vendría aquí como un ladrón. Tampoco se ha anunciado tu llegada. Te daré una oportunidad: ¡márchate y déjanos en paz!", declaró el leoponi con toda la firmeza que pudo reunir, preparándose para el combate.
 
