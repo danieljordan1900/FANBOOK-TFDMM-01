@@ -25,5 +25,6 @@ Escenas:
     ->  Respeta los nombres y términos específicos de la obra original y mantén el estilo informal y descriptivo propio de los fanfics.
     ->  Por favor respeta el uso de comillas dobles "" no las reemplaces.
     ->  Por favor tomate tu tiempo para revisar el texto paso a paso.
-    ->  Considera, si es posible, al traducir este texto las escenas antes mencionadas relacionadas a este fanfic
+    ->  Considera, si es posible, las escenas antes mencionadas relacionadas a este fanfic
+    ->  Considera, si es posible, los personajes y sus personalidades antes mencionadas relacionadas a este fanfic
 ]
