@@ -1,12 +1,14 @@
-El Tartaro, una hora antes del día del "Festival de las Dos Hermanas".
+El Tártaro, una hora antes del día del "Festival de las Dos Hermanas".
 
-Ubicado en una de las regiones más hostiles de Equestria, esta infame prisión, una bóveda subterránea de múltiples niveles y con único acceso al exterior, mantiene cautivos a los monstruos y criminales más peligrosos de todo el reino. Para cualquier poni, no era difícil imaginar el tipo de vida que le esperaría al desafortunado que cayera en ella.
+Ubicada en una de las regiones más hostiles de Equestria, esta infame prisión, el Tártaro, alberga en su interior a los monstruos y criminales más peligrosos en la historia del reino. Considerada la más importante y segura de todas las prisiones, está geológicamente formada por una vasta colección de bóvedas subterráneas, divididas en múltiples niveles y subcámaras, todas emplazadas bajo una oscura cadena montañosa de origen volcánico. Solo cuenta con un acceso al exterior: una enorme puerta doble de metal, sellada con magia, que actúa como una barrera infranqueable para mantener cautivos a sus prisioneros.
 
-Una vida de encierro claustrofóbico, acompañada de una soledad que devoraba el alma más rápido que la misma hambre al cuerpo. Un día a día que parecía repetirse eternamente, rodeado de oscuridad. El prisionero solo podía soñar con despertar algún día de aquella pesadilla.
+Escapar de allí es considerado imposible, y para cualquier poni con suficiente sentido común no resultaba difícil imaginar el tipo de vida sombría que le esperaría al desdichado que terminara en ese lugar.
 
-Si, todo este sufrimiento era de conocimiento común entre los ponis. Pero en ese momento, en un lugar escondido del Tartaro, otro tipo de sufrimiento estaba desarrollándose.
+Una vida de encierro claustrofóbico, acompañada de una soledad que devoraba el alma más rápido que el hambre al cuerpo. Un día a día que parecía repetirse eternamente, rodeado de oscuridad. El prisionero solo podía soñar con despertar algún día de aquella pesadilla.
 
-Balor de Cunabula, miembro de los Caballeros del Orden y portadora del elemento de la Magia. Se encontraba soportando una incómoda e inusual 'tortura'.
+Sí, todos los ponis compartían esta opinion. Sin embargo, en ese preciso momento, en un rincón oculto de la prisión, otro tipo de sufrimiento, insospechado por todos, estaba ocurriendo.
+
+Balor de Cunabula, miembro de los Caballeros del Orden y portadora del elemento de la Magia, supuesta prisionera del Tártaro, soportaba una incómoda e inusual “tortura”.
 
 " ... créeme querida, te imaginaras el escándalo que causo Morron cuando se enteró que Raimi ya me había propuesto matrimonio ese mismo día. Claro que YO no había aceptado su propuesta y tenía que habérselo dicho. Pero verlo con las plumas al rojo vivo, fue todo un DELEITE."
 
@@ -18,7 +20,7 @@ Las risas llenaron la habitación.
 
 Esta era una habitación que no debería existir en aquel lugar. Tenía velas aromáticas colgando del techo como candelabros. En las paredes se mostraban hermosos relieves coloridos que se asemejaban a las olas del mar. Tres estanques de agua estaban espaciados irregularmente en el piso con escalones de piedra para facilitar el acceso. Incluso había un tobogán que conducía a la piscina más grande.
 
-Todo el lugar tenía la apariencia de ser una casa de lujo SPA. Y de hecho fue construido con este objetivo.
+Todo el lugar tenía la apariencia de ser una casa de lujo SPA. Y de hecho habia sido construido con este objetivo.
 
 Morrigan y Ceridwen se encontraban charlando en el estanque más grande. Habían comenzado su baño hacía menos de una hora. Pero para Balor, que se encontraba en el estanque más pequeño, le habían parecido días de charla insulsa. Momentos como este hacían que la Draco Dragon lamentara haber tenido que liberar a sus compañeros. Por supuesto esta era una queja infantil y no podía compartirla con nadie más. Sin embargo, ella realmente deseaba que ese par de aves chismosas terminaran ya su baño y se fueran. 
 
@@ -68,11 +70,11 @@ Ceridwen se rio del sarcasmo de su amiga.
 
 "TU... necesitas que te enseñe el verdadero poder de mi gente." Dijo Morrigan con ardiente ira, en un momento un aura negra envolvía sus alas y sus ojos se inundaban con una lechosa negrura.
 
-"Bien. Aprender algo nuevo nunca me ha molestado." Dijo Balor desafiante, poniéndose de pie en la piscina en una posición de combate.
+"Bien. Aprender algo nuevo nunca me ha molestado." Dijo Balor desafiante, poniéndose de pie en la piscina extendiendo sus brazos palmeados en una posición de combate.
 
 El tranquilo SPA se llenó de tensión en un instante.
 
-"BASTA" Ceridwen se interpuso entre ambas con una larga barra de plata que hizo aparecer con su magia. "No debemos pelear entre nosotras. Morrigan, Balor. Pueden parar este desagradable malentendido y disculparse."
+"BASTA" exclamo Ceridwen interponiendose entre ambas con una larga barra de plata que hizo aparecer con su magia. "No debemos pelear entre nosotras. Morrigan, Balor. Pueden parar este desagradable malentendido y disculparse."
 
 Ambas se miraron por un breve momento.
 
@@ -86,7 +88,7 @@ Volvieron a sus posiciones anteriores y continuaron con sus respectivos baños. 
 
 "Perdona. ¿Qué dijiste?" Pregunto una sorprendida Morrigan que se encontraba revisando sus plumas.
 
-"Dije que lo siento." Se repitió Balor desde abajo sin moverse.
+"Dije que lo siento." Se repitió Balor desde abajo, sin levantar la mirada, ni moverse.
 
 "Yo ... bueno. Lo acepto." Morrigan miro nerviosa a Ceridwen. Esta última parecía más sorprendida que ella.
 
@@ -132,7 +134,7 @@ Nadie sabía de dónde provenía el Gran Patriarca... tampoco su raza.
 
 Dejando a un lado este enigma, las palabras de Balor encerraban otro.
 
-El Árbol del Principio era una entidad ancestral cuyo saber se encontraba más en el reino del conocimiento perdido que en el del mito. A todo esto, la sabiduría de las 'Harmony Graces' se encontraba en una situación aún peor; muy pocos eran conscientes de su existencia. Esto se debía a la enorme cantidad de tiempo que había pasado desde la última vez que se mencionaron o vieron en el mundo.
+El Árbol del Principio era una entidad ancestral cuyo saber se encontraba más en el reino del conocimiento perdido que en el del mito. A todo esto, el entendimiento de las 'Harmony Graces' se encontraba en una situación aún peor; muy pocos eran conscientes de su existencia. Esto se debía a la enorme cantidad de tiempo que había pasado desde la última vez que se mencionaron o vieron en el mundo.
 
 En ese caso, ¿podría ser el Gran Patriarca poseedor de uno de estos objetos divinos?
 
@@ -150,7 +152,7 @@ Ceridwen y Morrigan abrieron el pico como un par de polluelos hambrientos. Para 
 
 Balor solo se encogió de hombros con indiferencia.
 
-"Entonces es verdad." Morrigan parecía ya haberse calmado. "la vara que siempre porta en los rituales de purificación debe ser uno de estos objetos."
+"Entonces es verdad." mumuro Morrigan mas calmada. "la vara que siempre porta en los rituales de purificación debe ser uno de esos objetos."
 
 "Si, así es querida Morrigan. Aquella es la Vara de la Justicia, es la primera de las 'Harmony Graces' que fueron forjadas milenios atrás." dijo Balor poniéndose de pie con una mirada penetrante. "Entonces mis buenas amigas, ¿Esta revelación podría quedarse entre nosotras?"
 
@@ -168,11 +170,11 @@ Eran conducidos por un joven poni de aspecto inusual. Tenía un pelaje blanco gr
 
 Se detuvieron a unos pasos de distancia.
 
-"Escudero Badwhiz se presenta. Traigo los 'materiales' que solicitaron Lady Ceridwen y Lady Morrigan. También un mensaje del Señor Feudal para usted Lord Balor." dijo Badwhiz haciendo una reverencia. Inmediatamente los cuatro corceles colocaron las cajas en el suelo y las abrieron para revelar su contenido.
+"Escudero Badwhiz se presenta. Traigo los 'materiales' que solicitaron Lady Ceridwen y Lady Morrigan. También un mensaje del Señor Feudal para usted Lord Balor." dijo el poni haciendo una reverencia. Inmediatamente los cuatro corceles colocaron las cajas en el suelo y las abrieron para revelar su contenido.
 
 Los 'materiales' eran principalmente artículos de higiene personal entre otros.
 
-Ceridwen y Morrigan miraron molestos a los ponis. Pero antes de que pudieran decir algo. Balor avanzó.
+Ceridwen y Morrigan miraron molestas a los recien llegados. Pero antes de que pudieran decir algo. Balor avanzó.
 
 "Vaya, debo imaginar que el señor feudal requiere de mi presencia inmediata en sus aposentos. ¿No es asi?"
 
@@ -190,7 +192,7 @@ Balor suspiro.
 
 "Dejémoslo así, terminen su baño y no se preocupen. Solo es un reporte." respondio Balor que al instante se colocó la falda tradicional de su gente y partió seguida por el joven poni.
 
--------------------------------------------------------
+[---]
 
 En la habitación SPA, que ahora estaba en silencio, se podía sentir un aura de inquietud.
 
@@ -206,7 +208,7 @@ Lo que percibió fue duda y miedo.
 
 Unos momentos después de que se fueran, una luz dorada llenó el recinto.
 
--------------------------------------------------------
+[---]
 
 Balor y Badwhiz avanzaron en línea recta por un amplio pasaje de roca. De vez en cuando, pasaban por alguna puerta o escalera que conducía a niveles inferiores del complejo subterráneo en el que se habían refugiado. La totalidad de la infraestructura había sido construida por los caballeros del orden poco después de haberse liberado de su encierro. Posteriormente, Balor había hecho ampliaciones para almacenar prisioneros y materiales para sus experimentos.
 
