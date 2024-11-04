@@ -1,10 +1,10 @@
 El Tartaro, una hora antes del día del "Festival de las Dos Hermanas".
 
-Ubicado en una de las regiones más hostiles de Equestria. Esta infame prisión mantiene cautivos a los monstruos y criminales más peligrosos de todo el reino. Para cualquier poni, no era difícil imaginar la clase de vida que le esperaría al desafortunado que cayera en ella.
+Ubicado en una de las regiones más hostiles de Equestria, esta infame prisión, una bóveda subterránea de múltiples niveles y con único acceso al exterior, mantiene cautivos a los monstruos y criminales más peligrosos de todo el reino. Para cualquier poni, no era difícil imaginar el tipo de vida que le esperaría al desafortunado que cayera en ella.
 
-Una vida de encierro claustrofóbico. Acompañado de una soledad que devoraba el alma más rápido que la misma hambre al cuerpo. Un día a día que parecía repetirse eternamente rodeado de oscuridad. El prisionero solo podía soñar en despertar algún día de aquella pesadilla. 
+Una vida de encierro claustrofóbico, acompañada de una soledad que devoraba el alma más rápido que la misma hambre al cuerpo. Un día a día que parecía repetirse eternamente, rodeado de oscuridad. El prisionero solo podía soñar con despertar algún día de aquella pesadilla.
 
-Si, todo este sufrimiento era de conocimiento común entre los ponis. Pero, en un lugar escondido del Tartaro, otro tipo de sufrimiento estaba desarrollándose.
+Si, todo este sufrimiento era de conocimiento común entre los ponis. Pero en ese momento, en un lugar escondido del Tartaro, otro tipo de sufrimiento estaba desarrollándose.
 
 Balor de Cunabula, miembro de los Caballeros del Orden y portadora del elemento de la Magia. Se encontraba soportando una incómoda e inusual 'tortura'.
 
