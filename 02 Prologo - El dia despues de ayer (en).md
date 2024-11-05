@@ -100,7 +100,7 @@ Instead, the three rocks began to orbit around the hooded figure, who seemed utt
 
 The leopony stood in shock, unable to believe what he had just witnessed.
 
-“Mmm... now it’s my turn,” the hooded figure announced.
+“Uhmm... now it’s my turn,” the hooded figure announced.
 
 A sudden heat spread through the leopony’s body, and a second later, everything went dark.
 

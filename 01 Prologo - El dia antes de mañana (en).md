@@ -56,7 +56,7 @@ Twilight’s curiosity was piqued when she saw the eye-catching book her relaxed
 
 “What are you reading, Spike?” she asked with interest.
 
-“Mm, it’s the latest A.K. Yearling book, Daring Do and the Unfinished Journeys.”
+“Uhmm, it’s the latest A.K. Yearling book, Daring Do and the Unfinished Journeys.”
 
 Twilight immediately bit her lip. After a long wait, author A.K. Yearling had released a new Daring Do book earlier that week.
 

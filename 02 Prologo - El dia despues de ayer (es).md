@@ -100,7 +100,7 @@ En lugar de eso, las tres rocas comenzaron a orbitar alrededor del encapuchado, 
 
 El leoponi quedó atónito, sin poder creer lo que acababa de presenciar.
 
-"Mmm... ahora es mi turno", pronunció el encapuchado.
+"Uhmm... ahora es mi turno", pronunció el encapuchado.
 
 Un calor repentino invadió el cuerpo del leoponi, y un segundo después, todo se volvió oscuro.
 

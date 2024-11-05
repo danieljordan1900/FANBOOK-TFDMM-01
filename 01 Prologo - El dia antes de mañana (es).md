@@ -56,7 +56,7 @@ La curiosidad de Twilight se despertó al ver el llamativo libro que estaba leye
 
 "¿Qué estás leyendo, Spike?" preguntó con interés.
 
-"Mmm, es el último libro de A.K. Yearling, 'Daring Do y los Viajes Inconclusos'."
+"Uhmm, es el último libro de A.K. Yearling, 'Daring Do y los Viajes Inconclusos'."
 
 Twilight se mordió el labio de inmediato. Tras una larga espera, la escritora A.K. Yearling había lanzado un nuevo libro de Daring Do a principios de esa semana.
 
