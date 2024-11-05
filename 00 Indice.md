@@ -1,10 +1,15 @@
+# Informacion e Índice del Fanfic
 
-* Titulo: Twilight frente a la oscura marcha marcial
+=== Sección 1: Informacion ===
+
+* Titulo del fanfic: Twilight frente a la oscura marcha marcial
 * Idioma: Español
 * Genero: Aventura
+* Type: Fanfic 
+* Fandom: MyLittlePony 
+* Descripcion: El destino de Equestria depende una vez más de las mane 6. Twilight se ve envuelta en una nueva y abrupta aventura, que la llevará a resolver situaciones caóticas con sus amigos y aliados inesperados.
 
-Indice
-------
+=== Sección 2: Indice ===
 
 * Prologo - El dia antes de mañana (archivo: 01 Prologo - El dia antes de mañana (es).md)
 * Prologo - El dia despues de ayer (archivo: 02 Prologo - El dia despues de ayer (es).md)

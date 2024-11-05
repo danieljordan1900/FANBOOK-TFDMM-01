@@ -193,3 +193,184 @@ Balor sighed.
 "Let’s leave it at that. Finish your bath and don’t worry. It’s just a report," Balor replied, immediately putting on the traditional skirt of her people and leaving, followed by the young pony.
 
 [---]
+
+In the SPA room, which was now silent, an aura of unease could be felt.
+
+"What do you think he's hiding from us?" Morrigan asked, looking at a thoughtful Ceridwen.
+
+"I'm not sure, but it's not just about Danu." Ceridwen knew Balor much better than the others. In the past, she, Balor, and Taranis had carried out almost all of the missions outside. Throughout those missions, they had come to bond and know each other more deeply. Despite her sarcastic personality, Balor was the highest-level sorceress in the entire kingdom, very clever and unflappable during the most difficult moments of battle. However, that was not what Ceridwen had perceived in her today.
+
+What she perceived was doubt and fear.
+
+"I think we should perform the Purification Fast. What do you think?" Ceridwen suggested.
+
+"Fine by me. I just hope it's worth it," Morrigan replied, ordering the steeds that had been fanning her to leave the room.
+
+A few moments after they left, a golden light filled the room.
+
+[---]
+
+Balor and Badwhiz moved in a straight line through a wide rock passage. Every now and then, they passed by a door or staircase leading to lower levels of the underground complex where they had taken refuge. The entire infrastructure had been built by the Knights of the Order shortly after they freed themselves from their confinement. Later, Balor had made expansions to store prisoners and materials for her experiments.
+
+As she got lost in her thoughts, recalling the use of the rooms on her way, Balor noticed the silence around them.
+
+"That 'boy's' stealth is improving," Balor thought, without looking back.
+
+The 'boy' following her in silence, despite his unusual appearance, was actually a land pony so committed to their cause that even Balor and Morrigan occasionally referred to him as "Mini Danu."
+
+Suddenly, Balor asked, "Tell me, boy, how are the 'decoys' doing?"
+
+"No significant changes since my last report," Badwhiz replied. "Today at sunset, there was a rotation of Equestrian soldiers that was delayed by 15 minutes and 20 seconds, but nothing else relevant happened."
+
+Balor was intrigued. She wasn't sure which was more surprising: the fact that the pony princess still hadn't noticed the fake copies occupying the cells where they should be prisoners or that, among all the ponies in that kingdom, there was someone as fanatical as Badwhiz.
+
+The dragon tilted her head. It was better not to dwell too much on it. There were more important matters to think about, like: "What do you think of the improvements to the armor?"
+
+"It's amazing, Lord Balor!" Badwhiz's eyes shone with excitement. "Now it's really light; it doesn't tire me when I wear it, and it responds immediately to my movements." Badwhiz stretched his metallic wings a little on his back. The movement looked so natural it gave the impression of real Pegasus wings. The control Badwhiz had over them was evident.
+
+"Good, good... but what about the magic?"
+
+"Well... I've been practicing the spells you gave me," Badwhiz stammered a bit. "So far, I've been able to levitate objects and cast healing spells. I still haven't mastered the defense and attack spells... they're difficult... But I'm sure that in a few months I'll have the ability to perform them!" Badwhiz exclaimed, full of confidence.
+
+Balor hid her emotions behind this last statement.
+
+The Alicorn armor she had created with her companions turned out to be more impressive than she had imagined. Originally, it had been given to Badwhiz as a reward for his loyalty. Its true purpose, however, was to keep an eye on him. At that moment, the armor didn't have any magical components; it was simply armor. It was Taranis who suggested that Badwhiz would be more useful if he had the ability to fly or do something else. After a brief discussion among them, and Danu's dismissive agreement, they decided to give him other accessories, like the wings and horn.
+
+Balor herself, however, suggested that they shouldn't create enchanted accessories. Instead, they should make artifacts that would harness the magic of the land pony. This was all part of a low-priority experiment she hadn't carried out yet. Balor didn't believe it would work. Her studies on pony magic showed that the magic of land ponies wasn't compatible with magic from other races of ponies.
+
+However, the reality was different.
+
+Badwhiz had not only learned to fly after an intensive course with Taranis, but he had also started learning magic. Of course, these newly acquired skills were nowhere near those of a true Pegasus or Unicorn. Still, it was remarkable that he had managed to do so in such a short time.
+
+Why did the magic of a land pony work in that armor? Was it the materials she had used that made the difference? Was Badwhiz special, or did all land ponies have that trait? Could any pony acquire a trait from another race? Did the pony princesses know about this and were hiding it? Could Dana have that trait as well?
+
+Balor's mind was filled with all the questions that had arisen from her unexpectedly successful experiment.
+
+"Lord Balor? Are you alright?" The young pony was looking at her.
+
+"No, it's nothing, kid," Balor awkwardly snapped out of her thoughts. "Did something happen?"
+
+"Well, yes. We've arrived, Lord Balor," the confused pony replied.
+
+Before them stood a majestic double stone door. On its surface, the distinctive crest of Cunabula gleamed, engraved in silver. There was no sign of a lock, bolt, or handle to open it. It was evident that this was a magical door, accessible only to those belonging to the exclusive group of knights of the order.
+
+Balor sighed inwardly.
+
+She had been mentally preparing for this moment all day. She just needed Danu to listen to her. Just for a moment, and then she could tell her about...
+
+"Page Badwhiz, I know you already know this, but I'll remind you again. Refrain from speaking. Just follow the instructions I give you. Try not to address the lord unless you're ordered to. Do you understand?"
+
+"Yes, Lord Balor," Badwhiz responded with complete seriousness.
+
+"Good. Let's move on," Balor told herself, repeating the words to boost her confidence. She raised her right claw and cast the spell that opened the door.
+
+The doors creaked like broken bones as they opened. From them emanated vapors mixed with a sulfuric and metallic scent.
+
+The room that lay before them resembled the stomach of a beast.
+
+The doors fully opened, and Balor entered, followed by her loyal Badwhiz.
+
+The spacious vaulted room they had entered rivaled the size of a stable, and at its center was a small waterfall that formed a lagoon. The ceiling was made of stalagmites that emitted a strong amber phosphorescent glow, flooding the entire room with a magical light. In contrast, the floor was completely black and smooth, created with spells to provide comfort to the guests. Only the lagoon in the center broke the oppressive glow of the room, as its own white luminescence shone from the water’s surface, creating the illusion of a fountain full of light.
+
+Balor quickly studied the place. In the heavy atmosphere, there were two bodies at either end of the room, and someone else who seemed to be watching the lake.
+
+She already knew who they were. She walked a certain distance toward the lake and stopped.
+
+"Greetings, lord of the land. Balor, your servant, presents himself in the company of Page Badwhiz."
+
+Danu did not respond. Yes, it was Danu. Her disheveled mane and the wounds on her body were the living image of her current state of mind. They contrasted sharply with the proud image she had shown before leaving Cunabula. Her defeat at the hands of the pony princess had affected her more than her companions had imagined. So much so that she had developed a hatred for the princess and for ponies in general.
+
+Balor understood this part well. She mentally ordered Badwhiz to take the bodies of Taranis and Mannah and bring them to the infirmary to treat their wounds.
+
+Badwhiz obeyed, and with the magic of his horn and a tremendous effort, he left the room, carrying the battered bodies of both knights with him.
+
+The doors closed, and Balor felt the atmosphere lighten.
+
+"You’re giving that pony too many liberties."
+
+"That's right, boss, but it's the most effective method to strengthen his loyalty to us." Balor responded to Danu in a more casual tone. "After all, he will be an important agent who will keep Equestria under our control in the future."
+
+"I’ll decide his importance... What are the other two doing?"
+
+"Morrigan and Ceridwen are enjoying a purifying bath while discussing their noble personas." Balor didn’t hide the sarcasm in her voice.
+
+Danu clicked her tongue.
+
+"Do you think they will betray me?"
+
+"It's unlikely. The day of our revenge is almost here. We are all ready for that moment."
+
+"Everyone? You mean you already have the spell that will destroy the princess and her allies?" Danu spoke to Balor sideways.
+
+"Yes, that's right." Balor replied, inclining herself slightly with a small smile.
+
+Danu also smiled, but it was a wicked smile. Her gaze seemed lost somewhere dark in the room.
+
+Balor noticed the change in her mood. It was dangerous. But this was her best chance.
+
+"My lord feudal, I would like to insist on the proposal I made earlier. Acting tomorrow would give us the opportunity to..."
+
+"ENOUGH! Were my orders not clear to you? WE WILL NOT ATTACK ON A SACRED DAY!" The outburst of rage echoed through the room. Danu was now standing in front of her. She almost seemed like she would attack immediately.
+
+"BUT! MY LORD FEUDAL..." Balor looked directly at her.
+
+"ENOUGH, BALOR! DO YOU ALSO PLAN TO RENOUNCE YOUR PRINCIPLES?" Danu roared.
+
+Balor didn’t respond immediately. But before Danu could continue, she bowed.
+
+"I offer my sincerest apologies, my lord feudal, I went too far, I shouldn’t have insisted on my selfish proposal." Balor replied, with a slight tremor in her wings and tail.
+
+Danu studied her closely, as if measuring the sincerity of her words. Finally, she said:
+
+"I accept your apology. Of the five of us, you have the best understanding of our delicate situation. But don’t think for a moment that your understanding is above mine. Do I make myself clear?" Danu relaxed her stance, but the violence still lingered in her words.
+
+"I am grateful, my lord feudal." A remorseful Balor responded without lifting her head.
+
+"Mph," Danu snorted. She turned her back and slowly entered the lake. Vapors filled the room as the 'leoponi' submerged her body in the water.
+
+After a few minutes, the vapors dissipated, and with them, the tension that had filled the room. The only sound that could be heard was the murmur of the water falling from the small waterfall in the center of the lake.
+
+Suddenly, Danu emerged beneath the waterfall and approached Balor once more.
+
+"Now tell me. How is Cunabula?"
+
+[---]
+
+The clock was almost striking midnight. Reclining on a comfortable, fluffy sofa, Balor reflected on the events of the day in a room dimly lit by the soft glow of candles.
+
+Earlier that morning, she had received a letter from one of her servants in Cunabula, informing her of the unexpected arrival of the Midnight Emissary to the kingdom.
+
+In the afternoon, she had received a report confirming that all the bearers of the Elements of Harmony from the allied nations of Equestria would be attending tomorrow's celebration, something that hadn't happened since her team's defeat.
+
+That evening, she had apologized to Morrigan for the first time in her life.
+
+Finally, she had betrayed Danu by not informing her of what had happened in Cunabula.
+
+She paused her thoughts and asked herself: What will happen next?
+
+One idea after another appeared and disappeared in her mind. Possible scenarios, decisions, and consequences. One after another, until they all led to an inescapable, singular end.
+
+Balor stared at the last mental image that resulted. She hit the sofa so hard that part of its foam broke.
+
+It was the same as the previous ones. She clenched her claws and clicked her tongue. The image faded away.
+
+It was the worst possible outcome, and soon she would live to see it.
+
+Balor had never fully committed to her missions. She had always found some clever or practical solution that brought her success. However, since the defeat against the ponies, a feeling of unease and danger had begun to grow in her mind. How could one solve an unsolvable problem? Balor now faced that dreadful scenario.
+
+She stood up and began to float in the air, assuming a meditation posture.
+
+Once again, she cleared her mind and let go of her fears. But this time, she focused on her family, her home, and her loved ones.
+
+Soon, the image of her sisters Bala and Bila appeared, burning one of their study books. They were young and enjoyed the favor of their parents. Unlike her, they had no aptitude for magic, so they focused only on singing and dancing. Now they were very popular, despite their youth. Although draco dragons weren’t actually dragons. If they took care of themselves, they could have a long life of success, living around 200 years at most.
+
+Balor smiled as she watched her sisters, but suddenly the vision darkened with a terrible thought: would they survive long enough to witness the war that loomed in the future?
+
+She opened her eyes and recalled with annoyance the words the pony princess had said to Ceridwen after their defeat. “There are more important things than home!” she had boldly lectured.
+
+Balor descended to the ground, her gaze filled with great determination. “I won’t let that future happen, I won’t allow it, even if it costs me my own life!” she exclaimed firmly. She had made a decision, and there was no turning back. The plan of Danu and the mission she had been given no longer mattered; everything now boiled down to ensuring the future of her country and, by extension, everyone she loved.
+
+"First, we have to gather everyone. They might not take the truth well, but it’s the path we must follow," she said to herself.
+
+Balor left her room and sent a message to Badwhiz.
+
