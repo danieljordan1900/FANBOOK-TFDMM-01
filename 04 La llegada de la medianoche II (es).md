@@ -6,7 +6,7 @@ Escapar de allí es considerado imposible, y para cualquier poni con suficiente 
 
 Una vida de encierro claustrofóbico, acompañada de una soledad que devoraba el alma más rápido que el hambre al cuerpo. Un día a día que parecía repetirse eternamente, rodeado de oscuridad. El prisionero solo podía soñar con despertar algún día de aquella pesadilla.
 
-Sí, todos los ponis compartían esta opinion. Sin embargo, en ese preciso momento, en un rincón oculto de la prisión, otro tipo de sufrimiento, insospechado por todos, estaba ocurriendo.
+Sin duda, todos los ponis compartían esta opinion. Sin embargo, en ese preciso momento, en un rincón oculto de la prisión, otro tipo de sufrimiento, insospechado por todos, estaba ocurriendo.
 
 Balor de Cunabula, miembro de los Caballeros del Orden y portadora del elemento de la Magia, supuesta prisionera del Tártaro, soportaba una incómoda e inusual “tortura”.
 
@@ -334,7 +334,7 @@ De repente, Danu emergió debajo de la catarata y se dirigió nuevamente a Balor
 
 "Ahora dime. ¿Como esta Cunabula?"
 
--------------------------- 
+[---]
 
 El reloj casi marcaba la medianoche. Recostada en un cómodo sofá muy esponjoso, Balor recordaba los sucesos del día en una habitación iluminada por la tenue luz de las velas.
 
