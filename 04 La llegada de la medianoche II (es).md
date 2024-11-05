@@ -26,11 +26,11 @@ Morrigan y Ceridwen se encontraban charlando en el estanque más grande. Habían
 
 Sumergida hasta la nariz por el agua. Balor esperaría lo necesario para poder continuar con su baño de purificación.
 
-"... bueno al final mi padre termino por rechazar a mis pretendientes. Eso me ahorro tener que hacerlo por mí misma. Aunque siendo honesta me sentí mal por Morron" dijo Morrigan mientras se disponía a tomar uvas de una canasta.
+"... bueno al final mi padre termino por rechazar a mis pretendientes. Eso me ahorro tener que hacerlo por mí misma. Aunque me sentí mal por Morron" dijo Morrigan mientras se disponía a tomar uvas de una canasta.
 
 "¿De veras?" respondió inquisitiva Ceridwen que había terminado de pulir las escamas de su cola.
 
-"Mmm ... No" 
+"Uhmm ... No" 
 
 Mas risas llenaron la habitación. Ceridwen noto como su compañera Draco Dragon hacia burbujas en su estanque.
 
