@@ -2,12 +2,14 @@
 
 === Sección 1: Informacion ===
 
-* Titulo del fanfic: Twilight frente a la oscura marcha marcial
+* Titulo del fanfic: Estacion de media noche
 * Idioma: Español
 * Genero: Aventura
 * Type: Fanfic 
 * Fandom: MyLittlePony 
 * Descripcion: El destino de Equestria depende una vez más de las mane 6. Twilight se ve envuelta en una nueva y abrupta aventura, que la llevará a resolver situaciones caóticas con sus amigos y aliados inesperados.
+
+Este fanfic es la primera parte de una obra mas grande llamada: "Twilight frente a la oscura marcha marcial"
 
 === Sección 2: Indice ===
 
