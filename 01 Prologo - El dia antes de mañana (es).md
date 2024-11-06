@@ -116,7 +116,7 @@ Twilight se dejó caer boca arriba en el sofá. Que la situación permaneciera i
 
 "Uhmm..." meditó Spike, adoptando una postura reflexiva, aunque en realidad estaba preparado para esa pregunta. "Tal vez no son muy populares en su hogar y, al encerrarlos, les hicimos un favor a su gente."
 
-"¿De verdad crees eso?" respondió Twilight sin voltear hacia su asistente. "Recuerdo bien mi primer encuentro con Danu y sus compañeros. No parecían tiranos imprudentes, sino más bien individuos conservadores, demasiado comprometidos con su causa..."
+"De verdad crees eso Spike..." respondió Twilight en un tono serio sin voltear hacia su asistente. "Recuerdo bien mi primer encuentro con Danu y sus compañeros. No parecían tiranos imprudentes, sino más bien individuos conservadores, demasiado comprometidos con su causa..."
 
 Twilight cerró los ojos, reflexionando. Quizás les estaba dando demasiado crédito, pero muchas de las palabras de Danu le hacían pensar que solo había visto una faceta de su oponente. Que él mismo hubiera iniciado la conversación en su primer encuentro reforzaba esa idea.
 
@@ -140,7 +140,7 @@ Lo más irresponsable sería simplemente dejarlos ir, aunque...
 
 "¿Y si simplemente los dejamos ir?" sugirió Spike en tono de broma, intentando aliviar la tensión.
 
-Twilight lo miró, claramente molesta. "¿De verdad piensas eso?"
+Twilight lo miró, claramente molesta. Su ceño fruncido decía más que cualquier palabra, y fue suficiente para que su pequeño dragón asistente retrocediera.
 
 Spike levantó las garras, nervioso. "Bueno... solo digo que, si todo esto es demasiado para nosotros, tal vez dejarlos ir no haría una gran diferencia..."
 

@@ -116,7 +116,7 @@ Twilight let herself fall onto the sofa, staring up at the ceiling. For a leader
 
 “Uhmm…” Spike pondered, adopting a thoughtful pose, though he was actually prepared for the question. “Maybe they aren’t very popular at home, and by locking them up, we did their people a favor.”
 
-“Do you really believe that?” Twilight replied without turning toward her assistant. “I remember my first encounter with Danu and his companions well. They didn’t seem like reckless tyrants, but rather conservative individuals, overly committed to their cause…”
+"Do you really think so, Spike..." Twilight replied without turning toward her assistant. “I remember my first encounter with Danu and his companions well. They didn’t seem like reckless tyrants, but rather conservative individuals, overly committed to their cause…”
 
 Twilight closed her eyes, reflecting. Maybe she was giving them too much credit, but many of Danu’s words made her think she had only seen one side of her opponent. The fact that he had initiated the conversation during their first encounter only reinforced that idea.
 
@@ -140,7 +140,7 @@ The most irresponsible thing would be to just let them go, though…
 
 “What if we just let them go?” Spike suggested jokingly, trying to ease the tension.
 
-Twilight looked at him, clearly annoyed. “Do you actually believe that?”
+Twilight looked at him, clearly annoyed. Her frown said more than any words could, and it was enough to make her little dragon assistant step back.
 
 Spike raised his claws, a bit nervous. “Well… I’m just saying, if all this is too much for us, maybe letting them go wouldn’t make a huge difference…”
 
