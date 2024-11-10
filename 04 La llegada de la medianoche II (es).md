@@ -8,7 +8,7 @@ Con todo esto, es fácil entender por qué los ponis evitan acercarse a este lug
 
 "...¡escapar de allí es imposible!", "...¡Es un foso de oscuridad!", "...ahí, la soledad será tu única compañía, ¡y no será tu amiga!"
 
-Así eran los chismes que los ponis solían compartirse entre ellos, incrementando el misticismo y el temor que rodeaban a esta prisión, un lugar sinonimo de "sufrimiento inimaginable" que era compartido por todos.
+Así eran los chismes que los ponis solían compartirse entre ellos, incrementando el misticismo y el temor que rodeaban a esta prisión, un lugar sinónimo de "sufrimiento inimaginable" que era compartido por todos.
 
 No obstante, muy apartado de todo esto, sin que nadie lo sospechara, en ese preciso momento del día, en un rincón oculto de la prisión, ... otro tipo de "sufrimiento" estaba ocurriendo.
 
@@ -16,35 +16,35 @@ Balor de Cunabula, miembro de los Caballeros del Orden y portadora del elemento 
 
 En una habitación inundada por nebulosa banalidad...
 
-" ... créeme querida, te imaginaras el escándalo que causo Morron cuando se enteró que Raimi ya me había propuesto matrimonio ese mismo día. Claro que YO no había aceptado su propuesta y tenía que habérselo dicho. Pero verlo con las plumas al rojo vivo, fue todo un DELEITE." hablo una voz entre chapoteos.
+"...créeme, querida, te imaginarás el escándalo que causó Morron cuando se enteró que Raimi ya me había propuesto matrimonio ese mismo día. Claro que YO no había aceptado su propuesta y tenía que habérselo dicho. Pero verlo con las plumas al rojo vivo fue todo un DELEITE," habló una voz entre chapoteos.
 
-"Vaya que la tienes fácil. Déjame adivinar que sucedió después. ¿Se batieron en un duelo a muerte?" pregunto otra voz.
+"Vaya que la tienes fácil. Déjame adivinar qué sucedió después. ¿Se batieron en un duelo a muerte?" preguntó otra voz.
 
-"Como si tuvieran la cresta para hacerlo. AMBOS SE DESAFIARON EN UNA COMPETENCIA DE CANTO." respondio la primera voz.
+"Como si tuvieran la cresta para hacerlo. Ambos se desafiaron en una competencia de canto," respondió la primera voz.
 
 Las risas llenaron la habitación.
 
 Esta era una habitación que no debería existir en aquel lugar. Tenía velas aromáticas colgando del techo como candelabros. En las paredes se mostraban hermosos relieves coloridos que se asemejaban a las olas del mar. Tres estanques de agua estaban espaciados irregularmente en el piso con escalones de piedra para facilitar el acceso. Incluso había un tobogán que conducía a la piscina más grande.
 
-Todo el lugar tenía la apariencia de ser una casa de lujo SPA. Y de hecho habia sido construido con este objetivo.
+Todo el lugar tenía la apariencia de ser una casa de lujo SPA. Y de hecho, había sido construido con este objetivo.
 
-Morrigan y Ceridwen (tambien Caballeros del Orden) se encontraban charlando en el estanque más grande. Habían comenzado su baño hacía menos de una hora. Pero para Balor, que se encontraba en el estanque más pequeño, le habían parecido días de charla insulsa. Momentos como este hacían que la Draco Dragon lamentara haber tenido que liberar a sus compañeros. Por supuesto esta era una queja infantil y no podía compartirla con nadie más. Sin embargo, ella realmente deseaba que ese par de aves chismosas terminaran ya su baño y se fueran. 
+Morrigan y Ceridwen (también Caballeros del Orden) se encontraban charlando en el estanque más grande. Habían comenzado su baño hacía menos de una hora. Pero para Balor, que se encontraba en el estanque más pequeño, le habían parecido días de charla insulsa. Momentos como este hacían que la Draco Dragon lamentara haber tenido que liberar a sus compañeros. Por supuesto, esta era una queja infantil y no podía compartirla con nadie más. Sin embargo, ella realmente deseaba que ese par de aves chismosas terminaran ya su baño y se fueran.
 
 Sumergida hasta la nariz en el agua, Balor apretó la mandíbula para no suspirar. Solo tendría que esperar hasta que aquellas dos terminaran, así podría continuar con su baño de purificación en paz.
 
-"... bueno al final mi padre termino por rechazar a mis pretendientes. Eso me ahorro tener que hacerlo por mí misma. Aunque me sentí mal por Morron" dijo Morrigan mientras se disponía a tomar uvas de una canasta.
+"...bueno, al final mi padre terminó por rechazar a mis pretendientes. Eso me ahorró tener que hacerlo por mí misma. Aunque me sentí mal por Morron," dijo Morrigan mientras se disponía a tomar uvas de una canasta.
 
-"¿De veras?" respondió inquisitiva Ceridwen que había terminado de pulir las escamas de su cola.
+"¿De veras?" respondió inquisitiva Ceridwen, que había terminado de pulir las escamas de su cola.
 
-"Uhmm ... No" 
+"Uhmm... No."
 
-Mas risas llenaron la habitación. Ceridwen noto como su compañera Draco Dragon hacia burbujas de hastio en su estanque.
+Más risas llenaron la habitación. Ceridwen notó cómo su compañera Draco Dragon hacía burbujas de hastío en su estanque.
 
-"Vaya, vaya, parece que el jabón floral realmente no sirve para limpiar el mal carácter. ¿Acaso interrumpimos tu baño de purificación querida amiga?"
+"Vaya, vaya, parece que el jabón floral realmente no sirve para limpiar el mal carácter. ¿Acaso interrumpimos tu baño de purificación, querida amiga?"
 
-"Si, así es" Respondió una malhumorada Balor.
+"Sí, así es," respondió una malhumorada Balor.
 
-Ambas, Morrigan y Ceridwen se miraron confundidas.
+Ambas, Morrigan y Ceridwen, se miraron confundidas.
 
 "Pensé que realizabas tu baño de purificación en tu propia habitación" Pregunto Morrigan.
 
