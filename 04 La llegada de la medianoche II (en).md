@@ -1,44 +1,52 @@
 Tartarus, one hour before the "Festival of the Two Sisters."
 
-Located in one of Equestria's most hostile regions, this infamous prison, Tartarus, houses the most dangerous monsters and criminals in the kingdom's history. Known as the most important and secure of all prisons, it's geologically formed by a vast network of underground vaults, divided into multiple levels and sub-chambers, all set beneath a dark, volcanic mountain range. It has only one access to the outside: an enormous double metal door, sealed with magic, which serves as an impenetrable barrier to keep its prisoners confined.
+Nestled in one of the most hostile regions of Equestria, this infamous prison holds the kingdom's most dangerous monsters and criminals in its depths. Known as the most secure and essential prison, Tartarus is made up of a vast network of underground vaults, divided into multiple levels and subchambers, all lying beneath a dark volcanic mountain range. It has only one entrance to the outside: a massive double metal door, sealed with magic, acting as an impenetrable barrier to keep its prisoners trapped within.
 
-Escape is considered impossible, and for any pony with enough common sense, it wasn't hard to imagine the grim life awaiting any unfortunate soul who ended up in such a place.
+Beyond this door, a desolate wasteland with unpredictable weather stretches for miles, giving the landscape an ominous appearance rarely seen anywhere else in Equestria.
 
-A life of claustrophobic confinement, accompanied by a soul-crushing solitude that gnawed faster at the spirit than hunger at the body. Day after day seemed to repeat endlessly, surrounded by darkness. The prisoner could only dream of someday waking up from that nightmare.
+With all of this, it’s easy to understand why ponies avoid coming near this place, as well as the rumors and imaginations that arise when it’s mentioned in conversation.
 
-Without a doubt, every pony shared this opinion. However, at this very moment, in a hidden corner of the prison, another kind of suffering—one unsuspected by all—was taking place.
+“…escaping from there is impossible!” “…It’s a pit of darkness!” “…there, loneliness will be your only company—and it won’t be friendly!”
 
-Balor of Cunabula, a member of the Knights of Order and wielder of the Element of Magic, supposedly a prisoner of Tartarus, was enduring an uncomfortable and unusual “torture.”
+These were the kinds of gossip ponies would exchange, fueling the mystique and fear surrounding this prison, a place synonymous with "unimaginable suffering" shared by all.
 
-“...believe me, darling, you can imagine the scandal Morron caused when he found out Raimi had already proposed to me that same day. Of course, I hadn’t accepted his proposal and should have told him. But seeing him with his feathers all ruffled was just a DELIGHT.”
+However, far from all this, with no one suspecting it, at this very moment, in a hidden corner of the prison… another kind of "suffering" was taking place.
 
-“Oh, you’ve got it easy. Let me guess what happened next. Did they fight to the death?”
+Balor of Cunabula, a member of the Knights of Order and the supposed prisoner of Tartarus who wielded the Element of Magic, was barely enduring a strange and uncomfortable form of "torture."
 
-“As if either had the guts for that. THEY CHALLENGED EACH OTHER TO A SINGING CONTEST.”
+[---]
+
+In a room flooded by banal fog...
+
+"...believe me, darling, you can't imagine the scandal that ensued when Morron found out Raimi had already proposed to me that same day. Of course, I hadn't accepted his proposal and I should've told him so. But seeing him with his feathers scorched was a real DELIGHT," said a voice between splashes.
+
+"Sounds like you’ve got it easy. Let me guess what happened next. Did you two duel to the death?" asked another voice.
+
+"As if they had the guts for that. They both challenged each other to a singing competition," replied the first voice.
 
 Laughter filled the room.
 
-This was a room that shouldn’t exist in such a place. It had aromatic candles hanging from the ceiling like chandeliers. The walls were adorned with beautiful, colorful carvings that resembled ocean waves. Three water pools were spaced unevenly on the floor, with stone steps to allow easy access. There was even a slide leading into the largest pool.
+This was a room that shouldn’t exist in that place. It had aromatic candles hanging from the ceiling like chandeliers. The walls were adorned with beautiful colorful reliefs resembling sea waves. Three water ponds were irregularly spaced across the floor, with stone steps to make access easier. There was even a slide leading into the largest pool.
 
-The whole place looked like a luxury spa. And, in fact, it had been built for just that purpose.
+The whole place looked like a luxurious spa house. And in fact, it had been built for that very purpose.
 
-Morrigan and Ceridwen were chatting in the largest pool. They had started their bath less than an hour ago, but to Balor, who was in the smaller pool, it felt like days of trivial chatter. Moments like these made the Draco Dragon regret having to free her companions. Of course, this was a childish complaint, and she couldn’t share it with anyone else. However, she truly wished that those two gossiping birds would just finish their bath and leave.
+Morrigan and Ceridwen (also Knights of the Order) were chatting in the largest pond. They had begun their bath less than an hour ago. But for Balor, who was in the smallest pond, it felt like days of pointless chatter. Moments like this made the Draco Dragon regret having to free her companions. Of course, it was a childish complaint, and she couldn’t share it with anyone else. However, she really wished that pair of gossiping birds would hurry up and finish their bath and leave.
 
-Submerged up to her nose in the water, Balor was prepared to wait as long as necessary to continue her purification bath.
+Submerged up to her nose in the water, Balor clenched her jaw to avoid sighing. She would just have to wait until those two were done so she could continue her purification bath in peace.
 
-"...well, in the end, my father turned down all my suitors. Saved me the trouble of doing it myself. Though, I did feel bad for Morron," said Morrigan as she reached for some grapes from a basket.
+"...Well, in the end, my father rejected my suitors. That saved me the trouble of doing it myself. Though I did feel bad for Morron," Morrigan said as she reached for grapes from a basket.
 
-"Really?" responded Ceridwen inquisitively, as she finished polishing the scales on her tail.
+"Really?" asked Ceridwen inquisitively, having just finished polishing the scales of her tail.
 
 "Uhmm... No."
 
-More laughter filled the room. Ceridwen noticed how her companion, the Draco Dragon, was blowing bubbles in her pool.
+More laughter filled the room. Ceridwen noticed how her Draco Dragon companion was blowing bubbles of annoyance in her pond.
 
-“Well, well, it seems the floral soap really doesn’t wash away bad temper. Are we interrupting your purification bath, dear friend?”
+"Well, well, seems like floral soap doesn't really help clean up a bad attitude. Are we interrupting your purification bath, dear friend?"
 
-“Yes, you are,” replied a grumpy Balor.
+"Yes, you are," replied a grumpy Balor.
 
-The two of them looked at each other, puzzled.
+Both Morrigan and Ceridwen looked at each other, confused.
 
 “I thought you did your purification baths in your own room,” Morrigan asked.
 

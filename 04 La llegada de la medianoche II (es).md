@@ -14,6 +14,8 @@ No obstante, muy apartado de todo esto, sin que nadie lo sospechara, en ese prec
 
 Balor de Cunabula, miembro de los Caballeros del Orden y portadora del elemento de la Magia, supuesta prisionera del Tártaro, soportaba a duras penas una incómoda e inusual “tortura”.
 
+[---]
+
 En una habitación inundada por nebulosa banalidad...
 
 "...créeme, querida, te imaginarás el escándalo que causó Morron cuando se enteró que Raimi ya me había propuesto matrimonio ese mismo día. Claro que YO no había aceptado su propuesta y tenía que habérselo dicho. Pero verlo con las plumas al rojo vivo fue todo un DELEITE," habló una voz entre chapoteos.
