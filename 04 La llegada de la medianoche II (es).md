@@ -1,16 +1,20 @@
 El Tártaro, una hora antes del día del "Festival de las Dos Hermanas".
 
-Ubicada en una de las regiones más hostiles de Equestria, esta infame prisión alberga a los monstruos y criminales más peligrosos de la historia del reino. Considerada la prisión más importante y segura, el Tártaro está compuesto por una vasta red de bóvedas subterráneas, divididas en múltiples niveles y subcámaras, todas situadas bajo una oscura cadena montañosa de origen volcánico. Solo cuenta con un acceso al exterior: una enorme puerta doble de metal, sellada con magia, que actúa como una barrera infranqueable para mantener cautivos a sus prisioneros.
+Ubicada en una de las regiones más hostiles de Equestria, esta infame prisión alberga a los monstruos y criminales más peligrosos de la historia del reino. Considerada la prisión más importante y segura, el Tártaro consiste en una vasta red de bóvedas subterráneas divididas en múltiples niveles y subcámaras, todas situadas bajo una oscura cadena montañosa de origen volcánico. Como gran prisión, solo cuenta con un acceso al exterior: una enorme y gruesa puerta doble de metal, sellada con magia, que actúa como una barrera infranqueable para mantener cautivos a sus prisioneros.
 
-Más allá de esta puerta, un páramo desolado, de clima impredecible, se extiende por kilómetros, otorgándole al paisaje un aspecto sombrío pocas veces visto en toda Equestria.
+Más allá de esta puerta, un páramo desolado, de clima impredecible, se extiende por kilómetros, otorgando al paisaje un aspecto sombrío, pocas veces visto en esas tierras.
 
-Con todo esto, es fácil entender por qué los ponis evitan acercarse a este lugar, así como los rumores e imaginaciones que surgen cuando se menciona en alguna conversación.
+Con estas características, es fácil entender por qué los ponis evitan acercarse a este lugar, que se convierte en motivo de recelo siempre que se menciona en una conversación.
 
-"...¡escapar de allí es imposible!", "...¡Es un foso de oscuridad!", "...ahí, la soledad será tu única compañía, ¡y no será tu amiga!"
+"...¡escapar de allí es imposible!", "...¡Es un foso de oscuridad y maldad!", "...allí, la soledad será tu única compañía, ¡y no será tu amiga!"
 
-Así eran los chismes que los ponis solían compartirse entre ellos, incrementando el misticismo y el temor que rodeaban a esta prisión, un lugar sinónimo de "sufrimiento inimaginable" que era compartido por todos.
+Tales eran los rumores y temores que el Tártaro inspiraba; su nombre se había convertido en sinónimo de "sufrimiento inimaginable" para la mayoría de los ponis. Aunque algunos comprendían que solo se trataba de una prisión fuertemente vigilada y no veían razón para temerla, eran pocos los que pensaban así; la mayoría estaba muy convencida de lo contrario.
 
-No obstante, muy apartado de todo esto, sin que nadie lo sospechara, en ese preciso momento del día, en un rincón oculto de la prisión, ... otro tipo de "sufrimiento" estaba ocurriendo.
+No obstante, más allá del misticismo y el temor que rodeaban a esta prisión, había un peligro latente muy real en ese lugar.
+
+Sus prisioneros, cuyos nombres aparecían en cuentos de brujas y leyendas, eran reales. Y se podía agradecer que estuvieran sufriendo un tortuoso encierro en aquel sitio, en lugar de estar libres en el exterior, haciendo sufrir a otros con sus "maldades".
+
+Precisamente en ese momento del día, en un rincón oculto de la prisión, un caso especial de "sufrimiento" estaba ocurriendo.
 
 Balor de Cunabula, miembro de los Caballeros del Orden y portadora del elemento de la Magia, supuesta prisionera del Tártaro, soportaba a duras penas una incómoda e inusual “tortura”.
 

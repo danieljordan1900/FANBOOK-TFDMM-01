@@ -1,18 +1,22 @@
 Tartarus, one hour before the "Festival of the Two Sisters."
 
-Nestled in one of the most hostile regions of Equestria, this infamous prison holds the kingdom's most dangerous monsters and criminals in its depths. Known as the most secure and essential prison, Tartarus is made up of a vast network of underground vaults, divided into multiple levels and subchambers, all lying beneath a dark volcanic mountain range. It has only one entrance to the outside: a massive double metal door, sealed with magic, acting as an impenetrable barrier to keep its prisoners trapped within.
+Located in one of the most hostile regions of Equestria, this infamous prison holds the kingdom's most dangerous monsters and criminals. Known as the most secure and significant prison, Tartarus consists of a vast network of underground vaults divided into multiple levels and subchambers, all hidden beneath a dark volcanic mountain range. As a grand prison, it has only one way to the outside: a massive, thick double metal door, sealed with magic, serving as an impenetrable barrier to keep its prisoners confined.
 
-Beyond this door, a desolate wasteland with unpredictable weather stretches for miles, giving the landscape an ominous appearance rarely seen anywhere else in Equestria.
+Beyond this door, a desolate wasteland with unpredictable weather stretches for miles, giving the landscape an ominous appearance rarely seen in these lands.
 
-With all of this, it’s easy to understand why ponies avoid coming near this place, as well as the rumors and imaginations that arise when it’s mentioned in conversation.
+With such characteristics, it’s easy to understand why ponies avoid approaching this place, which becomes a source of dread whenever it's mentioned in conversation.
 
-“…escaping from there is impossible!” “…It’s a pit of darkness!” “…there, loneliness will be your only company—and it won’t be friendly!”
+“…escaping from there is impossible!” “…It’s a pit of darkness and evil!” “…there, loneliness will be your only company—and it won’t be your friend!”
 
-These were the kinds of gossip ponies would exchange, fueling the mystique and fear surrounding this prison, a place synonymous with "unimaginable suffering" shared by all.
+These were the kinds of rumors and fears that Tartarus inspired; its name had become synonymous with "unimaginable suffering" for most ponies. Although some understood it was merely a heavily guarded prison and saw no reason to fear it, few thought this way; the majority were deeply convinced otherwise.
 
-However, far from all this, with no one suspecting it, at this very moment, in a hidden corner of the prison… another kind of "suffering" was taking place.
+However, beyond the mystique and fear surrounding this prison, a very real latent danger existed in that place.
 
-Balor of Cunabula, a member of the Knights of Order and the supposed prisoner of Tartarus who wielded the Element of Magic, was barely enduring a strange and uncomfortable form of "torture."
+Its prisoners, whose names appeared in witch tales and legends, were real. And it was a relief they were enduring torturous confinement in that site rather than being free outside, causing others to suffer with their “evil deeds.”
+
+At that very moment in the day, in a hidden corner of the prison, a special case of "suffering" was taking place.
+
+Balor of Cunabula, a member of the Knights of Order and the supposed prisoner of Tartarus who bore the Element of Magic, was barely enduring a strange and uncomfortable form of “torture.”
 
 [---]
 
