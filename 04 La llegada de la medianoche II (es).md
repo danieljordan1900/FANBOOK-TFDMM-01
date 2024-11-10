@@ -1,28 +1,26 @@
 El Tártaro, una hora antes del día del "Festival de las Dos Hermanas".
 
-Ubicada en una de las regiones más hostiles de Equestria, esta infame prisión, el Tártaro, alberga en su interior a los monstruos y criminales más peligrosos en la historia del reino. Considerada la más importante y segura de todas las prisiones, está geológicamente formada por una vasta colección de bóvedas subterráneas, divididas en múltiples niveles y subcámaras, todas emplazadas bajo una oscura cadena montañosa de origen volcánico. Solo cuenta con un acceso al exterior: una enorme puerta doble de metal, sellada con magia, que actúa como una barrera infranqueable para mantener cautivos a sus prisioneros.
+Ubicada en una de las regiones más hostiles de Equestria, esta infame prisión alberga a los monstruos y criminales más peligrosos de la historia del reino. Considerada la prisión más importante y segura, el Tártaro está compuesto por una vasta red de bóvedas subterráneas, divididas en múltiples niveles y subcámaras, todas situadas bajo una oscura cadena montañosa de origen volcánico. Solo cuenta con un acceso al exterior: una enorme puerta doble de metal, sellada con magia, que actúa como una barrera infranqueable para mantener cautivos a sus prisioneros.
 
-Mas alla de esta puerta, un yerno desolado ( de clima impredecible ) se extiende por kilmetros dandole al paisaje de los alrrededores un aspecto sombrio pocas veces visto en toda Equestria.
+Más allá de esta puerta, un páramo desolado, de clima impredecible, se extiende por kilómetros, otorgándole al paisaje un aspecto sombrío pocas veces visto en toda Equestria.
 
-Por todo lo antes dicho, es facil entender porque los ponis evitan acercarse a este lugar, asi como los rumores e imaginaciones que suelen tener cuando es mencionado en alguna conversacion.
+Con todo esto, es fácil entender por qué los ponis evitan acercarse a este lugar, así como los rumores e imaginaciones que surgen cuando se menciona en alguna conversación.
 
-"... escapar de allí es imposible!"
+"...¡escapar de allí es imposible!", "...¡Es un foso de oscuridad!", "...ahí, la soledad será tu única compañía, ¡y no será tu amiga!"
 
-"... un día a día que parecía repetirse eternamente, rodeado de oscuridad."
+Así eran los chismes que los ponis solían compartirse entre ellos, incrementando el misticismo y el temor que rodeaban a esta prisión, un lugar sinonimo de "sufrimiento inimaginable" que era compartido por todos.
 
-"... un lugar de soledad que devoraba el alma más rápido que el hambre al cuerpo."
+No obstante, muy apartado de todo esto, sin que nadie lo sospechara, en ese preciso momento del día, en un rincón oculto de la prisión, ... otro tipo de "sufrimiento" estaba ocurriendo.
 
-En efecto, asi eran los chismes que los ponis solian compartirse entre ellos. Lo cual solo incrementaba el misticismo y temor que rodeaba a la prision, un lugar de 'sufrimiento inimaginable'.
+Balor de Cunabula, miembro de los Caballeros del Orden y portadora del elemento de la Magia, supuesta prisionera del Tártaro, soportaba a duras penas una incómoda e inusual “tortura”.
 
-No obstante, insospechado por todos, en ese preciso momento del dia, en un rincón oculto de la prisión, otro tipo de sufrimiento, estaba ocurriendo.
+En una habitación inundada por nebulosa banalidad...
 
-Balor de Cunabula, miembro de los Caballeros del Orden y portadora del elemento de la Magia, supuesta prisionera del Tártaro, soportaba una incómoda e inusual “tortura”.
+" ... créeme querida, te imaginaras el escándalo que causo Morron cuando se enteró que Raimi ya me había propuesto matrimonio ese mismo día. Claro que YO no había aceptado su propuesta y tenía que habérselo dicho. Pero verlo con las plumas al rojo vivo, fue todo un DELEITE." hablo una voz entre chapoteos.
 
-" ... créeme querida, te imaginaras el escándalo que causo Morron cuando se enteró que Raimi ya me había propuesto matrimonio ese mismo día. Claro que YO no había aceptado su propuesta y tenía que habérselo dicho. Pero verlo con las plumas al rojo vivo, fue todo un DELEITE."
+"Vaya que la tienes fácil. Déjame adivinar que sucedió después. ¿Se batieron en un duelo a muerte?" pregunto otra voz.
 
-"Vaya que la tienes fácil. Déjame adivinar que sucedió después. ¿Se batieron en un duelo a muerte?"
-
-"Como si tuvieran la cresta para hacerlo. AMBOS SE DESAFIARON EN UNA COMPETENCIA DE CANTO."
+"Como si tuvieran la cresta para hacerlo. AMBOS SE DESAFIARON EN UNA COMPETENCIA DE CANTO." respondio la primera voz.
 
 Las risas llenaron la habitación.
 
@@ -30,9 +28,9 @@ Esta era una habitación que no debería existir en aquel lugar. Tenía velas ar
 
 Todo el lugar tenía la apariencia de ser una casa de lujo SPA. Y de hecho habia sido construido con este objetivo.
 
-Morrigan y Ceridwen se encontraban charlando en el estanque más grande. Habían comenzado su baño hacía menos de una hora. Pero para Balor, que se encontraba en el estanque más pequeño, le habían parecido días de charla insulsa. Momentos como este hacían que la Draco Dragon lamentara haber tenido que liberar a sus compañeros. Por supuesto esta era una queja infantil y no podía compartirla con nadie más. Sin embargo, ella realmente deseaba que ese par de aves chismosas terminaran ya su baño y se fueran. 
+Morrigan y Ceridwen (tambien Caballeros del Orden) se encontraban charlando en el estanque más grande. Habían comenzado su baño hacía menos de una hora. Pero para Balor, que se encontraba en el estanque más pequeño, le habían parecido días de charla insulsa. Momentos como este hacían que la Draco Dragon lamentara haber tenido que liberar a sus compañeros. Por supuesto esta era una queja infantil y no podía compartirla con nadie más. Sin embargo, ella realmente deseaba que ese par de aves chismosas terminaran ya su baño y se fueran. 
 
-Sumergida hasta la nariz por el agua. Balor esperaría lo necesario para poder continuar con su baño de purificación.
+Sumergida hasta la nariz en el agua, Balor apretó la mandíbula para no suspirar. Solo tendría que esperar hasta que aquellas dos terminaran, así podría continuar con su baño de purificación en paz.
 
 "... bueno al final mi padre termino por rechazar a mis pretendientes. Eso me ahorro tener que hacerlo por mí misma. Aunque me sentí mal por Morron" dijo Morrigan mientras se disponía a tomar uvas de una canasta.
 
@@ -40,13 +38,13 @@ Sumergida hasta la nariz por el agua. Balor esperaría lo necesario para poder c
 
 "Uhmm ... No" 
 
-Mas risas llenaron la habitación. Ceridwen noto como su compañera Draco Dragon hacia burbujas en su estanque.
+Mas risas llenaron la habitación. Ceridwen noto como su compañera Draco Dragon hacia burbujas de hastio en su estanque.
 
 "Vaya, vaya, parece que el jabón floral realmente no sirve para limpiar el mal carácter. ¿Acaso interrumpimos tu baño de purificación querida amiga?"
 
 "Si, así es" Respondió una malhumorada Balor.
 
-Ambas se miraron confundidas.
+Ambas, Morrigan y Ceridwen se miraron confundidas.
 
 "Pensé que realizabas tu baño de purificación en tu propia habitación" Pregunto Morrigan.
 
