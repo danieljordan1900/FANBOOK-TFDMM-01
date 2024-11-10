@@ -2,11 +2,19 @@ El Tártaro, una hora antes del día del "Festival de las Dos Hermanas".
 
 Ubicada en una de las regiones más hostiles de Equestria, esta infame prisión, el Tártaro, alberga en su interior a los monstruos y criminales más peligrosos en la historia del reino. Considerada la más importante y segura de todas las prisiones, está geológicamente formada por una vasta colección de bóvedas subterráneas, divididas en múltiples niveles y subcámaras, todas emplazadas bajo una oscura cadena montañosa de origen volcánico. Solo cuenta con un acceso al exterior: una enorme puerta doble de metal, sellada con magia, que actúa como una barrera infranqueable para mantener cautivos a sus prisioneros.
 
-Escapar de allí es considerado imposible, y para cualquier poni con suficiente sentido común no resultaba difícil imaginar el tipo de vida sombría que le esperaría al desdichado que terminara en ese lugar.
+Mas alla de esta puerta, un yerno desolado ( de clima impredecible ) se extiende por kilmetros dandole al paisaje de los alrrededores un aspecto sombrio pocas veces visto en toda Equestria.
 
-Una vida de encierro claustrofóbico, acompañada de una soledad que devoraba el alma más rápido que el hambre al cuerpo. Un día a día que parecía repetirse eternamente, rodeado de oscuridad. El prisionero solo podía soñar con despertar algún día de aquella pesadilla.
+Por todo lo antes dicho, es facil entender porque los ponis evitan acercarse a este lugar, asi como los rumores e imaginaciones que suelen tener cuando es mencionado en alguna conversacion.
 
-Sin duda, todos los ponis compartían esta opinion. Sin embargo, en ese preciso momento, en un rincón oculto de la prisión, otro tipo de sufrimiento, insospechado por todos, estaba ocurriendo.
+"... escapar de allí es imposible!"
+
+"... un día a día que parecía repetirse eternamente, rodeado de oscuridad."
+
+"... un lugar de soledad que devoraba el alma más rápido que el hambre al cuerpo."
+
+En efecto, asi eran los chismes que los ponis solian compartirse entre ellos. Lo cual solo incrementaba el misticismo y temor que rodeaba a la prision, un lugar de 'sufrimiento inimaginable'.
+
+No obstante, insospechado por todos, en ese preciso momento del dia, en un rincón oculto de la prisión, otro tipo de sufrimiento, estaba ocurriendo.
 
 Balor de Cunabula, miembro de los Caballeros del Orden y portadora del elemento de la Magia, supuesta prisionera del Tártaro, soportaba una incómoda e inusual “tortura”.
 

@@ -32,3 +32,16 @@ El Capítulo 01 - La llegada de la Medianoche II presenta una variedad de escena
     ->  Considera, si es posible, las escenas antes mencionadas relacionadas a este fanfic
     ->  Considera, si es posible, los personajes y sus personalidades antes mencionadas relacionadas a este fanfic
 ]
+
+
+
+
+Se puede entender porque todos los ponis consideran que escapar de allí es imposible. Y por eso mismo, evitan acercarse a ese lugar, temiendo perderse en aquellas tierras tan peligrosas.
+
+Escapar de allí es considerado imposible, y para cualquier poni con suficiente sentido común no resultaba difícil imaginar el tipo de vida sombría que le esperaría al desdichado que terminara en ese lugar.
+
+Una vida de encierro claustrofóbico, acompañada de una soledad que devoraba el alma más rápido que el hambre al cuerpo. Un día a día que parecía repetirse eternamente, rodeado de oscuridad. El prisionero solo podía soñar con despertar algún día de aquella pesadilla.
+
+
+
+Sin duda, todos los ponis compartían esta opinion. Sin embargo, en ese preciso momento, en un rincón oculto de la prisión, otro tipo de sufrimiento, insospechado por todos, estaba ocurriendo.
