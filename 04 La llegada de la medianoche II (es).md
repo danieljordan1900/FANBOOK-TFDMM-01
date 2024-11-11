@@ -6,7 +6,7 @@ Más allá de esta puerta, un páramo desolado, de clima impredecible, se extien
 
 Con estas características, es fácil entender por qué los ponis evitan acercarse a este lugar, que se convierte en motivo de recelo siempre que se menciona en una conversación.
 
-"...¡escapar de allí es imposible!", "...¡Es un foso de oscuridad y maldad!", "...allí, la soledad será tu única compañía, ¡y no será tu amiga!"
+"...¡escapar de allí es imposible!", "...¡Es un foso de oscuridad y maldad!", "...un amigo se perdio en ese lugar ¡Fue horrible!"
 
 Tales eran los rumores y temores que el Tártaro inspiraba; su nombre se había convertido en sinónimo de "sufrimiento inimaginable" para la mayoría de los ponis. Aunque algunos comprendían que solo se trataba de una prisión fuertemente vigilada y no veían razón para temerla, eran pocos los que pensaban así; la mayoría estaba muy convencida de lo contrario.
 
