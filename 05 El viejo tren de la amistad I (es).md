@@ -1,86 +1,95 @@
-Era un día soleado y radiante en Ponyville, un encantador pueblo habitado por una variedad de criaturas mágicas, como pegasos, unicornios y ponis terrestres. Pero este era un día especial, pues se celebraba el muy esperado 'Festival de las Dos Hermanas'. El ambiente estaba lleno de entusiasmo y alegría, y la emoción se palpaba en el aire. Anteriormente, este día había sido conocido como la 'Celebración del Sol de Verano', aunque hacía tres años que había cambiado de nombre, el sentimiento que producía en el corazón de todos los ponis era el mismo.
+Era un día soleado y radiante en Ponyville, un encantador pueblo habitado por diversas criaturas mágicas: pegasos, unicornios y ponis terrestres. Aunque a simple vista sus habitantes se movían como de costumbre a esa hora del mediodía, este era un día especial, pues se celebraba el tan esperado "Festival de las Dos Hermanas". En las casas y en las calles, el ambiente estaba lleno de entusiasmo y alegría, típicos de esta célebre fecha. Aunque en otros tiempos se conocía como la "Celebración del Sol de Verano", el sentimiento que despertaba en el corazón de los ponis era el mismo.
 
-Y nadie podía estar más seguro de ello que Pinkie Pie. Con su característico trote ágil y lleno de energía, se dirigía a toda prisa hacia la estación de tren.
+Nadie lo sentía con más certeza que Pinkie Pie, quien, con su característico trote ágil y lleno de energía, se dirigía a toda prisa hacia la estación de tren.
 
-"Ve con cuidado, Pinkie Pie, no vayas a dejar caer tu buen ánimo", le dijo alegremente Matilda, que paseaba con su esposo Gruñón al lado del camino.
+"¡Ve con cuidado, Pinkie Pie, no vayas a dejar caer tu buen ánimo!", le dijo alegremente Matilda, quien paseaba junto a su esposo, Gruñón, al lado del camino.
 
-"Eso nunca, Matilda, pero si no me doy prisa, perderé el tren de la puntualidad. ¡YIIIEP!" Con un corto relincho, Pinkie Pie continuó su camino doblando su velocidad, dejando atrás a la pareja.
+"¡Eso nunca, Matilda! Pero si no me doy prisa, perderé el tren de la puntualidad. ¡YIIIEP!" Con un corto relincho, Pinkie Pie aceleró aún más, dejando atrás a la pareja.
 
-No era broma, Pinkie Pie estaba atrasada y fallar una promesa que llevaba su propio nombre era lo último que hubiera querido hacer ese día.
+No era broma: estaba atrasada, y fallar una promesa que llevaba su propio nombre era lo último que tenía pensado hacer ese día.
 
-Como una ráfaga rosa, llegó a la estación, donde fue recibida sin demora. No había ponis esperando afuera, todos ya se encontraban dentro del tren, esperando su partida.
+Tan rápido como sus patas se lo permitían, Pinkie Pie llegó a la estación como una ráfaga rosa. Fue recibida sin demora; no había ninguna fila afuera, pues todos ya estaban a bordo, esperando la partida.
 
-Una vez dentro, se encontró con una multitud de ponis. Entre amigos y caras conocidas, Pinkie Pie se abrió paso saludando a todos los que reconocía. Finalmente, llegó a un vagón especial reservado solo para viajeros importantes.
+Una vez dentro, se encontró con su último obstáculo: una multitud de ponis de todos los tamaños y colores. Entre amigos y caras conocidas, Pinkie Pie se abrió paso, saludando a todos los que reconocía. Finalmente, algo agotada por su propia cordialidad, llegó a la puerta de su destino: el vagón especial reservado solo para viajeros importantes.
 
-Tomando una gran bocanada de aire y luego sacando su mejor sonrisa, Pinkie Pie abrió las puertas del vagón donde ya se encontraban sentadas Applejack, Rarity y...
+Tomando una gran bocanada de aire y esbozando su mejor sonrisa, Pinkie Pie abrió la puerta de golpe. En un instante, su campo de visión se llenó con el interior del vagón que bien conocía, donde la esperaban sus amigas. Ahí estaban sentadas Applejack, Rarity y...
 
-"Hola, Pinkie..." dijo Fluttershy.
+Fluttershy, quien al darse la vuelta le sonrió. "Hola, Pinkie..."
 
-"¡FLUTTERSHY, TE HE EXTRAÑADO TANTO!", exclamó Pinkie entre sollozos y lágrimas. En una explosión de alegría desbordante, la poni rosa se lanzó sobre su amiga que acababa de saludarla.
+Eso fue todo lo que Pinkie necesitó. Sin esperar un segundo más, brincó y se lanzó sobre su amiga.
 
-"Ya, ya Pinkie, ¡Ughh!" Fluttershy sintió el afectuoso y vigoroso abrazo de Pinkie en toda su espalda.
+"¡FLUTTERSHY, TE HE EXTRAÑADO TANTO!" exclamó Pinkie entre sollozos y lágrimas mientras abrazaba a Fluttershy con fuerza.
 
-"Toda una semana en el monte Aris fue demasiado. Sé que los bebés delfines te necesitaban, ¡pero AQUÍ TAMBIÉN TE NECESITÁBAMOS!" continuó Pinkie, derramando aún más lágrimas.
+"Ya, ya, Pinkie… ¡Ughh!" intentó responder Fluttershy, sintiendo cómo el afectuoso y vigoroso abrazo de Pinkie casi le aplastaba la espalda.
 
-"Lo siento, de verdad. Lo siento. ¡Ughh!" dijo Fluttershy, y ahora su piel ya empezaba a cambiar de color debido al intenso abrazo.
+"Toda una temporada en Monte Aris fue demasiado. ¡Sé que los bebés delfines te necesitaban, pero aquí también te necesitábamos!" continuó Pinkie, derramando aún más lágrimas.
 
-Por otro lado, sus amigas solo contemplaron la escena con sonrisas. Fluttershy era la penúltima en llegar a la reunión. Las otras tres amigas ya se habían encontrado aquella mañana en la estación del tren, pero no fue hasta un poco antes de que Fluttershy llegara que Pinkie Pie salió repentinamente sin dar explicaciones.
+"Lo siento, de verdad... lo siento… ¡Ughh!" gimió Fluttershy, sintiendo cómo el intenso abrazo de su amiga hacía que sus costados comenzaran a cambiar de color.
+Applejack, Rarity y las demás observaban la escena con sonrisas. Fluttershy era la penúltima en llegar. Las otras tres amigas ya se habían reunido aquella mañana en la estación del tren, pero poco antes de que ella llegara, Pinkie Pie había salido repentinamente sin dar explicaciones.
 
-"Bueno, ahora solo faltaría Rainbow Dash y estaríamos todas", dijo Applejack.
+"Bueno, ahora solo faltaría Rainbow Dash y estaríamos todas," dijo Applejack.
 
-"¡Esperen! ¿Rainbow aún no ha llegado?" preguntó sorprendida Pinkie, que había soltado a una apretujada Fluttershy.
+"¡Esperen! ¿Rainbow aún no ha llegado?" preguntó Pinkie, sorprendida, mientras soltaba sin previo aviso a una apretujada Fluttershy.
 
 "Nop".
 
-"¿Le habrá pasado algo?" preguntó Pinkie, que ahora lucía preocupada.
+"¿Le habrá pasado algo?" preguntó Pinkie, visiblemente preocupada.
 
-"No lo creo, ella..." respondió Applejack.
+"No lo creo, ella..." comenzó Applejack.
 
-"Podría haber tenido un accidente. Podría haber perdido la memoria. Podría haber sido secuestrada. Podría estar enferma. Podrían haberse caído en una tormenta. Podría haber viajado a otro mundo. Podría..."
+"Podría haber tenido un accidente. Podría haber perdido la memoria. Podría haber sido secuestrada. Podría estar enferma. Podría haberse caído en una tormenta. Podría haber viajado a otro mundo. Podría..."
 
-"O simplemente podría llegar tarde", dijo delicadamente Rarity. "Verás, querida, Rainbow Dash le dejó una carta a Fluttershy cuando estaba de camino a la estación del tren".
+"O simplemente podría llegar tarde," intervino Rarity con delicadeza. "No tienes por qué angustiarte tanto, querida. Verás, Rainbow Dash le dejó una carta a Fluttershy cuando venía camino a la estación."
 
-"¿Eh?" El fluctuante estado de ánimo de Pinkie Pie ahora estaba confundido, y no era solo ella.
+"¿Eh?" Pinkie Pie ladeó la cabeza, su estado de ánimo fluctuante ahora reflejaba confusión. No era la única.
 
-"A mí también me parece extraño, Pinkie. Ella casi nunca escribe cartas", dijo Applejack, que ayudaba a una desorientada Fluttershy a levantarse del suelo del vagón. En ese momento, le pasó un pedazo de papel arrugado.
+"A mí también me parece extraño, Pinkie. Casi nunca escribe cartas," agregó Applejack, ayudando a Fluttershy, aún desorientada, a levantarse del suelo del vagón. Le entregó entonces un pedazo de papel arrugado.
 
-Pinkie Pie lo abrió y en él estaba la desgarbada letra de su amiga con un único mensaje: "Llego tarde".
+Pinkie Pie lo abrió y encontró la inconfundible y desgarbada letra de Rainbow Dash, con un único mensaje: "Llego tarde".
 
-"Mmm, sospechoso..." dijo Pinkie Pie con una mirada intrigante.
+"Uhhmmm, sospechoso..." murmuró Pinkie Pie con una expresión intrigada.
 
-"No es lo único 'sospechoso' hoy, querida", respondió Rarity, que había notado las voluminosas alforjas que Pinkie había traído consigo.
+"No es lo único 'sospechoso' hoy, querida," comentó Rarity, señalando con la mirada las voluminosas alforjas que Pinkie había traído consigo.
 
-Pinkie notó su mirada y respondió: "Oh... no es sospechoso, es una sorpresa".
+Pinkie notó su mirada y respondió rápidamente: "Oh... no es sospechoso, es una sorpresa."
 
-"¿Fue por eso que saliste disparada del tren cuando te preguntamos qué sorpresa habías preparado para Twilight hoy?" preguntó Applejack, recordando el momento en que Pinkie Pie había abandonado el vagón como un proyectil rosa.
+"¿Fue por esto que saliste disparada del tren cuando te preguntamos qué sorpresa habías preparado para Twilight hoy?" preguntó Applejack, recordando el momento en que Pinkie había abandonado el vagón como un proyectil rosa.
 
-"Noooo...", respondió Pinkie Pie con una picara mirada, "fue porque creí que estos manuales de reglas del juego de trivia serían una lectura perfecta para nuestro viaje en tren", dijo mientras sacaba de sus alforjas varias copias voluminosas del libro 'Reglamento Oficial de Trivias Equestrianas. 35º Edición', entregando una a cada una de sus amigas con una sonrisa.
+"Noooo...", respondió Pinkie, algo nerviosa. "Fue porque creí que estos manuales de reglas del juego de trivia serían una lectura perfecta para nuestro viaje en tren," explicó mientras sacaba de sus alforjas varias copias voluminosas del libro Reglamento Oficial de Trivias Equestrianas, 35º Edición, entregando una a cada una de sus amigas con una gran sonrisa.
 
-Rarity y Applejack intercambiaron una breve mirada suspicaz y simplemente rodaron los ojos. Aunque todas las amigas de Twilight se reunían en el día de su coronación para ayudarla con los problemas de amistad que pudieran surgir en el reino, también aprovechaban días festivos como este para disfrutar juntas sin tener que preocuparse por ninguna responsabilidad en particular. Por esta razón, habían acordado que cada día del "Festival de las Dos Hermanas", una de ellas organizaría una actividad especial dedicada a su buena amiga y princesa gobernante. La amiga elegida por sorteo tendría la tarea de hacer que la reunión fuera la más memorable y emocionante posible.
+Rarity y Applejack intercambiaron una mirada suspicaz antes de rodar los ojos. Aunque todas las amigas de Twilight se reunían con ella en el día de su coronación para ayudarla a resolver problemas de amistad en el reino, también aprovechaban días festivos como este para disfrutar juntas sin preocuparse por sus responsabilidades. Por eso, habían acordado que, durante el "Festival de las Dos Hermanas," cada día una de ellas organizaría una actividad especial dedicada a su buena amiga y princesa gobernante. La amiga elegida por sorteo tendría la misión de hacer que la reunión fuera lo más memorable y emocionante posible.
 
-Este desafío ya había sido superado por Applejack y Rarity, así que solo quedaban las otras tres amigas.
+Este desafío ya había sido superado por Rarity y Applejack, así que solo quedaban Fluttershy, Rainbow Dash y Pinkie Pie.
 
-Ambas ponis dejaron a un lado el manual de trivias.
+Dejando a un lado el manual de trivias y las intrigas de Pinkie, sus amigas decidieron tomar el asunto con calma.
 
-"Querida, sé que a Twilight le encantará que organices una competencia de trivias entre nosotras..." dijo Rarity
+Rarity fue la primera en hablar.
 
-"¿CÓMO LO SUPISTE?" exclamó Pinkie Pie sorprendida.
+"Querida, sé que a Twilight le encantará que organices una competencia de trivias entre nosotras..." 
 
-"Lo adiviné", respondió rápidamente Rarity, "pero creo que deberías esperar hasta después del sorteo para empezar con los, uh... preparativos".
+"¿¡CÓMO LO SUPISTE!?" exclamó Pinkie Pie, sorprendida.
 
-"Además, aún no hemos escuchado las ideas de las otras ponis, ¿no es así, Fluttershy?" preguntó Applejack, tratando de incluir a Fluttershy en la conversación.
+"Lo adiviné," respondió Rarity rápidamente, "pero creo que deberías esperar hasta después del sorteo para empezar con los, eh... preparativos."
 
-"S-sí", respondió Fluttershy tímidamente. Parecía haberse recuperado del abrazo 'amistoso' de Pinkie.
+"Además, aún no hemos escuchado las ideas de las otras ponis, ¿verdad, Fluttershy?" añadió Applejack, tratando de incluirla en la conversación.
 
-"Tú también tienes algo preparado, ¿no es así, Fluttershy?" preguntó Pinkie, acercándose con una sonrisa curiosa hacia su amiga.
+"S-sí," respondió Fluttershy tímidamente, acomodada en su asiento y ya más recuperada del abrazo 'amistoso' de Pinkie.
 
-"S-sí..." respondió Fluttershy con aún más timidez.
+"Tú también tienes algo preparado, ¿no es así, Fluttershy?" preguntó Pinkie, acercándose con una sonrisa curiosa.
 
-"¿Nos lo dirás AHORA?" preguntó Pinkie aún más cerca.
+"S-sí..." respondió Fluttershy, aún más tímida.
 
-"NO. Quiero decir, creo que esperaré hasta después del sorteo, si no les importa", respondió Fluttershy con repentina seguridad.
+"¿Nos lo dirás?" insistió Pinkie, acercándose aún más.
 
-"Estoy de acuerdo. Tenemos bastante tiempo para conversar durante el viaje. Además, quisiera que nos cuentes todo lo que pasó en tu viaje al monte Aris, mi querida amiga Fluttershy", dijo Rarity mientras ya se acomodaba en su asiento.
+"S-sí..." murmuró Fluttershy en voz baja, poniéndose más nerviosa.
+
+"¿Nos lo dirás... ¡AHORA!?" exclamó Pinkie, casi pegando su rostro al de Fluttershy.
+
+"¡NO!" respondió Fluttershy con un inusual toque de seguridad que hizo retroceder a Pinkie. "Quiero decir, creo que esperaré hasta después del sorteo, si no les importa."
+
+Ante la firme respuesta de Fluttershy, sus amigas asintieron con una sonrisa.
+
+"Estoy de acuerdo. Tenemos bastante tiempo para conversar durante el viaje. Además, me encantaría que nos cuentes todo lo que pasó en tu gran travesía al Monte Aris, querida amiga Fluttershy," dijo Rarity mientras se acomodaba en su asiento.
 
 Repentinamente, el característico sonido del silbato del tren resonó, anunciando su próxima partida de la estación.
 

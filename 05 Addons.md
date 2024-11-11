@@ -4,13 +4,14 @@ El texto es parte de una historia mas grande compuesta de las siguientes escenas
 
 Escenas:
 
-- El tartaro, una prisión terrible. 
+- Saliendo de Ponyville, Pinkie Pie llega al tren y se encuentra con sus amigas. 
+- En el tren, Pinkie Pie y sus amigas se encuentran con algunos inesperados misterios. 
 
 [
     -> Edita el siguiente fragmento de mi fanfic de my little pony para mejorar (la claridad) (la fluidez) 
     -> Corrige cualquier error gramatical o de puntuación que encuentres. Considera buen uso de los gerundios.
     -> Respeta el uso de comillas dobles "" no las reemplaces
-    -> La escena actual es parte de la descripcion: El tartaro, una prision terrible.
+    -> La escena actual es parte de la descripcion: En el tren, Pinkie Pie y sus amigas se encuentran con algunos inesperados misterios.
 ]
 
 ¿Estas listo para la traduccion?
