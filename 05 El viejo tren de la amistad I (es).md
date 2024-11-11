@@ -122,4 +122,3 @@ Tras un momento de silencio, Rarity hizo la pregunta que todas se estaban hacien
 Applejack y las demás dirigieron la mirada a Rainbow Dash, que se encontraba en una incómoda posición debajo de un asiento.
 
 "Es una historia algo larga. ¿Me pasan un cojín?" pidió una cansada Rainbow Dash con una sonrisa falsa.
-
