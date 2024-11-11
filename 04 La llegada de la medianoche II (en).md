@@ -6,7 +6,7 @@ Beyond this door, a desolate wasteland with unpredictable weather stretches for 
 
 With such characteristics, it’s easy to understand why ponies avoid approaching this place, which becomes a source of dread whenever it's mentioned in conversation.
 
-“…escaping from there is impossible!” “…It’s a pit of darkness and evil!” “…there, loneliness will be your only company—and it won’t be your friend!”
+“…escaping from there is impossible!” “…It’s a pit of darkness and evil!” "…a friend got lost in that place. It was horrible!"
 
 These were the kinds of rumors and fears that Tartarus inspired; its name had become synonymous with "unimaginable suffering" for most ponies. Although some understood it was merely a heavily guarded prison and saw no reason to fear it, few thought this way; the majority were deeply convinced otherwise.
 
