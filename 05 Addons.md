@@ -6,12 +6,13 @@ Escenas:
 
 - Saliendo de Ponyville, Pinkie Pie llega al tren y se encuentra con sus amigas. 
 - En el tren, Pinkie Pie y sus amigas se encuentran con algunos inesperados misterios. 
+- En el tren, Rainbow Dash llega con un misterio persiguiendola
 
 [
     -> Edita el siguiente fragmento de mi fanfic de my little pony para mejorar (la claridad) (la fluidez) 
     -> Corrige cualquier error gramatical o de puntuación que encuentres. Considera buen uso de los gerundios.
     -> Respeta el uso de comillas dobles "" no las reemplaces
-    -> La escena actual es parte de la descripcion: En el tren, Pinkie Pie y sus amigas se encuentran con algunos inesperados misterios.
+    -> La escena actual es parte de la descripcion: En el tren, Rainbow Dash llega con un misterio persiguiendola.
 ]
 
 ¿Estas listo para la traduccion?

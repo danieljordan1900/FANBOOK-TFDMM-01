@@ -91,34 +91,35 @@ Ante la firme respuesta de Fluttershy, sus amigas asintieron con una sonrisa.
 
 "Estoy de acuerdo. Tenemos bastante tiempo para conversar durante el viaje. Además, me encantaría que nos cuentes todo lo que pasó en tu gran travesía al Monte Aris, querida amiga Fluttershy," dijo Rarity mientras se acomodaba en su asiento.
 
-Repentinamente, el característico sonido del silbato del tren resonó, anunciando su próxima partida de la estación.
+De repente, el característico silbato del tren resonó, anunciando su inminente partida de la estación.
 
-"¡Oh, cielos! Rainbow Dash aún no llega. ¿Creen que el conductor del tren acepte esperar un poco más?" preguntó Fluttershy.
+"¡Oh, cielos! Rainbow Dash aún no llega. ¿Creen que el conductor podría esperar un poco más?" preguntó Fluttershy, preocupada.
 
 "No lo sé, querida. El tren ya se ha retrasado bastante hoy", respondió Rarity.
 
-"Esa poni, ¿dónde se habrá metido?" dijo Applejack mirando por la ventana.
+"Esa poni, ¿dónde se habrá metido?" dijo Applejack, mirando por la ventana.
 
-"Tal vez está arriba", dijo Pinkie Pie mientras su cola empezaba a agitarse.
+"Tal vez está arriba", sugirió Pinkie Pie, mientras su cola comenzaba a agitarse.
 
-Un golpe sordo resonó en el techo del vagón. Todas las ponis alzaron la mirada y poco después se escucharon unos rápidos pasos que se dirigían a la escotilla del techo. Esta se abrió y de ella cayó una poni celeste con melena arcoíris.
+Un golpe sordo se oyó en el techo del vagón. Todas las ponis alzaron la mirada, y poco después se escucharon unos pasos rápidos dirigiéndose hacia la escotilla. Esta se abrió de golpe, y de ella cayó una poni celeste con melena arcoíris.
 
-Era la mismísima Rainbow Dash, en una postura firme mirando nerviosamente en todas direcciones.
+Era la mismísima Rainbow Dash, en una postura firme, mirando nerviosamente a su alrededor.
 
-"¿Rainbow Dash, qué crees que estás...?" Antes de que Applejack terminara su pregunta, Rainbow Dash le tapó la boca con su casco.
+"¿Rainbow Dash, qué crees que estás...?" Antes de que Applejack pudiera terminar, Rainbow Dash le tapó la boca con su casco.
 
-"Miren, sé que suena loco, pero tienen que cerrar todas las puertas y ventanas. ¡AHORA!", dijo Rainbow seriamente mientras se escondía debajo de uno de los asientos del vagón de tren. Tras mirarse sorprendidas entre ellas, sus amigas acataron rápidamente su pedido. Poco después, todo el vagón ya estaba asegurado de extremo a extremo.
+"Miren, sé que suena loco, pero tienen que cerrar todas las puertas y ventanas. ¡AHORA!" dijo Rainbow con seriedad, mientras se ocultaba debajo de uno de los asientos del vagón. Sorprendidas, sus amigas intercambiaron miradas y, sin perder tiempo, aseguraron todo el vagón de extremo a extremo.
 
-"Muy bien, Rainbow, ¿qué está...?" Nuevamente, Applejack fue interrumpida por un nuevo golpe en el techo. Pero esta vez, fue acompañado por un claro sonido de olfateo. Unos sigilosos pasos se escucharon dirigiéndose lentamente a la escotilla del techo que habían olvidado cerrar.
+"Bueno, Rainbow, ¿qué está...?" Applejack fue nuevamente interrumpida cuando otro golpe resonó en el techo, acompañado esta vez de un sonido de olfateo. Luego, unos pasos silenciosos se dirigieron lentamente hacia la escotilla, que habían olvidado cerrar.
 
-Las ponis miraron con preocupación cómo una nariz de poni que no dejaba de olfatear comenzaba a asomarse desde la escotilla.
+Las ponis miraron con preocupación cuando una nariz de poni, que olfateaba de forma insistente, comenzó a asomarse desde la escotilla.
 
 El tren silbó una vez más y se puso en marcha.
 
 La misteriosa presencia pareció perder interés y se marchó rápidamente.
 
-Tras un momento de silencio, fue Rarity quien hizo la pregunta obvia. "¿QUÉ FUE TODO ESO?"
+Tras un momento de silencio, Rarity hizo la pregunta que todas se estaban haciendo: "¿QUÉ FUE TODO ESO?"
 
-Applejack y las demás voltearon a ver a Rainbow Dash, que se encontraba en una incómoda postura debajo de un asiento.
+Applejack y las demás dirigieron la mirada a Rainbow Dash, que se encontraba en una incómoda posición debajo de un asiento.
 
-"Es una historia algo larga. ¿Me pasan un cojín?", dijo una cansada Rainbow Dash con una sonrisa falsa.
+"Es una historia algo larga. ¿Me pasan un cojín?" pidió una cansada Rainbow Dash con una sonrisa falsa.
+
