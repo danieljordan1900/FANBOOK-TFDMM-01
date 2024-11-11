@@ -109,11 +109,11 @@ Era la mismísima Rainbow Dash, en una postura firme, mirando nerviosamente a su
 
 "Miren, sé que suena loco, pero tienen que cerrar todas las puertas y ventanas. ¡AHORA!" dijo Rainbow con seriedad, mientras se ocultaba debajo de uno de los asientos del vagón. Sorprendidas, sus amigas intercambiaron miradas y, sin perder tiempo, aseguraron todo el vagón de extremo a extremo.
 
-"Bueno, Rainbow, ¿qué está...?" Applejack fue nuevamente interrumpida cuando otro golpe resonó en el techo, acompañado esta vez de un sonido de olfateo. Luego, unos pasos silenciosos se dirigieron lentamente hacia la escotilla, que habían olvidado cerrar.
+"Listo, Rainbow, ¿qué está...?" tras completar con el pedido de su amiga, Applejack fue nuevamente interrumpida cuando otro golpe resonó en el techo, acompañado esta vez de un sonido de olfateo. Luego, unos pasos silenciosos se dirigieron lentamente hacia la escotilla, que habían olvidado cerrar.
 
 Las ponis miraron con preocupación cuando una nariz de poni, que olfateaba de forma insistente, comenzó a asomarse desde la escotilla.
 
-El tren silbó una vez más y se puso en marcha.
+En ese instante, el tren silbó una vez más y se puso en marcha.
 
 La misteriosa presencia pareció perder interés y se marchó rápidamente.
 
