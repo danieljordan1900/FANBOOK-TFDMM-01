@@ -38,7 +38,7 @@ Applejack y Rarity observaban la escena con sonrisas cómplices. Fluttershy era 
 
 "No lo creo. Ella es—" comenzó Applejack.
 
-"¡Podría haber tenido un accidente! ¡Podría haber perdido la memoria! ¡Podría haber sido secuestrada! ¡Podría estar enferma! ¡Podría haberse caído en una tormenta! ¡Podría estar atrapada en otro mundo! ¡Podría—!"
+"¡Podría haber tenido un accidente! ¡Podría haber perdido la memoria! ¡Podría haberse caído en una tormenta! ¡Podría estar atrapada en otro mundo! ¡Podría—!"
 
 "O... simplemente podría llegar tarde," intervino Rarity con suavidad, intentando calmarla. "No tienes por qué angustiarte tanto, querida. Verás, Rainbow Dash le dejó una nota a Fluttershy de camino a la estación."
 
@@ -108,13 +108,13 @@ Era Rainbow Dash, quien, al aterrizar en el vagón, lanzó una mirada ansiosa a 
 
 "Escuchen, sé que suena a locura, pero tenemos que cerrar todas las puertas y ventanas. ¡AHORA!" ordenó Rainbow con tono urgente, mientras se ocultaba rápidamente debajo de uno de los asientos. Sorprendidas por su comportamiento, las demás intercambiaron miradas y, sin perder tiempo, aseguraron cada rincón del vagón, cerrando todas las puertas y ventanas que veian.
 
-"Listo, Rainbow. ¿Qué está...?" comenzó a decir Applejack, cuando otro golpe resonó en el techo, acompañado esta vez de un inquietante y rítmico sonido de olfateo. Los pasos se acercaron lentamente a la escotilla, que habían olvidado cerrar en su prisa.
+"Listo, Rainbow. ¿Qué está...?" comenzó a decir Applejack, cuando otro golpe resonó en el techo, acompañado esta vez de un inquietante y rítmico sonido de olfateo. Cautelosos pasos se acercaron lentamente a la escotilla del techo, que, en su prisa, habían olvidado cerrar. Las ponis quedaron paralizadas, conteniendo la respiración.
 
-Las ponis contuvieron la respiración al ver una nariz desconocida asomándose por la escotilla, olfateando con insistencia, como si intentara localizar algo.
+Dentro del vagón, apenas iluminado por las cortinas que ellas mismas acababan de cerrar, observaron con creciente tensión cómo una nariz desconocida asomaba por la escotilla, olfateando con insistencia, como si intentara localizar algo.
 
 En ese preciso instante, el silbato del tren resonó nuevamente y la locomotora comenzó a moverse. La misteriosa figura dudó por un segundo, antes de desaparecer rápidamente, como si el movimiento del tren la hubiera hecho desistir.
 
-Las ponis soltaron un suspiro de alivio, y un incómodo silencio se apoderó del vagón. Finalmente, Rarity fue quien rompió el silencio, diciendo lo que todas pensaban:
+Las ponis soltaron un suspiro de alivio, y un incómodo silencio las envolvio. Finalmente, Rarity fue quien rompió el silencio, diciendo lo que todas pensaban:
 
 "¿QUÉ FUE TODO ESO?"
 
