@@ -33,6 +33,8 @@ Escenas:
     ->  Por favor tomate tu tiempo para revisar el texto paso a paso.
 ]
 
+Use the file "01 Prologue - The Day Before Tomorrow (en).pdf" as the main source to generate the podcast. Use English language in the conversation.
+
 
 
 
