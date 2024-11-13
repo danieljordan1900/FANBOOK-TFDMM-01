@@ -84,7 +84,7 @@ Rarity, dejando de lado los manuales y la singular iniciativa de Pinkie, decidi�
 
 "¿Nos lo dirás… ¡AHORA!?" gritó Pinkie, tan cerca que Fluttershy se echó hacia atrás.
 
-"¡NO!" respondió Fluttershy con una firmeza inesperada que sorprendió a Pinkie, quien retrocedió de inmediato. "Quiero decir… prefiero esperar hasta después del sorteo, si no les importa."
+"¡NO!" respondió Fluttershy con intensidad, reincorporándose con una firmeza inesperada que sorprendió a Pinkie, quien se alejó de inmediato. "Es decir… prefiero esperar hasta después del sorteo, si no les importa."
 
 Ante la firme respuesta de Fluttershy, sus amigas asintieron con una sonrisa.
 
