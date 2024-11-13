@@ -86,7 +86,7 @@ Rarity, dejando de lado los manuales y la singular iniciativa de Pinkie, decidi�
 
 "¡NO!" respondió Fluttershy con intensidad, reincorporándose con una firmeza inesperada que sorprendió a Pinkie, quien se alejó de inmediato. "Es decir… prefiero esperar hasta después del sorteo, si no les importa."
 
-Ante la firme respuesta de Fluttershy, sus amigas asintieron con una sonrisa.
+Ante la firme respuesta de Fluttershy, sus amigas asintieron en acuerdo.
 
 "Tienes razón, Fluttershy. Nos queda mucho tiempo para hablar durante el viaje," dijo Rarity con suavidad mientras se acomodaba en su asiento. "Además, me encantaría escuchar todo sobre tu travesía en Monte Aris, querida amiga."
 
