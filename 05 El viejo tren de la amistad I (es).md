@@ -54,7 +54,7 @@ Pinkie lo desdobló rápidamente y, en la inconfundible letra descuidada de Rain
 
 Pinkie notó la mirada inquisitiva de Rarity y respondió de inmediato: "Oh... no es nada sospechoso, ¡es una sorpresa!"
 
-"¿Así que esa fue la razón por la que saliste disparada del vagón cuando te preguntamos qué sorpresa habías preparado para Twilight?" recordó Applejack, aludiendo al momento en que Pinkie había abandonado el tren como un torbellino rosa.
+"¿Así que esa fue la razón por la que saliste disparada del vagón cuando te preguntamos qué sorpresa habías preparado para Twilight?" recordó Applejack, aludiendo al momento en que Pinkie había abandonado el tren como un proyectil rosa.
 
 "Noooo...", respondió Pinkie, algo nerviosa. "Fue porque creí que estos manuales de reglas del juego de trivia serían una lectura perfecta para nuestro viaje en tren," explicó mientras sacaba de sus alforjas varias copias voluminosas del libro Reglamento Oficial de Trivias Equestrianas, 35º Edición, entregando una a cada una de sus amigas con una gran sonrisa.
 
@@ -108,13 +108,13 @@ Era Rainbow Dash, quien, al aterrizar en el vagón, lanzó una mirada ansiosa a 
 
 "Escuchen, sé que suena a locura, pero tenemos que cerrar todas las puertas y ventanas. ¡AHORA!" ordenó Rainbow con tono urgente, mientras se ocultaba rápidamente debajo de uno de los asientos. Sorprendidas por su comportamiento, las demás intercambiaron miradas y, sin perder tiempo, aseguraron cada rincón del vagón, cerrando todas las puertas y ventanas que veian.
 
-"Listo, Rainbow. ¿Qué está...?" comenzó a decir Applejack, cuando otro golpe resonó en el techo, acompañado esta vez de un inquietante y rítmico sonido de olfateo. Cautelosos pasos se acercaron lentamente a la escotilla del techo, que, en su prisa, habían olvidado cerrar. Las ponis quedaron paralizadas, conteniendo la respiración.
+"Listo, Rainbow. ¿Qué está...?" comenzó a decir Applejack, cuando otro golpe resonó en el techo. Cautelosos pasos se acercaron lentamente a la escotilla del techo, que, en su prisa, habían olvidado cerrar. Las ponis quedaron paralizadas, conteniendo la respiración.
 
 Dentro del vagón, apenas iluminado por las cortinas que ellas mismas acababan de cerrar, observaron con creciente tensión cómo una nariz desconocida asomaba por la escotilla, olfateando con insistencia, como si intentara localizar algo.
 
-En ese preciso instante, el silbato del tren resonó nuevamente y la locomotora comenzó a moverse. La misteriosa figura dudó por un segundo, antes de desaparecer rápidamente, como si el movimiento del tren la hubiera hecho desistir.
+En ese preciso instante, el silbato del tren resonó nuevamente y la locomotora comenzó a moverse. La misteriosa figura parecio dudar por un segundo, antes de desaparecer rápidamente, como si la marcha del tren la hubiera hecho desistir.
 
-Las ponis soltaron un suspiro de alivio, y un incómodo silencio las envolvio. Finalmente, Rarity fue quien rompió el silencio, diciendo lo que todas pensaban:
+Tras la partida de la misteriosa figura. Las ponis soltaron un suspiro de alivio, y un incómodo silencio las envolvio. Finalmente, Rarity fue quien rompió el silencio, exclamando en voz alta lo que todas pensaban:
 
 "¿QUÉ FUE TODO ESO?"
 
