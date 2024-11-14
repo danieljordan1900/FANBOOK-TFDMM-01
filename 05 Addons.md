@@ -9,7 +9,7 @@ Escenas:
 - En el tren, Rainbow Dash llega con un misterio persiguiendola
 
 [
-    -> Edita el siguiente fragmento de mi fanfic de my little pony para mejorar (la claridad) (la fluidez) 
+    -> Edita el siguiente fragmento de mi fanfic de my little pony para mejorar (la claridad) (la fluidez) (la comedia)
     -> Corrige cualquier error gramatical o de puntuación que encuentres. Considera buen uso de los gerundios.
     -> Respeta el uso de comillas dobles "" no las reemplaces
     -> La escena actual es parte de la descripcion: En el tren, Rainbow Dash llega con un misterio persiguiendola.

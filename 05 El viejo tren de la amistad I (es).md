@@ -22,7 +22,7 @@ Eso fue todo lo que Pinkie necesitaba. Sin esperar un segundo más, dio un salto
 
 "Ya, ya, Pinkie… ¡Ughh!" intentó responder Fluttershy, sintiendo cómo el abrazo intenso de Pinkie casi la dejaba sin aire.
 
-"¡Toda una temporada en Monte Aris fue demasiado! ¡Sé que los bebés delfines te necesitaban, pero aquí también te extrañábamos!" continuó Pinkie, derramando aún más lágrimas mientras la apretaba con un entusiasmo que amenazaba con estrujarle los costados.
+"¡Toda una temporada en Monte Aris fue demasiado! ¡Sé que los bebés delfines te necesitaban, pero aquí también te necesitábamos!" continuó Pinkie, derramando aún más lágrimas mientras la apretaba con un entusiasmo que amenazaba con estrujarle los costados.
 
 "Lo siento, de verdad... lo siento… ¡Ughh!" gimió Fluttershy, notando cómo su amiga intensificaba el abrazo hasta hacerle cambiar de color.
 
@@ -58,7 +58,7 @@ Pinkie notó la mirada inquisitiva de Rarity y respondió de inmediato: "Oh... n
 
 "Noooo...", respondió Pinkie, algo nerviosa. "Fue porque creí que estos manuales de reglas del juego de trivia serían una lectura perfecta para nuestro viaje en tren," explicó mientras sacaba de sus alforjas varias copias voluminosas del libro Reglamento Oficial de Trivias Equestrianas, 35º Edición, entregando una a cada una de sus amigas con una gran sonrisa.
 
-Rarity y Applejack intercambiaron una mirada suspicaz antes de rodar los ojos. Aunque todas las amigas de Twilight se reunían con ella en el día de su coronación para ayudarla a resolver problemas de amistad en el reino, también aprovechaban días festivos como este para disfrutar juntas sin preocuparse por sus responsabilidades. Por eso, habían acordado que, durante el "Festival de las Dos Hermanas," cada día una de ellas organizaría una actividad especial dedicada a su buena amiga y princesa gobernante. La amiga elegida por sorteo tendría la misión de hacer que la reunión fuera lo más memorable y emocionante posible.
+Rarity y Applejack intercambiaron una mirada suspicaz antes de rodar los ojos. Aunque todas las amigas de Twilight se reunían con ella en el día de su coronación para ayudarla a resolver problemas de amistad en el reino, también aprovechaban días festivos como este para disfrutar juntas sin preocuparse por sus responsabilidades. Por eso, habían acordado que, durante el "Festival de las Dos Hermanas," una de ellas organizaría una actividad especial dedicada a su buena amiga y princesa gobernante. La amiga elegida por sorteo tendría la misión de hacer que la reunión fuera lo más memorable y emocionante posible.
 
 Este desafío ya había sido superado por Rarity y Applejack, así que solo quedaban Fluttershy, Rainbow Dash y Pinkie Pie.
 
@@ -72,19 +72,19 @@ Rarity, dejando de lado los manuales y la singular iniciativa de Pinkie, decidi�
 
 "Además, no hemos oído las ideas de las demás, ¿verdad, Fluttershy?" añadió Applejack, echando una mirada a Fluttershy y animándola a unirse a la conversación.
 
-"Sssí," respondió Fluttershy en voz baja, acurrucada en su asiento y aún recuperándose del 'abrazo amistoso' de Pinkie.
+"S-sí," respondió Fluttershy en voz baja, acurrucada en su asiento y aún recuperándose del 'abrazo amistoso' de Pinkie.
 
 "¿Y tú también tienes algo planeado, Fluttershy?" preguntó Pinkie, acercándose con una sonrisa curiosa.
 
-"Sssí…" susurró Fluttershy, aún más tímida.
+"S-sí…" susurró Fluttershy, aún más tímida.
 
 "¿Nos lo contarías?" insistió Pinkie, inclinándose más cerca.
 
-"Sssí…" murmuró Fluttershy, poniéndose notablemente nerviosa.
+"S-sí…" murmuró Fluttershy, poniéndose notablemente nerviosa.
 
-"¿Nos lo dirás… ¡AHORA!?" gritó Pinkie, tan cerca que Fluttershy se echó hacia atrás.
+"¿Nos lo dirás... ¡AHORA!?" gritó Pinkie, inclinándose tanto que Fluttershy se echó hacia atrás en su asiento.
 
-"¡NO!" respondió Fluttershy con intensidad, reincorporándose con una firmeza inesperada que sorprendió a Pinkie, quien se alejó de inmediato. "Es decir… prefiero esperar hasta después del sorteo, si no les importa."
+"¡NO!" respondió Fluttershy con inesperada firmeza, reincorporándose mientras Pinkie se apartaba, sorprendida. "Es decir... preferiría esperar hasta después del sorteo, si no les molesta."
 
 Ante la firme respuesta de Fluttershy, sus amigas asintieron en acuerdo.
 
