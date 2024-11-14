@@ -104,11 +104,11 @@ Un golpe sordo retumbó en el techo del vagón, haciendo que todas levantaran la
 
 Era Rainbow Dash, quien, al aterrizar en el vagón, lanzó una mirada ansiosa a su alrededor.
 
-"¿Rainbow Dash, qué crees que estás...?" comenzó Applejack, pero su frase quedó a medias cuando Rainbow le cubrió la boca con un casco firme.
+"¿Rainbow Dash, qué crees que estás...?" comenzó a decir Applejack, pero su frase quedó a medias cuando Rainbow le cubrió la boca con un casco firme.
 
 "Escuchen, sé que suena a locura, pero tenemos que cerrar todas las puertas y ventanas. ¡AHORA!" ordenó Rainbow con tono urgente, mientras se ocultaba rápidamente debajo de uno de los asientos. Sorprendidas por su comportamiento, las demás intercambiaron miradas y, sin perder tiempo, aseguraron cada rincón del vagón, cerrando todas las puertas y ventanas que veian.
 
-"Listo, Rainbow. ¿Qué está...?" comenzó a decir Applejack, cuando otro golpe resonó en el techo. Cautelosos pasos se acercaron lentamente a la escotilla del techo, que, en su prisa, habían olvidado cerrar. Las ponis quedaron paralizadas, conteniendo la respiración.
+"Listo, Rainbow. ¿Qué está...?" Applejack fue interrumpida nuevamente, cuando otro golpe resonó sobre sus cabezas. Cautelosos pasos se acercaron lentamente a la escotilla del techo, que, en su prisa, habían olvidado cerrar. Con la vista clavada en la abertura, las ponis quedaron paralizadas, conteniendo la respiración.
 
 Dentro del vagón, apenas iluminado por las cortinas que ellas mismas acababan de cerrar, observaron con creciente tensión cómo una nariz desconocida asomaba por la escotilla, olfateando con insistencia, como si intentara localizar algo.
 
@@ -120,4 +120,4 @@ Tras la partida de la misteriosa figura. Las ponis soltaron un suspiro de alivio
 
 Todas miraron hacia Rainbow Dash, que seguía medio oculta bajo el asiento, con una expresión mezcla de alivio y nerviosismo.
 
-"Es una historia algo larga," respondió Rainbow Dash, esbozando una sonrisa medio forzada mientras intentaba acomodarse. "¿Alguien tiene un cojín?"
+"Es una historia algo larga," respondió Rainbow Dash, esbozando una sonrisa algo forzada mientras intentaba acomodarse. "¿Alguien tiene un cojín?"
