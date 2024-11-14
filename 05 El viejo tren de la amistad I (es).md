@@ -72,15 +72,15 @@ Rarity, dejando de lado los manuales y la singular iniciativa de Pinkie, decidi�
 
 "Además, no hemos oído las ideas de las demás, ¿verdad, Fluttershy?" añadió Applejack, echando una mirada a Fluttershy y animándola a unirse a la conversación.
 
-"S-sí," respondió Fluttershy en voz baja, acurrucada en su asiento y aún recuperándose del 'abrazo amistoso' de Pinkie.
+"Sssí," respondió Fluttershy en voz baja, acurrucada en su asiento y aún recuperándose del 'abrazo amistoso' de Pinkie.
 
 "¿Y tú también tienes algo planeado, Fluttershy?" preguntó Pinkie, acercándose con una sonrisa curiosa.
 
-"S-sí…" susurró Fluttershy, aún más tímida.
+"Sssí…" susurró Fluttershy, aún más tímida.
 
 "¿Nos lo contarías?" insistió Pinkie, inclinándose más cerca.
 
-"S-sí…" murmuró Fluttershy, poniéndose notablemente nerviosa.
+"Sssí…" murmuró Fluttershy, poniéndose notablemente nerviosa.
 
 "¿Nos lo dirás… ¡AHORA!?" gritó Pinkie, tan cerca que Fluttershy se echó hacia atrás.
 
@@ -120,4 +120,4 @@ Tras la partida de la misteriosa figura. Las ponis soltaron un suspiro de alivio
 
 Todas miraron hacia Rainbow Dash, que seguía medio oculta bajo el asiento, con una expresión mezcla de alivio y nerviosismo.
 
-"Es una historia algo larga," respondió Rainbow Dash, esbozando una sonrisa algo forzada mientras intentaba acomodarse. "¿Alguien tiene un cojín?"
+"Es una historia algo larga," respondió Rainbow Dash, esbozando una sonrisa medio forzada mientras intentaba acomodarse. "¿Alguien tiene un cojín?"
