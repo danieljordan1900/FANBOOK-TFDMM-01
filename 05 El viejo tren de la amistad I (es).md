@@ -106,11 +106,11 @@ Era Rainbow Dash, quien, al aterrizar en el vagón, lanzó una mirada ansiosa a 
 
 "¿Rainbow Dash, qué crees que estás...?" comenzó a decir Applejack, pero su frase quedó a medias cuando Rainbow le cubrió la boca con un casco firme.
 
-"Escuchen, sé que suena a locura, pero tenemos que cerrar todas las puertas y ventanas. ¡AHORA!" ordenó Rainbow con tono urgente, mientras se ocultaba rápidamente debajo de uno de los asientos. Sorprendidas por su comportamiento, las demás intercambiaron miradas y, sin perder tiempo, aseguraron cada rincón del vagón, cerrando todas las puertas y ventanas que veian.
+"Escuchen, sé que suena a locura, pero tenemos que cerrar todas las puertas y ventanas. ¡AHORA!" ordenó Rainbow a sus amigas con tono urgente, mientras se ocultaba rápidamente debajo de uno de los asientos. Sorprendidas por su comportamiento, las demás se miraron entre sí y, sin perder tiempo, aseguraron cada rincón del vagón, cerrando todas las puertas y ventanas que veían.
 
-"Listo, Rainbow. ¿Qué está...?" Applejack fue interrumpida nuevamente, cuando otro golpe resonó sobre sus cabezas. Cautelosos pasos se acercaron lentamente a la escotilla del techo, que, en su prisa, habían olvidado cerrar. Con la vista clavada en la abertura, las ponis quedaron paralizadas, conteniendo la respiración.
+"Listo, Rainbow. ¿Qué está...?" Applejack fue interrumpida de nuevo cuando un fuerte golpe resonó sobre sus cabezas. Unos pasos cautelosos se acercaban lentamente hacia la escotilla del techo, que, en su prisa, habían olvidado cerrar. Con la vista fija en la abertura, las ponis quedaron paralizadas y contuvieron la respiración.
 
-Dentro del vagón, apenas iluminado por las cortinas que ellas mismas acababan de cerrar, observaron con creciente tensión cómo una nariz desconocida asomaba por la escotilla, olfateando con insistencia, como si intentara localizar algo.
+Dentro del vagón, apenas iluminado por la tenue luz que se colaba entre las cortinas, todas observaron con creciente tensión cómo una nariz desconocida asomaba por la escotilla, olfateando con insistencia, como si intentara localizar algo.
 
 En ese preciso instante, el silbato del tren resonó nuevamente y la locomotora comenzó a moverse. La misteriosa figura parecio dudar por un segundo, antes de desaparecer rápidamente, como si la marcha del tren la hubiera hecho desistir.
 
