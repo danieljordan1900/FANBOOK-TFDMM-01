@@ -1,12 +1,14 @@
-En uno de los vagones del tren que se dirigía a Canterlot, un joven poni temblaba sentado en medio de una opresiva oscuridad, bajo la débil luz que se filtraba del techo. El joven, cabizbajo entre cajas y equipos de carga, no había dormido la noche anterior y llevaba horas sin probar alimento alguno. Pero, a pesar de su agotamiento físico, su espíritu se mantenía fuerte, manteniéndolo concentrado y despierto. No obstante, la ansiedad que lo embargaba no podía ser ignorada.
+En el tren rumbo a Canterlot, dentro de uno de los vagones de carga, entre cajas apiladas y voluminosos equipajes, un joven poni estaba sentado, envuelto en una opresiva oscuridad. Su rostro, apenas iluminado por la débil luz que se filtraba desde la escotilla del techo, reflejaba nerviosismo. No había dormido la noche anterior y llevaba horas sin probar alimento. Sin embargo, nada de esto era la verdadera causa de la inquietud que lo embargaba. Su espíritu seguía fuerte, su mente clara y alerta. Y precisamente por eso comprendía con dolorosa claridad su situación. Esa era la fuente real de su angustia.
 
-Era consciente de que el momento se acercaba.
+El momento de su prueba definitiva se acercaba.
 
-En medio de esa expectación, decidió abrir la botella de sidra que le habían dado como premio. Era la primera vez en su vida que probaba sidra y al tomarla, el sabor de la bebida solo logró hacer arder su garganta, agravando su malestar. Aun así, siguió bebiendo, consumiendo aproximadamente un tercio de la botella antes de dejarla a un lado. Pronto, los efectos de la bebida disiparon sus temblores y su mente se aclaró aún más. Se sentía listo, pero aún quedaba algo de tiempo, así que decidió encender el reproductor de música que llevaba consigo, se colocó los audífonos y, más relajado, se estiró en el suelo.
+Intentando calmar los nervios, tomó la botella de sidra que sus maestros le habían dado como regalo antes de abordar el tren. Era la primera vez que probaba sidra, y al primer trago, el ardor en su garganta le arrancó una tos seca que resonó en el silencio del vagón. A pesar de la incomodidad, siguió bebiendo, consumiendo aproximadamente un tercio de la botella antes de dejarla a un lado. Poco a poco, el calor de la bebida logró disipar los temblores en sus patas, y su mente se aclaró aún más.
 
-Esos audífonos eran tan nuevos que aún conservaban su caja a un costado, otro regalo que no había deseado pero tampoco podía rechazar. Era probablemente la única oportunidad en su vida de probar semejantes accesorios.
+Con algo de tiempo por delante, encendió el reproductor de música que llevaba consigo, se colocó los audífonos y, algo más relajado, se dejó caer en el suelo.
 
-Intrigado por aquel moderno aparato, el joven poni revisó la caja y leyó para sí mismo: "Audífonos Gamma Silente - Averages C".
+Los audífonos eran tan nuevos que la caja todavía reposaba a un lado, intacta salvo por el sello roto. Otro regalo que no había pedido, pero tampoco podía rechazar. Probablemente, no tendría otra oportunidad de usar algo tan sofisticado en su vida.
+
+Intrigado por aquel moderno aparato, tomó la caja y leyó en voz baja: "Audífonos Gamma Silente - Averages C".
 
 // -----------------------------------
 
@@ -238,7 +240,7 @@ Pinkie Pie agitó su casco derecho en alto, emocionada por la oferta.
 
 // ----------------------
 
-En el retrasado tren que iba de Ponyville a Canterlot, Applejack trotaba hacia el último de los vagones. Se encontró con que estaba cerrado, lo cual no le sorprendió, ya que se trataba de un vagón de carga. Sin embargo, le llamó la atención que estuviera tan fuertemente asegurado, incluso con las ventanas selladas. La poni granjera no le dio más importancia y subió por unas escalerillas hasta el techo del vagón. Pronto divisó a su amiga pegaso de melena arcoíris sentada en el extremo opuesto.
+En el retrasado tren que iba de Ponyville a Canterlot, Applejack trotaba hacia el último de los vagones. Se encontró con que estaba cerrado, lo cual no le sorprendió, ya que se trataba de un vagón especial de carga. Sin embargo, le llamó la atención que estuviera tan fuertemente asegurado, incluso con las ventanas selladas. La poni granjera no le dio más importancia y subió por unas escalerillas hasta el techo del vagón. Pronto divisó a su amiga pegaso de melena arcoíris sentada en el extremo opuesto.
 
 Sin decir una palabra, Applejack avanzó hasta Rainbow y se sentó a su lado. Rainbow no se movió. Su melena había perdido su brillo e incluso sus alas parecían caídas a los lados. Tenía la mirada perdida en algún lugar del camino que dejaba atrás el tren.
 
