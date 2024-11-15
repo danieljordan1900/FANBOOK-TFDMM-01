@@ -33,8 +33,10 @@ Escenas:
     ->  Por favor tomate tu tiempo para revisar el texto paso a paso.
 ]
 
-Use the file "01 Prologue - The Day Before Tomorrow (en).pdf" as the main source to generate the podcast. Use English language in the conversation.
+Please use the file "01 Prologo - El dia antes de mañana (es).pdf" and "02 Prologo - El dia despues de ayer (es).pdf" as the main source to generate the podcast. Please also consider the information from the source "". Please use English in the conversation.
 
+Please only use the sources "01 Prologo - El dia antes de mañana (es).pdf" and "02 Prologo - El dia despues de ayer (es).pdf" as primary sources to generate the podcast. Please consider the additional details from the source "00 Indice.pdf". Please use English in the conversation.
+This is a podcast of a fanfic.
 
 
 
