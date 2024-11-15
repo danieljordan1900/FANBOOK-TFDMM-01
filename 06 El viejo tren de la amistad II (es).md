@@ -1,4 +1,4 @@
-En el tren rumbo a Canterlot, dentro de uno de los vagones de carga, entre cajas apiladas y voluminosos equipajes, un joven poni estaba sentado, envuelto en una opresiva oscuridad. Su rostro, apenas iluminado por la débil luz que se filtraba desde la escotilla del techo, reflejaba nerviosismo. No había dormido la noche anterior y llevaba horas sin probar alimento. Sin embargo, nada de esto era la verdadera causa de la inquietud que lo embargaba. Su espíritu seguía fuerte, su mente clara y alerta. Y precisamente por eso comprendía con dolorosa claridad su situación. Esa era la fuente real de su angustia.
+En el tren rumbo a Canterlot, dentro de uno de los vagones de carga, entre cajas apiladas y voluminosos equipajes, un joven poni estaba sentado, envuelto en una opresiva oscuridad. Su rostro, apenas iluminado por la débil luz que se filtraba desde la escotilla del techo, reflejaba nerviosismo. No había dormido la noche anterior y llevaba horas sin probar alimento. Sin embargo, nada de esto era causa de la inquietud que lo embargaba. Su espíritu seguía fuerte, su mente clara y alerta. Y precisamente por eso comprendía con dolorosa claridad su situación. Esa era la fuente real de su angustia.
 
 El momento de su prueba definitiva se acercaba.
 
@@ -10,7 +10,7 @@ Los audífonos eran tan nuevos que la caja todavía reposaba a un lado, intacta 
 
 Intrigado por aquel moderno aparato, tomó la caja y leyó en voz baja: "Audífonos Gamma Silente - Averages C".
 
-// -----------------------------------
+[---]
 
 "...y eso fue lo que pasó", terminó de hablar Dash con confianza.
 
