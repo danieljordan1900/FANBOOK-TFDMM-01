@@ -12,63 +12,79 @@ Intrigado por aquel moderno aparato, tomó la caja y leyó en voz baja: "Audífo
 
 [---]
 
-"...y eso fue lo que pasó", terminó de hablar Dash con confianza.
+"...y eso fue lo que pasó", concluyó Rainbow Dash con confianza. Frente a ella, sus amigas la escuchaban con atención.
 
-"¡Wow! Eso fue increíble. Peleaste contra un cocodrilo gigante, salvaste a Daring Do de ser devorada por un enjambre de hormigas-langostas y restauraste la paz en un reino de hipopótamos. ¡Eres asombrosa, Dashi!" exclamó emocionada Pinkie Pie, saltando en su asiento.
+"¡Wow! Eso fue increíble. Peleaste contra un cocodrilo gigante, salvaste a Daring Do de ser devorada por un enjambre de hormigas-langostas y restauraste la paz en un reino de hipopótamos. ¡Eres asombrosa, Dashi!" exclamó Pinkie Pie emocionada saltando en su asiento.
 
-"Sí, realmente es una historia 'increíble', Rainbow", comentó Applejack con un tono escéptico a lado de Rarity.
+"Sí, realmente es una historia 'increíble', Rainbow", comentó Applejack, con un tono cargado de escepticismo, mientras miraba de reojo a Rarity.
 
-"Y después de todo eso, Daring Do te entregó el borrador original de su último libro. Vaya..." dijo Fluttershy, pensativa, mientras miraba su propia alforja.
+"Y después de todo eso, Daring Do te entregó el borrador original de su último libro. Vaya..." dijo Fluttershy en voz baja, pensativa, mientras sus cascos jugueteaban con la alforja que llevaba al costado.
 
-"Sí, así es", confirmó Dash.
+"Exactamente, así es como fue. Definitivamente", confirmó Dash, irradiando una seguridad casi desafiante.
 
-Las cuatro ponis observaron el montón de documentos desordenados y maltratados que Dash había dejado sobre uno de los asientos.
+Las cuatro ponis observaron el montón de documentos desordenados y maltratados que Rainbow Dash había colocado con orgullo en uno de los asientos momentos antes.
 
-"Es realmente un documento muy valioso, querida. Pero supongo que, al traerlo aquí, esta es la sorpresa que tienes preparada para Twilight, ¿verdad?" preguntó Rarity.
+"Entendemos que estos documentos son muy valiosos, querida. Y dado que los has traído a nuestra reunión de hoy, supongo que esta es la gran sorpresa que tienes preparada para Twilight, ¿verdad?" preguntó Rarity, entrecerrando los ojos.
 
-"¡Por supuesto! Conociéndola, es posible que ya haya leído el libro diez veces. Pero estoy completamente segura de que la impresionaré cuando le dé esto", respondió Dash, llena de emoción.
+"¡Por supuesto!" exclamó Dash, llena de emoción. "Conociéndola, probablemente ya ha leído el libro diez veces. Pero estoy segura de que quedará muy impresionada cuando vea esto".
 
-La pegaso arcoíris ya se había imaginado varias veces cómo sería lo que sucedería a continuación. Sus amigas la bombardearían con preguntas y alabanzas por su brillante idea, para las cuales incluso ya había preparado algunas respuestas anticipadas. Sin embargo, nada de eso ocurrió. En cambio, sus amigas se miraron entre ellas con preocupación.
+Rainbow Dash ya había imaginado ese momento una y otra vez. Sus amigas la inundarían de preguntas y alabanzas por su brillante idea, y ella respondería con entusiasmo a cada una. Si lograba evitar mencionar 'el otro asunto peligroso', todo lo que había pasado para conseguir esos documentos habría valido la pena.
 
-"¿Qué ocurre?" preguntó Dash, extrañada al ver la falta de entusiasmo de sus compañeras. "¿Acaso no creen que se sorprenderá?".
+Solo necesito su aprobación... nada más.
 
-"Por supuesto que se sorprenderá", respondió Applejack. "Es solo que tu historia no explica nada de lo que sucedió hace un momento".
+Guardando cuidadosamente sus emociones, Dash esperó con una sonrisa. Pero...
 
-"¿Explicar qué?" respondió Dash, fingiendo ingenuidad.
+Nada de eso ocurrió.
 
-"¿Quién era ese poni sospechoso que vimos antes?" preguntó Applejack en tono serio.
+En cambio, sus amigas se miraron entre ellas en silencio, compartiendo expresiones de preocupación.
 
-"Ah, eso, no es importante. Solo es una admiradora que conocí por ahí y que quiere que firme un contrato para convertirme en su modelo estrella. ¿Gracioso verdad?", respondió Dash.
+"¿Qué pasa?" preguntó Dash, sintiendo un escalofrío de inquietud al notar la falta de entusiasmo. "¿Acaso no creen que le sorprenderá?"
 
-Las demás ponis se mostraron extrañadas, Applejack frunció el ceño y Rarity levantó una ceja.
+No lo reflejaba en su rostro, pero por dentro, un miedo creciente le retorcía el estómago.
 
-"¿Una admiradora...?", respondió Applejack, inquisitiva.
+"Por supuesto que se sorprenderá", respondió Applejack, con un tono tranquilo pero firme. "Es solo que tu historia no explica lo que pasó hace un momento".
 
-"Pues deberías hablar con ella. No debería estar acechándote de esa forma. Solo te causará problemas y terminarás más estresada de lo que ya estás", dijo Pinkie mientras comía unos muffins que había sacado de alguna parte. Las otras ponis le lanzaron una breve mirada de reproche, ya que era un consejo un poco descarado considerando que su amiga rosada había actuado de esa forma en numerosas ocasiones en el pasado.
+Un leve tic en el párpado de Dash delató su nerviosismo, aunque ella misma no lo notó.
 
-"¿Estresada? ¿De qué hablas, Pinkie? Estoy perfectamente bien".
+"¿Explicar qué?" replicó de inmediato, fingiendo ingenuidad.
 
-"Pinkie tiene razón, querida. Te ves terrible. ¿Te has visto en un espejo?" dijo Rarity.
+"¿Quién era ese poni sospechoso que vimos antes?" preguntó Applejack con seriedad, clavándole la mirada.
 
-Dash frunció el ceño. No solía confiar en la opinión de Rarity cuando se trataba de su apariencia, ya que solía exagerar. Pero la duda ya se había sembrado, así que decidió consultar a la poni que sabía que nunca le mentiría.
+"¿Ah, eso? No es nada importante", respondió Dash, encogiéndose de hombros con una risa forzada. "Solo era una admiradora que conocí por ahí. Quiere que firme un contrato para ser su modelo estrella. ¿Gracioso, verdad?"
 
-"Fluttershy, ¿realmente me veo tan mal?" dijo Rainbow haciendo a un lado con la mirada a Applejack.
+Sus palabras, deliberadamente simples, apenas si convencieron a nadie. Applejack frunció el ceño, mientras Rarity levantaba una ceja con evidente escepticismo.
 
-"Bueno... sí, no te ves tan mal, pero cuando llegaste realmente me preocupé. Bueno, todas nos preocupamos", respondió Fluttershy mientras le entregaba un espejo a su amiga.
+"¿Una admiradora...?" insistió Applejack, cada vez más inquisitiva.
 
-Dash pronto vio su reflejo. Fluttershy tenía razón. Su melena estaba más desordenada que de costumbre y sus ojos irritados mostraban ligeras ojeras. Aunque seguía viéndose asombrosa, no estaba en su mejor estado.
+"Pues deberías hablar con ella. No debería estar acechándote de esa forma. Solo te traerá problemas y terminarás más estresada de lo que ya estás", dijo Pinkie, sacando de la nada un muffin que mordisqueó despreocupadamente. Las otras ponis le lanzaron una breve mirada de reproche; todas sabían que Pinkie no era la más indicada para dar ese consejo, considerando su historial de conductas similares.
 
-"Pues creo que deberías hablar con tu 'admiradora' y aclararle lo que piensas. Hoy tenemos un día especial con Twilight y estaría mal traerle ese tipo de problemas", reprendió Applejack.
+"¿Estresada? ¿De qué hablas, Pinkie? Estoy perfectamente bien", replicó Dash con una mezcla de exasperación y firmeza.
 
-Dash giró los ojos aburrida. "¡Puff! ¡Te preocupas demasiado, Applejack. ¡Todo está bien!"
+"Pinkie tiene razón, querida. Te ves terrible. ¿Te has visto en un espejo?" comentó Rarity, en su tono usual de exagerada preocupación por la imagen.
 
-En ese momento, sonó la campanilla de la puerta del vagón. Poco después, un empleado del tren asomó la cabeza por la puerta, al mismo tiempo que se escuchaba el bullicio de lo que parecía ser un gran grupo de potros en el otro lado.
+Rainbow frunció el ceño, sintiendo una punzada de irritación. No solía confiar en las opiniones de Rarity sobre su apariencia, pues las consideraba demasiado melodramáticas. Pero la duda ya había sido sembrada, así que decidió dirigirse a quien sabía que nunca le mentiría.
 
-"Oh, disculpen, ¿se encuentra la señorita Rainbow Dash? Varios jóvenes desean conocerla", preguntó el empleado. Del otro lado de la puerta, el bullicio de elogios y gritos de emoción se hizo más fuerte.
+"Fluttershy, ¿realmente me veo tan mal?" preguntó, apartando la mirada de Applejack.
 
-Applejack y el resto de las amigas se volvieron hacia donde estaba sentada Rainbow Dash, pero la pegaso no estaba allí. En cambio, se encontraba asomando la cabeza por una ventana y con el resto de su cuerpo presto a salir del vagón.
+"Bueno... no estás tan mal, pero cuando llegaste realmente me preocupé. Bueno, todas nos preocupamos", admitió Fluttershy en su tono suave, mientras sacaba un pequeño espejo y se lo ofrecía a Dash.
 
-"Ja, ja... hace mucho calor hoy", dijo Dash a sus amigas, ocultando su nerviosismo mientras volvía a tomar asiento.
+Con algo de reticencia, Rainbow observó su reflejo. Fluttershy tenía razón. Su melena estaba más alborotada de lo habitual, sus ojos lucían ligeramente enrojecidos y unas tenues ojeras se asomaban bajo ellos. Aunque seguía viéndose espectacular —según ella misma—, no estaba en su mejor forma.
+
+"Pues creo que deberías hablar con tu 'admiradora' y aclarar las cosas", intervino Applejack, firme. "Hoy tenemos un día especial con Twilight, y no sería justo arruinarlo con este tipo de problemas".
+
+Dash giró los ojos con fastidio, soltando un suspiro. "¡Pff! ¡Te preocupas demasiado, Applejack! ¡Todo está bien!"
+
+En ese momento, el tintineo de la campanilla del vagón interrumpió la conversación. Poco después, un empleado del tren asomó la cabeza, mientras se escuchaba el bullicio creciente de voces jóvenes al otro lado de la puerta.
+
+"Disculpen, ¿se encuentra la señorita Rainbow Dash? Varios potros aqui desean conocerla", anunció el empleado con amabilidad. El ruido del otro lado aumentó, acompañado de gritos emocionados y elogios dirigidos a la pegaso.
+
+Las amigas de Rainbow Dash, que habían dirigido su atención hacia el llamado, giraron de nuevo para buscarla... pero el lugar donde debería estar su amiga estaba vacío.
+
+"¿Rainbow?" preguntó Applejack, parpadeando mientras escudriñaba el vagón.
+
+Unos pasos más adelante, el contorno de Dash era visible. Tenía la cabeza asomada por la ventana, y el resto de su cuerpo adoptaba una postura sospechosamente lista para saltar del tren en movimiento.
+
+"¡Ja, ja! Hace mucho calor hoy, ¿verdad?" comentó Dash con una sonrisa nerviosa, regresando lentamente al centro del vagón mientras evitaba las miradas inquisitivas de sus amigas.
 
 // --------------------
 

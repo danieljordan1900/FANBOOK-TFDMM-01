@@ -29,3 +29,5 @@ Escenas:
 -> Twilight reflexiona sobre los caballeros del orden aprisionados
 -> Twilight y Spike conversan sobre los caballeros del orden aprisionados
 -> Twilight cierra su dificil dia pensando ya en mañana
+
+The podcast should be user-friendly and in English only. Avoid over-extending the duration of the podcast.

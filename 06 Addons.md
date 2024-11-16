@@ -5,12 +5,13 @@ El texto es parte de una historia mas grande compuesta de las siguientes escenas
 Escenas:
 
 - En el tren rumbo a Canterlot, un misterioso poni se oculta. 
+- En el tren rumbo a Canterlot, Rainbow Dash oculta algo a sus amigas.
 
 [
-    -> Edita el siguiente fragmento de mi fanfic de my little pony para mejorar (la claridad) (la fluidez) (la tension ambiental)
+    -> Edita el siguiente fragmento de mi fanfic de my little pony para mejorar (la claridad) (la fluidez) (las emociones)
     -> Corrige cualquier error gramatical o de puntuación que encuentres. Considera buen uso de los gerundios.
     -> Respeta el uso de comillas dobles "" no las reemplaces
-    -> La escena actual es parte de la descripcion: En el tren rumbo a Canterlot, un misterioso poni se oculta.
+    -> La escena actual es parte de la descripcion: En el tren rumbo a Canterlot, Rainbow Dash oculta algo a sus amigas.
 ]
 
 ¿Estas listo para la traduccion?
