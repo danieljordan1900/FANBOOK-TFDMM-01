@@ -1,4 +1,6 @@
-En el tren rumbo a Canterlot, dentro de uno de los vagones de carga, entre cajas apiladas y voluminosos equipajes, un joven poni estaba sentado, envuelto en una opresiva oscuridad. Su rostro, apenas iluminado por la débil luz que se filtraba desde la escotilla del techo, reflejaba nerviosismo. No había dormido la noche anterior y llevaba horas sin probar alimento. Sin embargo, nada de esto era causa de la inquietud que lo embargaba. Su espíritu seguía fuerte, su mente clara y alerta. Y precisamente por eso comprendía con dolorosa claridad su situación. Esa era la fuente real de su angustia.
+En el tren rumbo a Canterlot, dentro de uno de los vagones de carga, entre cajas apiladas y voluminosos equipajes, un joven poni estaba sentado, envuelto en una opresiva oscuridad. Su rostro, apenas iluminado por la tenue luz que se filtraba desde la escotilla del techo, reflejaba nerviosismo. No había dormido la noche anterior y llevaba horas sin probar bocado. Sin embargo, nada de esto era la verdadera causa de la inquietud que lo embargaba. Su espíritu permanecía fuerte, su mente clara y alerta.
+
+Era, más bien, su lucidez (que le permitía comprender su situación con cruel claridad), la fuente real de su angustia.
 
 El momento de su prueba definitiva se acercaba.
 
@@ -62,7 +64,7 @@ Sus palabras, deliberadamente simples, apenas si convencieron a nadie. Applejack
 
 "Pinkie tiene razón, querida. Te ves terrible. ¿Te has visto en un espejo?" comentó Rarity, en su tono usual de exagerada preocupación por la imagen.
 
-Rainbow frunció el ceño, sintiendo una punzada de irritación. No solía confiar en las opiniones de Rarity sobre su apariencia, pues las consideraba demasiado melodramáticas. Pero la duda ya había sido sembrada, así que decidió dirigirse a quien sabía que nunca le mentiría.
+Rainbow frunció el ceño, sintiendo una punzada de irritación. No solía confiar en las opiniones de Rarity sobre su apariencia, pues las consideraba demasiado melodramáticas. Pero la duda ya había sido sembrada, así que decidió dirigirse a la amiga que sabía que nunca le mentiría.
 
 "Fluttershy, ¿realmente me veo tan mal?" preguntó, apartando la mirada de Applejack.
 
@@ -88,77 +90,85 @@ Unos pasos más adelante, el contorno de Dash era visible. Tenía la cabeza asom
 
 // --------------------
 
-El vagón del tren en el que se encontraban las amigas ponis estalló en un ensordecedor bullicio de excitación y aclamaciones.
+El vagón del tren estalló en un ensordecedor bullicio de aclamaciones y gritos de emoción.
 
-"¡ES RAINBOW DASH!", "¡ELLA ES INCREÍBLE!", "¡SÍ!". Corearon con alegría los potros que habían entrado. Sus amigas los observaron con sonrisas, excepto Applejack, quien mantenía una mirada escéptica.
+"¡ES RAINBOW DASH!", "¡ELLA ES INCREÍBLE!", "¡SÍ!" coreaban los potros, desbordantes de alegría, mientras se agolpaban alrededor de su ídolo. Sus amigas los observaban con sonrisas divertidas, excepto Applejack, quien mantenía una expresión escéptica.
 
-"Está bien, yo me encargo de esto", dijo Dash, más animada, dejando atrás a sus amigas. "Wow, supongo que todos vinieron por un autógrafo, ¿verdad?"
+"Está bien, yo me encargo de esto", dijo Dash, animándose visiblemente. Dejó atrás a las ponis y avanzó con seguridad. "¡Wow! Supongo que todos vinieron por un autógrafo, ¿verdad?"
 
-"¡SIIIIII!", relincharon los jóvenes ponis. Algunos saltaban y otros pisoteaban el suelo.
+"¡SÍIIIIII!" relincharon los jóvenes, algunos saltando y otros golpeando el suelo con los cascos en un frenesí de entusiasmo.
 
-"Vale, vale, tranquilos. Formen una fila y denme algo para firmar". Dash voló hacia un asiento y sacó un bolígrafo de algún lugar de su melena. "Bien, ¿quién es el primero?"
+El estruendo de los gritos y el reflejo de su propia figura en los ojos brillantes de sus fans avivaron el espíritu de Rainbow Dash. Agitando sus alas, se elevó en el aire y adoptó su pose más característica. Cualquier rastro de cansancio o debilidad desapareció de su porte, como si la ovación misma hubiera curado mágicamente su agotamiento.
 
-Sin necesidad de más instrucciones, los potros y potras se formaron rápidamente en una fila. La primera era una potra con un sombrero rosa y una cinta, que llevaba un libro que parecía ser de cocina. Con gran alegría, se lo entregó a Dash.
+"Vale, vale, tranquilos. Formen una fila y denme algo para firmar". Dash aterrizó junto a un asiento y, como si hubiera ensayado el momento, sacó un bolígrafo de su melena. "Bien, ¿quién es el primero?"
 
-"Ja, ¿segura de que quieres que firme aquí? Por mí está bien". Rápidamente, Dash pasó su casco sobre el libro abierto.
+Sin dudarlo, los potros y potras se formaron en una fila ordenada. La primera en la fila era una potra con un sombrero rosa y una cinta, quien llevaba un libro que parecía ser de cocina. Con una sonrisa radiante, se lo entregó a Dash.
 
-"¡Siiiii!, ¡claro! Tu receta de Pie de Zarzamora es igual a la de mi abuela", dijo la potra antes de alejarse de la fila.
+"¿Ja? ¿Estás segura de que quieres que firme aquí? Por mí está bien". Dash firmó rápidamente en el libro abierto.
 
-"¿Eh?" dijo Dash confundida. Detrás de ella, se escuchó a Pinkie Pie atragantarse con uno de los muffins que estaba comiendo. "Vale... ¡siguiente!"
+"¡SÍIII! ¡Claro! Tu receta de Pie de Zarzamora es igualita a la de mi abuela", dijo la potra emocionada antes de salir saltando de la fila.
 
-"¡Yo! ¡Yo! Aquí, aquí", era un potro de pelaje azul y zapatillas blancas. Le dio a Dash un folleto de zapatillas para viajes y exploración.
+"¿Eh?" murmuró Dash, confundida. Detrás de ella, se escuchó a Pinkie Pie atragantarse con un muffin, aunque Dash decidió ignorarlo. "Vale... ¡siguiente!"
 
-"¡Esto está mejor! Aquí tienes". Rápidamente, Dash pasó su casco sobre el folleto.
+"¡Yo! ¡Yo! Aquí, aquí", dijo un potro de pelaje azul y zapatillas blancas, entregándole a Dash un folleto de zapatillas de viaje.
 
-"¡Genial! Ahora mis papás tendrán que comprarme las mismas zapatillas que tú usas, ¡siiii!" dijo el potro antes de salir corriendo del vagón.
+"¡Esto está mejor! Aquí tienes". Dash firmó rápidamente el folleto.
 
-Detrás de Dash, se escucharon los murmullos de sus amigas. Dash no se volteó, su rostro ya reflejaba la sensación de que algo no estaba bien.
+"¡Genial! Ahora mis papás tendrán que comprarme las mismas zapatillas que tú usas, ¡siiii!" gritó el potro antes de salir corriendo emocionado.
 
-"Vale, ¡tú!" apuntándola con su casco, Dash detuvo a la siguiente joven potra que tenía pegatinas en su cara. "¿Dónde quieres que firme?"
+Detrás de Dash, sus amigas intercambiaban murmullos. Dash no se giró, pero su sonrisa comenzó a desvanecerse mientras una sensación incómoda se apoderaba de ella. Algo no encajaba.
+
+Todas sus amigas sabían perfectamente que Rainbow Dash no usaba zapatillas.
+
+"Vale, ¡tú!" dijo apuntando con un casco a la siguiente potra, una joven con pegatinas en el rostro. "¿Dónde quieres que firme?"
 
 "En mi revista de moda", respondió alegremente la potra.
 
-"Y eso es porque...?" cuestionó la preocupada pegaso.
+"¿Y eso es porque...?" preguntó Dash, sintiendo un nudo en el estómago.
 
 "¡Porque me encanta tu maquillaje! ¡Tus brillos y pegatinas son divinos! ¡Yiiip!" relinchó la potra emocionada.
 
-Rainbow Dash tomó la revista de la potra y la revisó, una expresión de angustia surgió en su rostro.
+Rainbow Dash tomó la revista casi arrancándosela. Al hojearla, una expresión de angustia cruzó su rostro.
 
-"Vale, aquí tienes tu firma", dijo la pegaso, firmando y despidiendo abruptamente a la potra. "¡GRACIAS POR VENIR, PERO ESO ES TODO!"
+"Vale, aquí tienes tu firma", dijo abruptamente mientras devolvía la revista y despachaba a la potra. Luego se giró hacia la fila restante.
 
-Se escucharon palabras de confusión y decepción entre los potros.
+"¡GRACIAS POR VENIR, PERO ESO ES TODO!" exclamó de repente.
 
-Pero antes de que alguien pudiera quejarse, Dash continuó: ¡CONTINUARÉ CON LOS AUTÓGRAFOS CUANDO EL TREN LLEGUE A LA PRÓXIMA ESTACIÓN! ¡SE LOS PROMETO! ¡PALABRA DE RAINBOW DASH!
+Un murmullo de confusión recorrió a los potros, pero antes de que pudieran protestar, Dash levantó una pezuña y añadió:
 
-Quizás fueran muy educados o confiaran en la promesa de su ídolo Rainbow Dash, pero la gran mayoría decidió obedecer a pesar de estar descontentos. Así, con la ayuda del empleado del tren, Rainbow Dash logró sacar rápidamente a todos los jóvenes ponis del vagón.
+"¡CONTINUARÉ CON LOS AUTÓGRAFOS CUANDO LLEGUEMOS A LA PRÓXIMA ESTACIÓN! ¡SE LOS PROMETO! ¡PALABRA DE RAINBOW DASH!"
 
-Dash suspiró cansada cuando cerró la puerta del vagón después de que el último de los potros la cruzara. Había resuelto un problema, pero ahora tenía otro mayor a sus espaldas.
+Quizás porque confiaban ciegamente en ella o simplemente por cortesía, la mayoría obedeció, aunque algunos no ocultaban su descontento. Con la ayuda del empleado del tren, Rainbow Dash logró guiar a los jóvenes ponis fuera del vagón con rapidez.
 
-"Wow, Rainbow, no sabía que te gustaba usar zapatillas deportivas", dijo Pinkie Pie mientras revisaba un folleto que uno de los potros había dejado caer.
+Dash suspiró con cansancio al cerrar la puerta del vagón tras el último de los potros. Había resuelto un problema, pero ahora sentía uno aún mayor acechándola.
 
-Antes de que pasara un segundo desde que Pinkie terminara de hablar, Dash, a una velocidad considerable, tomó el folleto de Pinkie y todos los demás que estaban en el suelo. Luego los arrojó por una de las ventanas del tren.
+"Wow, Rainbow, no sabía que te gustaba usar zapatillas deportivas", comentó Pinkie Pie mientras examinaba un folleto que uno de los potros había dejado caer.
 
-"Uf, vaya. Esos chicos deberían cuidar mejor dónde dejan su basura. ¡La limpieza es muy importante! ¿No creen?", dijo Dash agitada mientras cerraba la ventana.
+Antes de que pasara un segundo, Dash reaccionó con una velocidad impresionante. Tomó el folleto de Pinkie y recogió rápidamente todos los demás que estaban esparcidos por el suelo, arrojándolos por una de las ventanas del tren.
 
-Sus amigas la miraron desconcertadas por un momento, luego intercambiaron algunas palabras de aceptación entre ellas, con la intención de dejar pasar el asunto. Sin embargo, Applejack no estaba dispuesta a dejarlo pasar.
+"Uf, vaya. Esos chicos deberían cuidar mejor dónde dejan su basura. ¡La limpieza es muy importante! ¿No creen?", dijo Dash, agitada, mientras cerraba la ventana con una sonrisa forzada.
 
-"¡Ya es suficiente! Rainbow Dash, ¿qué estás ocultando?", dijo la poni granjera en un tono severo acercándose a la pegaso.
+Sus amigas la miraron perplejas por un momento. Aunque intercambiaron murmullos intentando dejar el asunto de lado, Applejack no estaba dispuesta a ignorarlo.
 
-"¿Ocultar algo? ¿Qué podría estar ocultando?", dijo Dash con una risa ligeramente tensa.
+"¡Ya es suficiente! Rainbow Dash, ¿qué estás ocultando?" exigió la poni granjera con tono firme, acercándose a la pegaso.
 
-"Desde que llegaste, he sentido que algo NO ESTÁ BIEN, y cuando algo NO ESTÁ BIEN, no puedo quedarme callada. Te lo pregunto de nuevo, ¿QUÉ ESTÁS OCULTANDO, RAINBOW DASH?"
+"¿Ocultar algo? ¿Qué podría estar ocultando?" respondió Dash, soltando una risa tensa y nerviosa.
 
-"Oye, cálmate, Applejack. Todo está bien. No estoy ocultando nada, ¿verdad, chicas?" dijo Dash, buscando el apoyo de sus otras amigas. El resto de sus amigas no respondió.
+"Desde que llegaste, he sentido que algo NO ESTÁ BIEN. Y cuando algo NO ESTÁ BIEN, no puedo quedarme callada. Te lo pregunto de nuevo, ¿QUÉ ESTÁS OCULTANDO, RAINBOW DASH?"
 
-El silencio llenó el vagón de tensión.
+"Oye, cálmate, Applejack. Todo está bien. No estoy ocultando nada, ¿verdad, chicas?" Dash miró a sus otras amigas, buscando su apoyo, pero el silencio fue su única respuesta.
 
-Al percibir de qué lado estaban sus amigas, Dash sintió que ya había tenido suficiente de esa situación y, en un tono molesto, les habló: "Acabo de recordar que necesito comprar algo. Iré a adelantarme. Las veo en Canterlot".
+La tensión llenó el vagón en un instante.
 
-"¡Tú...!" dijo Applejack, ahora realmente molesta, pero fue interrumpida por alguien más.
+Sintiendo el peso del juicio de sus amigas, Dash decidió que ya había tenido suficiente. Con un tono molesto y cortante, habló:
 
-"¿Piensas irte ya, Rainbow Dash? Pensé que querrías pasar más tiempo con tus amigas", se escuchó una voz desconocida preguntar desde el otro lado del vagón.
+"Acabo de recordar que necesito comprar algo. Iré a adelantarme. Las veo en Canterlot".
 
-Todas volvieron la vista hacia el fondo del vagón, ahí estaba la mismísima Magazine Doublereport, cómodamente sentada y tomando un refresco.
+"¡Tú...!" Applejack intentó replicar, claramente molesta, pero fue interrumpida por una voz inesperada.
+
+"¿Piensas irte ya, Rainbow Dash? Pensé que querrías pasar más tiempo con tus amigas", dijo una voz desconocida desde el otro extremo del vagón.
+
+Todas giraron la vista hacia el fondo. Allí, cómodamente sentada y con un refresco en casco, estaba la mismísima Magazine Doublereport.
 
 // 	-----------------------------
 
