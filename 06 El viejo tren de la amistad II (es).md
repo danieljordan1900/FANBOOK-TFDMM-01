@@ -182,73 +182,77 @@ Por supuesto, por obvia formalidad, ella tenía que presentarse, pero lejos de a
 
 Y en ese momento, Magi —como prefería que la llamaran— lo disfrutaba aún más al percibir, mientras se acercaba, el leve destello de miedo en Rainbow Dash.
 
-"¡Hola! ¡Mucho gusto en conocerlas! Soy Magazine Doublereport, dueña y ejecutiva principal del consorcio Averages. Pueden llamarme 'MAGI'. Es un placer conocer a las heroicas y aclamadas amigas de la princesa Twilight Sparkle", dijo rápidamente Magi, con una exclamación entusiasta que casi parecía un relincho.
+"¡Hola! ¡Mucho gusto en conocerlas! Soy Magazine Doublereport, dueña y ejecutiva principal del consorcio Averages. Pueden llamarme 'MAGI'. Es un placer conocer a las heroicas y aclamadas amigas de la princesa Twilight Sparkle", dijo rápidamente Magi con una exclamación entusiasta que casi parecía un relincho.
 
-Una por una, comenzó a saludar con rapidez a las sorprendidas Rarity, Pinkie Pie y Fluttershy, mientras les entregaba unos folletos promocionales.
+Una por una, comenzó a saludar a las sorprendidas Rarity, Pinkie Pie y Fluttershy, mientras les entregaba unos folletos promocionales.
 
 "Oiga, usted no es la poni de hace un momento...", dijo Applejack.
 
-"Y usted debe ser Applejack, ¡mucho gusto!" dijo Magi, tomando el casco derecho de Applejack en un saludo tan efusivo que la granjera cayó mareada hacia un lado al terminar.
+"Y usted debe ser Applejack, ¡mucho gusto!" respondió Magi, tomando el casco derecho de Applejack en un saludo tan efusivo que la granjera cayó mareada hacia un lado al terminar.
 
-Así, Magi, acercándose a cada una, terminó de saludar a todas.
+Así, Magi terminó de saludar a todas las presentes antes de dirigirse al grupo con su radiante sonrisa.
 
-"Disculpen por interrumpir su agradable reunión, pero necesito hablar un momento con su amiga Rainbow Dash", hablo Magi a Applejack y al resto de ponis para luego acercándose a la pegaso arcoíris con excesiva confianza. "Realmente, todas tus amigas se ven tan geniales como mencionaste Dashi. Por cierto, necesito que firmes unos documentos adicionales para incluir al Imperio de Cristal dentro del mercado objetivo de la campaña de marketing. Dash... ¿Dash? ¿estás ahí?"
+"Disculpen por interrumpir su agradable reunión, pero necesito hablar un momento con su amiga Rainbow Dash", anunció, acercandose la pegaso arcoíris con excesiva confianza. "Realmente, todas tus amigas se ven tan geniales como mencionaste, Dashi. Por cierto, necesito que firmes unos documentos adicionales para incluir al Imperio de Cristal dentro del mercado objetivo de la campaña de marketing. Dash... ¿Dash? ¿Estás ahí?"
 
-Rainbow Dash no contestó. En sus ojos aterrados solo se reflejaba lentamente la escena que ocurría frente a ella.
+Rainbow Dash no respondió. Sus ojos aterrados reflejaban lentamente la escena frente a ella.
 
-Pinkie Pie estaba aguantando la risa en su asiento mientras veía un folleto de pijamas en el que Dash aparecía usando unas orejas de conejo. Rarity, atónita, observaba de pie un folleto de moda en el que Dash lucía un elegante vestido de primavera. Fluttershy, por otro lado, parecía no reaccionar en absoluto, o más bien, estaba paralizada por el contenido del folleto de caza amigable y animales disecados que aún sostenía entre sus cascos.
+Pinkie Pie, tratando de aguantar la risa, examinaba un folleto de pijamas en el que Dash aparecía luciendo unas orejas de conejo. Rarity, atónita, observaba un folleto de moda donde Rainbow vestía un elegante atuendo primaveral. Fluttershy, por otro lado, parecía completamente paralizada al sostener entre sus cascos un folleto de "caza amigable" y animales disecados.
 
-Sin esperar a escuchar una palabra de sus amigas, Dash salió disparada como un relámpago arcoíris por una de las ventanas.
+Sin mediar palabra, Dash salió disparada como un relámpago arcoíris por una de las ventanas.
 
-Sus amigas se quedaron sorprendidas por el repentino abandono de su leal amiga.
+Sus amigas se quedaron boquiabiertas, incapaces de procesar el repentino escape de su leal compañera.
 
-"¡Genial! Ahí va de nuevo... ¿Ella siempre es así?" preguntó Magi algo molesta al resto de las ponis.
+"¡Genial! Ahí va de nuevo... ¿Ella siempre es así?" preguntó Magi, claramente molesta, mientras giraba la mirada hacia el resto del grupo.
 
-"¿Quién dijiste que eras?" respondió Applejack, aún desorientada por el saludo anterior.
+"¿Quién dijiste que eras?" intervino Applejack, aún desconcertada por el peculiar saludo de antes.
 
-"Disculpen el comportamiento de nuestra amiga, señorita Magi", dijo Rarity apartando a Applejack. La unicornio había comprendido la posición que Magi tenía. "Pero díganos, ¿qué relación guarda usted con nuestra amiga Rainbow Dash?"
+"Disculpen el comportamiento de nuestra amiga, señorita Magi", dijo Rarity, colocando un casco delante de Applejack para apartarla de la conversación. La unicornio parecía haber captado la importancia de la posición de Magi. "Pero díganos, ¿qué relación guarda usted con nuestra amiga Rainbow Dash?"
 
-"Actualmente soy su representante legal y mánager", respondió Magi después de tomar asiento y acomodarse a su gusto.
+"Actualmente soy su representante legal y mánager", respondió Magi con calma, acomodándose con total naturalidad en su asiento.
 
-"¿Rainbow Dash tiene un mánager?" preguntó de inmediato Pinkie, desconcertada. No era la única, todas, incluyendo a Applejack, se miraron entre sí.
+"¿Rainbow Dash tiene un mánager?" preguntó Pinkie, ladeando la cabeza con evidente desconcierto.
 
-"Creo haber escuchado antes del Consorcio Averages...", murmuró Rarity por lo bajo, parecía estar intentando recordar algo. "Señorita Magi, acaba de mencionar que es la representante legal de nuestra amiga. ¿Podría detallar eso?"
+Las demás, incluida Applejack, intercambiaron miradas perplejas, intentando procesar aquella revelación inesperada.
 
-"Por supuesto señorita Rarity, verá, su amiga Rainbow Dash recientemente firmó un 'contrato vinculante' con el Consorcio Averages para que hiciéramos uso de su imagen y nombre, dada la importancia que ella tiene como cliente estrella. Personalmente yo asumí la responsabilidad de gestionar todos los aspectos legales que la involucran. Es un gran esfuerzo considerando lo agitada que es su 'agenda diaria'. Sin embargo, es una inversión necesaria para convertirla en la nueva y más grande celebridad en toda Equestria", terminó de declarar Magi con una gran sonrisa.
+"Creo haber escuchado antes del Consorcio Averages...", murmuró Rarity, su ceño fruncido mientras trataba de recordar algo. Tras unos instantes, añadió con un tono más serio: "Señorita Magi, esto es muy sorpresivo. No sabíamos de esta relación con nuestra amiga. ¿Podría detallárnoslo, por favor?"
 
-Rarity quedó estupefacta después de escuchar esa declaración, al igual que el resto.
+"Por supuesto, señorita Rarity. Verán, su amiga Rainbow Dash recientemente firmó un 'contrato vinculante' con el Consorcio Averages para permitirnos el uso de su imagen y nombre, dada su importancia como cliente estrella. Personalmente, asumí la responsabilidad de gestionar todos los aspectos legales que la involucran. Es un desafío, considerando lo 'agitada' que suele ser su agenda diaria. Sin embargo, es una inversión necesaria para convertirla en la nueva y más grande celebridad de toda Equestria", explicó Magi con una sonrisa triunfante, como si acabara de cerrar el trato más importante de su vida.
 
-Applejack, por su parte, apenas mostró emoción. Ya esperaba algo malo de esa poni con aspecto de ejecutiva. La poni granjera sabía que un 'contrato vinculante' era algo malo sin importar de dónde se mordiera. No era una experta en temas legales como Twilight, pero su abuela le había contado suficientes historias sobre ese infame documento como para saber qué clase de problemas podía causar.
+Rarity quedó completamente atónita, igual que el resto de sus amigas.
 
-"Así que hizo eso...", dijo Applejack, uniendo cabos en su mente. "Entonces, es por eso que ha estado acechando a nuestra amiga, ¿verdad, señorita Magi?"
+Bueno, casi todas.
 
-Magi, que percibió la hostilidad de Applejack y lo que podría estar pensando, respondió rápidamente.
+Applejack, quien había mantenido una expresión neutral durante toda la conversación, ya había desconfiado de Magi desde el principio. La palabra 'contrato vinculante' no hizo más que confirmar sus sospechas. No era experta en leyes como Twilight, pero su abuela le había contado suficientes historias sobre ese tipo de documentos para saber que no auguraban nada bueno.
 
-"Me gustaría que no hubiera malentendidos entre nosotras, pero la señorita Rainbow Dash recibió un trato justo y fue informada completamente del alcance del documento que firmó con mi organización. En consecuencia, me aseguro de que cumpla con lo acordado", dijo Magi con una sonrisa, pero con tono de seriedad.
+"Así que hizo eso...", murmuró Applejack, uniendo las piezas en su mente. Luego, con tono firme, añadió: "Entonces, es por eso que ha estado persiguiendo a nuestra amiga, ¿verdad, señorita Magi?"
 
-"¿Lo acordado? ¿Y eso qué implica?" preguntó inquisitiva Applejack, esperando una explicación más detallada de Magi.
+Magi, percibiendo la hostilidad en la voz de Applejack y anticipando lo que estaba pensando, respondió rápidamente, con una sonrisa que no alcanzaba a suavizar la seriedad de su tono.
 
-"Bueno, es una explicación desafortunadamente algo larga, no creo que usted y sus amigas tengan el tiempo ..."
+"Me gustaría evitar malentendidos entre nosotras. La señorita Rainbow Dash recibió un trato justo y fue informada completamente del alcance del documento que firmó con mi organización. En consecuencia, simplemente me aseguro de que cumpla con lo acordado."
 
-"¡Lo tenemos!" respondió Applejack firme, interrumpiendo las palabras de Magi, mientras sus amigas asentían confirmado su acuerdo.
+"¿Cumplir con lo acordado? ¿Y eso qué significa?" replicó Applejack, mirándola fijamente, exigiendo más detalles.
 
-"Si es así, entonces puedo darles un breve resumen..." respondió Magi. En su interior, la pegaso ejecutiva suspiró cansada. Aquella charla explicativa no era de su agrado, pero tenía que hacerlo si quería alcanzar los objetivos que tenía en mente.
+Magi dejó escapar un suspiro apenas audible, como si aquella conversación comenzara a resultarle una molestia. "Bueno, es una explicación desafortunadamente larga. No creo que usted y sus amigas tengan el tiempo..."
 
-Sin más que añadir, Magi procedió a explicarles a las amigas ponis cómo, después de conocer a Dash y de que esta firmara un contrato vinculante varios días atrás en las oficinas principales del Consorcio Averages en Manehattan, ella y sus socios comenzaron a utilizar su imagen en publicidades comerciales. Magi aclaró el detalle de que Dash no era la poni que aparecía en los folletos, sino que se trataba de modelos que usaban sus mismos colores. Había sido un proceso complicado y tedioso de maquillaje, pero que al final había contado con la aprobación presencial de Rainbow Dash. Sin embargo, Magi no mencionó que esto último se había logrado mediante mentiras y engaños.
+"¡Lo tenemos!" interrumpió Applejack, firme y decidida. Sus amigas asintieron, dejando claro que estaban dispuestas a escuchar.
 
-Así era como Magazine Doublereport trabajaba, utilizando a veces la manipulación y las amenazas como medios para alcanzar sus objetivos. Su sonrisa, por otro lado, no era falsa; disfrutaba de la satisfacción oscura de tener el control sobre los demás.
+"De acuerdo", aceptó Magi con una ligera inclinación de cabeza. En su interior, suspiró, resignada a dar una explicación que no era de su agrado, pero necesaria para mantener el control de la situación.
+
+Sin más que añadir, Magi procedió a explicarles a las amigas ponis cómo, después de conocer a Dash y de que esta firmara un contrato vinculante varios días atrás en las oficinas principales del Consorcio Averages en Manehattan, ella y sus socios no habian perdido tiempo en utilizar su imagen de Rainbow Dash en sus publicidades comerciales. Magi aclaró el detalle de que Dash no era la poni que aparecía en los folletos, sino que se trataba de modelos que usaban sus mismos colores. Había sido un proceso complicado y tedioso de maquillaje, pero que al final había contado con la aprobación presencial de Rainbow Dash. Sin embargo, Magi no mencionó que todo esto último se había logrado mediante mentiras y engaños, para obtener el concentimiento de la pegaso arcoiris.
+
+Magi no era una buena poni y esta era la forma en la que trabajaba, utilizando a veces la manipulación y las amenazas como medios para alcanzar sus objetivos. Su sonrisa, por otro lado, no era falsa; disfrutaba honestamente de la satisfacción oscura de tener el control sobre los demás.
 
 Al concluir su explicación, una duda flotaba en el aire entre el grupo de amigas.
 
 "Pero, ¿por qué Rainbow Dash querría convertirse en una celebridad comercial? Ella no busca ese tipo de fama", preguntó en voz alta la inocente Fluttershy.
 
-"Es cierto que al principio, su amiga Rainbow Dash no mostró interés en mi propuesta inicial", respondió Magi tranquilamente, mientras daba un sorbo a su refresco. "Sin embargo, cambió de opinión cuando incluí en mi oferta la oportunidad de adquirir los borradores originales del último libro de Daring Do. Estaba emocionada por obtenerlos. Creo que mencionó algo sobre 'ganar una competencia muy especial'. Aunque podría estar equivocada".
+"Es cierto que al principio, su amiga Rainbow Dash no mostró interés alguno en mi propuesta inicial", respondió Magi tranquilamente, mientras daba un sorbo a su refresco. "Sin embargo, cambió de opinión cuando incluí en mi oferta la oportunidad de adquirir los borradores originales del último libro de Daring Do. Estaba muy entusiasta por obtenerlos. Creo recordar que mencionó algo sobre 'ganar una competencia muy especial'. Aunque no estoy segura a que se referia...".
 
 Las cuatro amigas se miraron entre sí y luego observaron la pila de documentos sobre uno de los asientos. Todo comenzaba a encajar. Hacía tres años, las cinco amigas habían hecho una promesa de celebrar o sorprender a su gran amiga Twilight en un día como ese, sin especificar el tipo de celebración (podría ser una fiesta, un regalo u otro detalle), pero dejando muy en claro que lo harían apoyándose mutuamente, sin ningún espíritu competitivo entre ellas. Sin embargo, los hechos recientes indicaban que su amiga pegaso había decidido dejar de lado esa regla.
 
-"Todo esto es realmente impactante, señorita Magi. Nos gustaría saber más sobre este delicado asunto, si no le importa dedicarnos más tiempo...", declaró Rarity, quien comenzaba a comprender el lío en el que se había metido Rainbow Dash.
+"Todo esto es realmente impactante, señorita Magi. Nos gustaría saber más sobre este delicado asunto, si no le importa dedicarnos más de su tiempo...", declaró Rarity, quien ya tenia una idea del alcance del lío en el que se había metido Rainbow Dash.
 
-"No me importa en absoluto, señorita Rarity", interrumpió Magi. "Sin embargo, no dispongo de tanto tiempo para ofrecer más explicaciones. Tengo una reunión con los directivos del consorcio Averages hoy mismo, y Rainbow Dash debe estar presente. Estoy obligada a llevarla a las oficinas en Manehattan, o de lo contrario su amiga podría enfrentar graves problemas legales. No deseo que eso suceda e imagino usted tampoco así que si me lo permiten...".
+"No me importa en absoluto, señorita Rarity", interrumpió Magi. "Sin embargo, no dispongo de tanto tiempo para ofrecer más explicaciones. Tengo una reunión con los directivos del consorcio Averages hoy mismo, y mi cliente estrella Rainbow Dash debe estar presente. Estoy obligada a llevarla a las oficinas en Manehattan, o de lo contrario su 'amiga' podría enfrentar graves problemas legales. No deseo que eso suceda e imagino usted tampoco así que si me lo permiten...".
 
 "No se preocupe por eso, yo iré a buscarla", anunció abruptamente Applejack.
 
