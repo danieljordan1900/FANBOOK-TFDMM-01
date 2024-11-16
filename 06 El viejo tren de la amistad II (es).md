@@ -24,7 +24,7 @@ Intrigado por aquel moderno aparato, tomó la caja y leyó en voz baja: "Audífo
 
 Las cuatro ponis observaron el montón de documentos desordenados y maltratados que Rainbow Dash había colocado con orgullo en uno de los asientos momentos antes.
 
-"Entendemos que estos documentos son muy valiosos, querida. Y dado que los has traído a nuestra reunión de hoy, supongo que esta es la gran sorpresa que tienes preparada para Twilight, ¿verdad?" preguntó Rarity, entrecerrando los ojos.
+"Entendemos que estos documentos son muy valiosos, querida. Y dado que los has traído a nuestra reunión de hoy, supongo que esta tambien es la gran sorpresa que tienes preparada para Twilight, ¿verdad?" preguntó Rarity, entrecerrando los ojos.
 
 "¡Por supuesto!" exclamó Dash, llena de emoción. "Conociéndola, probablemente ya ha leído el libro diez veces. Pero estoy segura de que quedará muy impresionada cuando vea esto".
 
