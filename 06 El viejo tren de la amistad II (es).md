@@ -172,21 +172,61 @@ Todas giraron la vista hacia el fondo. Allí, cómodamente sentada y con un refr
 
 // 	-----------------------------
 
-El tren continuaba avanzando lentamente por la pradera, interrumpiendo su marcha, apacibles rebaños de ovejas cruzaban despreocupadamente el camino hacia Canterlot.
+El avance del tren de Ponyville a Canterlot se habia vuelto lento. En medio de una amplia pradera, interrumpiendo su marcha, apacibles rebaños de ovejas cruzaban despreocupadamente las vias ferreas para fastidio de los apresudaros maquinistas del tren cuya marcha ya se encontraba 'muy' atrasada.
 
-Mientras tanto, en el vagón de invitados especiales, una situación más activa y agitada comenzaba a desarrollarse. La misteriosa pegaso de piel blanca y melena roja con rayas negras se acercó al grupo de amigas con una mirada pícara. Tenía una sonrisa radiante y llena de confianza, propia de un exitoso empresario. Y así era, como lo demostraba la corbata amarilla que llevaba puesta. Magazine Doublereport no necesitaba presentación, su imagen lo decía todo. Sin embargo, no podía evitar las formalidades, especialmente cuando disfrutaba tanto de las actuaciones.
+Por otro lado, en el vagón de invitados especiales, una situación más activa y agitada comenzaba a desarrollarse. Una misteriosa pegaso de pelaje blanca y crin roja con rayas negras habia interrumpido repentinamene la reunion del grupo de amigas. Poniendose de pie, la desconocida yegua se acerco a las ponis con una mirada picara y sonrisa radiante, su porte que solo reflejaba confianza, era el propio al de un exitoso empresario. Y en efecto, asi era, tal como lo demostraba la corbata amarilla que llevaba puesta, los accesorios de officinista que sobresalian de su elegante alforja y el intenso perfume que irradiaba. 
 
-En ese momento, nada le divertía más que el miedo que percibía en Rainbow Dash.
+Magazine Doublereport no necesitaba presentación, su imagen lo decía todo. Especialmente la chapa publicitaria corporativa en su pecho que mostraba una sofisticada letra A de colores rojos, negros y blancos.
 
-"¡Hola! ¡Mucho gusto en conocerlas! Soy Magazine Doublereport, dueña y ejecutiva principal del consorcio Averages. Pueden llamarme 'MAGI'. Es un placer conocer a las heroicas y aclamadas amigas de la princesa Twilight Sparkle", dijo rápidamente Magi con una exclamación que casi parecía un relincho.
+Por supuesto, por obvia formalidad, ella tenia que presentarse, lo cual no le causaba aburrimiento, mas bien ella disfrutaba mucho realizar  esas actuadas teatralidades.
 
-Una por una, comenzó a saludar a las sorprendidas Rarity, Pinkie Pie y Fluttershy, mientras les entregaba unos folletos promocionales.
+Y en ese momento, lo disfrutaba aun mas captando al acercarse el miedo que percibía en Rainbow Dash.
+
+"¡Hola! ¡Mucho gusto en conocerlas! Soy Magazine Doublereport, dueña y ejecutiva principal del consorcio Averages. Pueden llamarme 'MAGI'. Es un placer conocer a las heroicas y aclamadas amigas de la princesa Twilight Sparkle", dijo rápidamente Magi con una exclamación entusiasta que casi parecía un relincho.
+
+Una por una, comenzó a saludar con rapidez a las sorprendidas Rarity, Pinkie Pie y Fluttershy, mientras les entregaba unos folletos promocionales.
 
 "Oiga, usted no es la poni de hace un momento...", dijo Applejack.
 
 "Y usted debe ser Applejack, ¡mucho gusto!" dijo Magi, tomando el casco derecho de Applejack en un saludo tan efusivo que la granjera cayó mareada hacia un lado al terminar.
 
 Así, Magi acercándose a cada una, terminó de saludar a todas.
+
+
+
+El avance del tren de Ponyville a Canterlot se había ralentizado. En medio de una amplia pradera, apacibles rebaños de ovejas cruzaban despreocupadamente las vías férreas, obligando al tren a reducir su velocidad. Los maquinistas, visiblemente frustrados, intercambiaban miradas de fastidio concientes del considerable atraso de la marcha.
+
+En el vagón de invitados especiales, sin embargo, la atmósfera era muy diferente. Una elegante pegaso de pelaje blanco y crin roja con rayas negras había irrumpido abruptamente en la reunión del grupo de amigas. Con una sonrisa radiante y una mirada pícaramente segura, avanzó hacia ellas. Su porte reflejaba una confianza inquebrantable, similar a la de un empresario de renombre. Y, en efecto, lo era. Su corbata amarilla perfectamente anudada, los accesorios de oficinista que asomaban de su pulcra alforja y el intenso perfume que llevaba hablaban de éxito.
+
+Magazine Doublereport no necesitaba presentación; su apariencia lo decía todo. En su pecho brillaba una chapa publicitaria con una sofisticada letra "A" en rojo, negro y blanco, símbolo inconfundible del consorcio Averages.
+
+A pesar de ello, Magi —como prefería que la llamaran— disfrutaba enormemente de las formalidades teatrales de presentarse, y esta ocasión parecía ser una de sus favoritas. Se deleitaba aún más al notar el destello de nerviosismo que destilaba Rainbow Dash al verla acercarse.
+
+"¡Hola! ¡Es un placer conocerlas! Soy Magazine Doublereport, dueña y ejecutiva principal del consorcio Averages. Pueden llamarme 'MAGI'. Es un honor estar frente a las heroicas y aclamadas amigas de la princesa Twilight Sparkle", exclamó con entusiasmo, su tono rozando un relincho de alegría.
+
+Sin perder tiempo, comenzó a saludar a cada una. Con una energía arrolladora, le entregó folletos promocionales a una sorprendida Rarity, hizo reír a Pinkie Pie con un comentario ingenioso y tranquilizó a una Fluttershy tímida pero curiosa.
+
+"Disculpe, pero usted no es la poni que estaba aquí hace un momento...", comentó Applejack, mirándola con suspicacia.
+
+"¡Y usted debe ser Applejack! ¡Mucho gusto!" respondió Magi con una efusividad que tomó a la granjera por sorpresa, estrechándole el casco con tal vigor que Applejack acabó tambaleándose hacia un lado.
+
+Finalmente, después de estrechar los cascos y dirigir sonrisas encantadoras, Magi terminó su ronda de saludos, quedándose frente al grupo con una presencia que parecía llenar el vagón.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 "Disculpen por interrumpir su agradable reunión, pero necesito hablar un momento con su amiga Rainbow Dash", hablo Magi a Applejack y al resto de ponis para luego acercándose a la pegaso arcoíris con excesiva confianza. "Realmente, todas tus amigas se ven tan geniales como mencionaste Dashi. Por cierto, necesito que firmes unos documentos adicionales para incluir al Imperio de Cristal dentro del mercado objetivo de la campaña de marketing. Dash... ¿Dash? ¿estás ahí?"
 
