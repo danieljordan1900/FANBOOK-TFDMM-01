@@ -280,11 +280,13 @@ Mientras tanto, Magi...
 
 [---]
 
-En el retrasado tren que iba de Ponyville a Canterlot, Applejack trotaba hacia el último de los vagones. Se encontró con que estaba cerrado, lo cual no le sorprendió, ya que se trataba de un vagón especial de carga. Sin embargo, le llamó la atención que estuviera tan fuertemente asegurado, incluso con las ventanas selladas. La poni granjera no le dio más importancia y subió por unas escalerillas hasta el techo del vagón. Pronto divisó a su amiga pegaso de melena arcoíris sentada en el extremo opuesto.
+En el retrasado tren que se dirigía de Ponyville a Canterlot, Applejack trotó hacia el último vagón. Cuando llegó, descubrió que estaba cerrado, lo cual no le sorprendió, ya que era un vagón especial de carga. Sin embargo, algo llamó su atención: estaba fuertemente asegurado, con las ventanas selladas. A pesar de su curiosidad, decidió no darle mayor importancia. Subió por unas escalerillas hasta el techo del vagón, buscando a su amiga.
 
-Sin decir una palabra, Applejack avanzó hasta Rainbow y se sentó a su lado. Rainbow no se movió. Su melena había perdido su brillo e incluso sus alas parecían caídas a los lados. Tenía la mirada perdida en algún lugar del camino que dejaba atrás el tren.
+Pronto divisó a Rainbow Dash sentada en el extremo opuesto. Su figura se recortaba contra el horizonte, con la melena arcoíris apagada y las alas caídas a los costados. Parecía inmóvil, perdida en algún punto del camino que el tren iba dejando atrás.
 
-"Vaya... viniste", dijo Rainbow.
+Sin decir una palabra, Applejack caminó hasta ella y se sentó a su lado. Rainbow Dash no se movió ni levantó la mirada.
+
+"Vaya... viniste", dijo Rainbow, rompiendo el silencio.
 
 "Sí."
 
@@ -292,103 +294,123 @@ Sin decir una palabra, Applejack avanzó hasta Rainbow y se sentó a su lado. Ra
 
 "Te gusta ver las cosas en movimiento."
 
-"Sí, es verdad", dijo Dash, volviendo su vista a los rieles del tren.
+Rainbow soltó un débil suspiro, volviendo su mirada a los rieles del tren. "Sí, es verdad."
 
-"Magi ya nos contó una parte de lo que pasó. Pero quisiera escuchar el resto de ti."
+"Magi ya nos contó parte de lo que pasó, pero quiero escucharlo de ti."
 
-"Así, qué bueno...", dijo Dash sin volver a mirarla.
+"Qué bien...", murmuró Rainbow, sin mirarla.
 
-Applejack esperó a que continuara, pero nada ocurrió. "Y bien, ¿entonces me contarás lo que pasó?"
+Applejack esperó, pero Rainbow permaneció en silencio. Finalmente, decidió insistir. "Y bien, ¿me contarás lo que ocurrió?"
 
 "No es tu problema."
 
 "Rainbow..."
 
-"No, en serio, no es tu problema, ni el de las demás. Solo es que yo... hice algo muy estúpido."
+"Te lo digo en serio, no es tu problema. Ni el de las demás. Solo es que... hice algo muy estúpido."
 
-"Y por eso no quieres hablar del asunto. Piensas resolverlo por tu cuenta."
+"¿Y por eso no quieres hablar del asunto? ¿Piensas resolverlo sola?"
 
 "Exacto."
 
-Applejack suspiró y, con un rápido movimiento de casco, golpeó en la cabeza a Rainbow. "¡Auch! ¡OYE!" La pegaso molesta se volteó para ver a su amiga. La poni granjera ahora estaba frente a ella con una mirada severa propia de la familia de los Apple.
+Applejack suspiró. Sin previo aviso, se puso de pie, levantó el casco y dio un suave pero decidido golpe en la cabeza de Rainbow.
+
+"¡Auch! ¡OYE!" exclamó Rainbow, girándose para mirar a su amiga con una mezcla de sorpresa e indignación.
+
+La poni granjera estaba frente a ella, con una expresión severa, propia de la familia de los 'Apple'.
 
 "Dime, Rainbow, ¿en qué momento mi VALIENTE MEJOR AMIGA se convirtió en una COBARDE GALLINA?"
 
-Los ojos de Rainbow Dash se encendieron de ira y parte de su melena pareció recobrar su brillo. Applejack se alegró por dentro al ver aquella reacción, pero ocultó sus emociones. Si quería tener éxito en traer de vuelta a Rainbow junto a las demás, tenía que ser más cuidadosa que un gato con botas.
+Los ojos de Rainbow Dash se encendieron de ira, y un leve destello devolvió algo de vida a su apagada melena. Applejack percibió el cambio y, aunque por dentro sintió una pequeña chispa de alivio, se mantuvo firme. Sabía que, si quería traer de vuelta a la verdadera Rainbow Dash, tendría que manejar la situación con más cuidado que un gato con botas sobre un tejado de cristal.
 
-"NO SOY UNA GALLINA Y ESTO NO ES ASUNTO DE USTEDES", exclamó Rainbow Dash.
+"¡NO SOY UNA GALLINA, Y ESTO NO ES ASUNTO DE USTEDES!", exclamó Rainbow Dash con voz cortante.
 
-"¿REALMENTE ES TAN IMPORTANTE COMO PARA PONER DE LADO NUESTRA AMISTAD?", replicó Applejack, pero Dash no respondió. Al no obtener respuesta, Applejack se dio la vuelta y comenzó a alejarse.
+"¿REALMENTE ES TAN IMPORTANTE COMO PARA PONER DE LADO NUESTRA AMISTAD?", respondió Applejack con firmeza.
 
-Rainbow Dash dudó un momento, pero al ver cómo su amiga se alejaba, voló rápidamente para alcanzarla.
+El silencio de Dash fue su única respuesta. Applejack suspiró, se dio la vuelta y comenzó a alejarse.
 
-"¡OYE, OYE, ESPERA! No las estoy dejando de lado, solo no quiero que se metan en este asunto", dijo Dash tratando de alcanzarla.
+Rainbow Dash vaciló, pero al ver a su amiga distanciarse, se lanzó en vuelo tras ella.
 
-"ES LO MISMO", afirmó Applejack.
+"¡OYE, OYE, ESPERA! No estoy dejando de lado nuestra amistad, solo no quiero que se metan en esto", explicó Dash, alcanzándola.
 
-"NO LO ENTIENDES".
+"ES LO MISMO", replicó Applejack volviendose hacia Rainbow.
 
-"ENTONCES EXPLÍCATE... POR FAVOR", suplicó Applejack.
+"¡NO LO ENTIENDES!"
 
-"Es que... realmente me da mucha vergüenza", dijo Dash dejándose caer.
+"ENTONCES EXPLÍCATE... POR FAVOR", insistió Applejack, esta vez en un tono más suave.
 
-Applejack la observó confundida. "¿Solo eso?"
+Rainbow Dash bajó la mirada, como si estuviera luchando consigo misma. Finalmente, suspiró y confesó: "Es que... realmente me da mucha vergüenza."
 
-"Es mucho más que 'solo eso'", respondió Dash con una mirada de furia.
+Applejack la miró, desconcertada. "¿Solo eso?"
+
+"No es 'solo eso'", replicó Dash, su voz cargada de frustración.
 
 "¿Tan malo es?"
 
-"Sí", Dash permaneció en silencio un momento, pero antes de que Applejack preguntara de nuevo, continuó. "Después de firmar ese estúpido contrato, me llamaron de vuelta. Fue entonces cuando me enteré de que habían estado haciendo promociones de cocina con mi imagen."
+"Sí." Dash guardó silencio por un momento, pero luego continuó, como si las palabras le pesaran en la boca. "Después de firmar ese estúpido contrato, me llamaron de vuelta. Fue entonces cuando descubrí que habían estado haciendo promociones de cocina con mi imagen..."
 
-Applejack la miró confundida. "No suena tan mal, Rainbow. Magi dijo..."
+Applejack arqueó una ceja, intrigada. "No parece tan malo, Rainbow. Magi nos dijo que..."
 
-"También hicieron promociones de belleza".
+"También hicieron promociones de belleza", interrumpió Dash con sudor que caia de su frente.
 
-"Está bien, pero..."
+"Está bien, pero..." 
 
-"También de ropa especial de yegua para el Día de los Corazones Cálidos", dijo Dash tapándose la cara enrojecida.
+"¡Y también de ropa especial de yegua para el Día de los Corazones Cálidos!", estallo finalmente Dash, cubriéndose la cara con las alas mientras un visible rubor teñía sus mejillas.
 
-Applejack guardó silencio por un momento y luego continuó. "¿Hay más?"
+Applejack permaneció en silencio, procesando lo que acababa de escuchar. Después de un momento, preguntó con cautela: "¿Hay más?"
 
-"Sí... mucho más", respondió Dash con una expresión de angustia.
+"Sí... mucho más", admitió Dash, con una mezcla de vergüenza y resignación.
 
-Hubo una larga pausa entre ambas. Solo se escuchaba el sonido del tren avanzando. Applejack comenzó a reflexionar para entender a su agobiada amiga. En el pasado, habían ocurrido situaciones similares debido a rumores infundados en un periódico escolar, y Rainbow Dash no lo había tomado bien en aquel entonces. Ahora, en cambio, su amiga estaba metida en un auténtico lío del cual ella misma se había involucrado por voluntad propia. Considerando el gran ego de su amiga, solo podía imaginar una vergüenza igual de grande que la estaba aplastando por dentro.
+El silencio se instaló entre ambas, roto únicamente por el rítmico traqueteo del tren. Applejack cerró los ojos un instante, reflexionando sobre lo que acababa de escuchar. Recordó cómo Rainbow Dash había reaccionado en el pasado ante situaciones embarazosas, como aquellos rumores infundados que circularon en el periódico escolar. Sin embargo, esta vez era diferente: su amiga no estaba siendo víctima de una mala jugada externa, sino de sus propias malas decisiones.
 
-Applejack suspiró. "Parece que esta vez te has metido hasta el cuello en el lodo. ¿Y a cuántos ponis llegan las revistas de Magi?"
+Conociendo el orgullo de Rainbow Dash, Applejack solo podía imaginar la enorme montaña de vergüenza que estaba cargando, aplastándola desde adentro.
 
-"Según lo que me dijo, todos en Equestria tendrán una revista para finales de la próxima semana. Para entonces, mi imagen pública estará arruinada", respondió Dash.
+Applejack suspiró y rompió el silencio. "Parece que esta vez te has metido hasta el cuello en el lodo. ¿Y cuántos ponis reciben las revistas de Magi?"
+
+"Según lo que me dijo, para finales de la próxima semana, todos en Equestria tendrán una copia. Para entonces, mi imagen pública estará arruinada", respondió Dash, evitando el contacto visual.
 
 "¿Y cómo pensabas solucionarlo?"
 
-"Algo se me ocurrirá... ¡Como siempre!", dijo Dash con una sonrisa confiada, pero luego volteó la mirada hacia otro lado. Applejack sabía que aquel gesto era una mentira.
+"Algo se me ocurrirá... ¡Como siempre!", declaró Dash con una sonrisa confiada, aunque el desvío de su mirada delató la mentira.
 
-El tren continuó avanzando lentamente por la pradera. Se podían ver rebaños de ovejas pastando tranquilamente en el horizonte y otros grupos cruzando el camino del tren. Así transcurrió un intervalo de silencio entre ambas ponis, hasta que Applejack interrumpió el silencio.
+El tren continuaba avanzando lentamente por la pradera. Desde su posición en el techo del vagón, Applejack y Rainbow Dash podían ver rebaños de ovejas pastando tranquilamente en el horizonte. Algunos grupos cruzaban despreocupadamente el camino que el tren dejaba atrás, totalmente ajenos en su propio mundo, las ovejas continuaban pastando, ignorando todo y a todo lo demas.
 
-"¿Y todo por un libro?"
+El silencio volvió a instalarse entre ambas amigas, pesado pero no incómodo, hasta que Applejack, incapaz de contenerse, lo rompió una vez más.
 
-"Sí... Es muy tonto ahora que lo pienso. Realmente podría haber pensado en algo más. Como hacer una excursión o algún tipo de competencia entre nosotras. Pero NO, YO QUERÍA HACER '¡ALGO INCREÍBLE!'", dijo Dash extendiendo sus cascos delanteros al aire y luego dejándose caer lastimosamente. "Creo que, en el fondo, quería hacer algo mejor que lo que tú hiciste".
+"¿Y todo esto por un libro?"
 
-"Rainbow, prometimos que no competiríamos entre nosotras. No para esto", amonestó Applejack.
+"Sí... Es muy tonto ahora que lo pienso", respondió Dash con un suspiro. "Podría haber hecho algo más simple, como una excursión o alguna competencia entre nosotras. Pero ¡NO!, YO TENÍA QUE HACER ÚNICO, ALGO ASOMBROSO, '¡ALGO INCREÍBLE!'", exclamó, levantando sus cascos delanteros al aire con exagerada teatralidad antes de dejarse caer pesadamente contra el techo del vagón. "Creo que, en el fondo, quería hacer algo mejor que lo que tú hiciste."
 
-"¡SÍ LO SÉ! ... lo sé", suspiró Dash agotada.
+"Rainbow, prometimos que no competiríamos entre nosotras. No para esto", le recordó Applejack con un tono firme, pero calido.
 
-"Las demás necesitan escucharlo de ti".
+"¡SÍ LO SÉ! ... lo sé", suspiró Dash, agotada, dejando caer las orejas mientras su mirada se perdía en el paisaje.
+
+"Las demás necesitan escucharlo de ti."
 
 "Sí, pero... las caras que pusieron. No lo soportaré, Applejack. Yo..."
 
-"Estaré ahí, no se reirán", dijo Applejack colocando su casco en el hombro de su amiga.
+"Estaré ahí. No se reirán", aseguró Applejack, colocando suavemente su casco en el hombro de su amiga.
 
-Dash observó a Applejack conmovida, como un niño que recibía el perdón de su madre. Sin embargo, luego bajó la mirada y volvió a ser la de siempre. "Está bien, Applejack. Les contaré todo, pero después de eso, tendré que irme con Magi. Tiene una junta, reunión, lo que sea, y tengo que estar presente. Creo que será corto... espero".
+Rainbow Dash la miró, conmovida. Por un momento, su expresión fue la de un potro que recibe el perdón después de un error, vulnerable y llena de gratitud. Sin embargo, antes de que Applejack pudiera decir algo más, Dash agitó su melena, se limpió el rostro con las alas y enderezó su postura.
 
-La poni granjera se mantuvo en silencio por un momento y luego desvió la mirada.
+El porte decidido que la caracterizaba había regresado. Applejack sintió un súbito impulso de saltar de emoción, pero se contuvo.
 
-"Si es lo que realmente deseas, lo aceptaremos", dijo Applejack con parte de su rostro oculto por su sombrero.
+"Está bien, Applejack. Tú ganas. Les contaré todo, pero después de eso, tendré que irme con Magi. Tiene una junta, reunión... lo que sea, y debo estar presente. Espero que sea rápido... creo", declaró Dash, sus ojos brillando con renovada determinación.
 
-"Umph, gracias..." Dash pareció sospechar de las palabras de Applejack, pero continuó, "Bien, vamos".
+Applejack no había anticipado esa respuesta. Permaneció en silencio, desviando la mirada hacia el horizonte mientras reflexionaba.
 
-Rainbow Dash y Applejack ágilmente bajaron del techo del vagón y regresaron al interior del tren. Al volver, se encontraron con Magi y el resto de sus amigas. Tras un breve saludo, Dash comenzó a explicarles todo lo que había pasado. Aunque omitió varios detalles de su viaje a la Torre Averages, fue bastante clara en cómo había sido tratada y en qué circunstancias había firmado el contrato vinculante con Magi. También narró lo ocurrido después, su regreso a las oficinas de Average y cómo estuvo evadiendo a Magi para que no hiciera más propaganda con su imagen. Así continuó su historia hasta su llegada al tren de aquel día.
+"Si es lo que realmente deseas, lo aceptaremos", dijo finalmente, con parte de su rostro oculto bajo el ala de su sombrero.
 
-----------------
+"Umph, gracias..." Dash frunció el ceño, sospechando de las palabras de Applejack, pero lo dejo pasar. "Bien, vamos."
+
+Con la agilidad que ambas compartían, Rainbow Dash y Applejack bajaron del techo del vagón, regresando al interior del tren.
+
+Tras un corto trayecto, llegaron al vagón destino.
+
+Dentro, se encontraron con Magi y el resto de sus amigas. Tras un breve saludo, Dash tomó aire profundamente. Luego, enfrentándose a sus temores, comenzó a relatar lo sucedido.
+
+Aunque dejó de lado ciertos detalles sobre su estancia en la Torre Averages, fue honesta al describir cómo la habían tratado y las circunstancias que la llevaron a firmar el contrato vinculante con Magi. Contó también sobre su regreso a las oficinas de Average, su desesperado intento de evadir a Magi y la lucha interna que la había llevado hasta aquel día en el tren.
+
+[---]
 
 "Y eso fue lo que realmente pasó", terminó de decir Rainbow Dash.
 
