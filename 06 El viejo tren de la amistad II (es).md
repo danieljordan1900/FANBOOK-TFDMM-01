@@ -428,113 +428,131 @@ Rainbow Dash solo pudo sonreír para sí misma por eso.
 
 [---]
 
-"Y eso fue lo que realmente pasó", terminó de decir Rainbow Dash.
+"Y eso fue lo que realmente pasó", concluyó Rainbow Dash, bajando la mirada.
 
-"¡Oh, cielos! Pero, ¿por qué hiciste todo eso?" preguntó angustiada Fluttershy apenas su amiga terminó de hablar.
+"¡Oh, cielos! Pero, ¿por qué hiciste todo eso?" preguntó Fluttershy, angustiada, apenas su amiga terminó de hablar.
 
-"Yo... yo solo deseaba darle un día increíble a Twilight, mejor que el que ustedes habían preparado", respondió Rainbow Dash, abatida. "Pero cuando las cosas empezaron a salir mal, me desesperé y... terminé metiéndome en este lío."
+"Yo... yo solo deseaba darle un día increíble a Twilight, mejor que el que ustedes habían preparado", respondió Rainbow Dash con voz apagada. "Pero cuando las cosas empezaron a salir mal, me desesperé y... terminé metiéndome en este lío."
 
-Sus amigas la observaron en silencio. Aquellas miradas mezcladas de preocupación y lástima fueron demasiado para Dash, quien rápidamente les dio la espalda.
+Las demás la miraron en silencio, sus ojos reflejando una mezcla de preocupación y lástima. Incómoda bajo esas miradas, Rainbow Dash se giró, dándoles la espalda.
 
 "En fin, ahora tengo que ir a cumplir con el contrato de Magi si no quiero terminar en prisión o algo peor. Díganle a Twilight que la veré..."
 
-"Espera ahí, Rainbow Dash", interrumpió Rarity. "¿No pensarás que te dejaremos ir tan fácilmente, verdad?"
+"Espera ahí, Rainbow Dash", la interrumpió Rarity con firmeza. "¿No pensarás que te dejaremos ir tan fácilmente, verdad?"
 
-"¿Ah? ¿Qué...?" La pegaso no terminó de responder cuando el lazo de Applejack la envolvió rápidamente, inmovilizándola y derribándola al suelo. Applejack se colocó encima de ella, asegurándose de que no pudiera moverse.
+"¿Ah? ¿Qué...?" Antes de que pudiera terminar, el lazo de Applejack se enrolló velozmente alrededor de su cuerpo, inmovilizándola y derribándola al suelo. Applejack se subió encima de ella, asegurándose de que no pudiera escapar.
 
-"¡¿QUÉ CREEN QUE ESTÁN...?!" La boca de Rainbow Dash fue cubierta con una caja de muffins.
+"¡¿QUÉ CREEN QUE ESTÁN...?!", alcanzó a gritar Rainbow antes de que Pinkie Pie le metiera una caja de muffins en la boca.
 
-"Estamos ayudando a una amiga a cumplir una promesa. Eso es lo que estamos haciendo", dijo Pinkie alegremente, sentándose a su lado para asegurar su flanco. Fluttershy también se colocó del otro lado, aunque lucía más apenada.
+"Estamos ayudando a una amiga a cumplir una promesa. Eso es lo que estamos haciendo", explicó Pinkie con una sonrisa despreocupada, acomodándose a su lado para sujetarla mejor. Fluttershy se unió desde el otro lado, aunque con una expresión mucho más apenada.
 
-Dash solo pudo observar, sin poder hacer nada, cómo Rarity se dirigía a Magi.
+Rainbow Dash solo pudo mirar, impotente, mientras Rarity se acercaba a Magi con elegancia.
 
-"Magi, querida, ¿estarías interesada en escuchar una propuesta para que nuestra amiga Rainbow Dash se quede con nosotras por este día?" preguntó Rarity con determinación.
+"Magi, querida, ¿estarías interesada en escuchar una propuesta para que nuestra amiga Rainbow Dash se quede con nosotras por este día?" preguntó Rarity con determinación, esbozando una leve sonrisa.
 
-"Te escucho", respondió impasible la pegaso ejecutiva.
+"Te escucho", respondió Magi con calma, manteniendo su porte impasible.
 
-"Como sabrás, soy propietaria de varias tiendas de vestidos repartidas en toda Equestria. Como joven emprendedora, busco ampliar mis horizontes y unirme a tu Consorcio sería una gran oportunidad para mi negocio. Por supuesto, tendría que estudiar previamente los beneficios que ofrece tu organización, pero puedes considerar que desde hoy tengo un gran interés en ser parte de tu comunidad", concluyó Rarity. Mientras tanto, Rainbow, que estaba prisionera, se agitaba con todas sus fuerzas, con los ojos llenos de desesperación.
+"Como seguramente sabes, soy propietaria de varias boutiques repartidas por toda Equestria. Como joven emprendedora, busco ampliar mis horizontes, y unirme a tu consorcio sería una gran oportunidad para mi negocio. Por supuesto, tendría que analizar cuidadosamente los beneficios que tu organización ofrece, pero puedes considerar que desde hoy tengo un gran interés en formar parte de tu comunidad", concluyó Rarity con tono persuasivo.
 
-"Es una muy interesante propuesta, desafortunadamente tal como mencione antes que su amiga regresara, la situacion de Rainbow Dash escapa de mi control directo, la junta del consorcio no aceptaran que su amiga se halla negado a estar presenta en la reunion de hoy solo por ..." dijo Magi seriamente, pero se detuvo al ver los rostros abatidos del grupo de ponis que estaban al frente suyo. En especial le llamo la atencion la poni llamada Pinkie, tenia un cartel que tenia escrito 'POR FAVOR' mas una carita triste. Empezo a dudar. Despues de observarlas por unos segundos, Magi finalmente suspiro rendida. 
+Mientras tanto, Rainbow, aún atrapada, forcejeaba con todas sus fuerzas. Sus ojos estaban llenos de desesperación, pero su situación no parecía preocupar demasiado a Magi.
 
-"Sin embargo ... puedo decirles que falle en encontrarla." de inmediato estallo la alegria en el vagon del tren, entonces Magi elevo la voz "En cambio conoci a las otras extraordinarias amigas de la princesa y ellas estaban muy entusiasmadas en visitar las oficinas principales del consorcio Average. Que les parece ¿Estan de acuerdo?"
+"Es una propuesta interesante. Desafortunadamente, como mencioné antes de que su amiga regresara, la situación de Rainbow Dash está fuera de mi control directo", respondió Magi con seriedad. "La junta del consorcio no aceptará que su amiga se haya negado a asistir a la reunión de hoy solo por..." Se detuvo al notar los rostros abatidos del grupo de ponis frente a ella.
 
-Rarity volteo a ver a sus amigas y ninguna se mostro en contra, excepto Dash que aun estaba aprisionada por Applejack, la pegaso no dejaba de negar con la cabeza. 
+En especial, llamó su atención Pinkie Pie, quien sostenía un cartel que decía "POR FAVOR" junto a una carita triste. Magi parpadeó, sorprendida, y empezó a dudar. Tras observarlas en silencio por unos segundos, evaluando sus posibilidades, finalmente dejó escapar un suspiro rendido.
 
-"Si, estamos totalmente de acuerdo." dijo Rarity sin preocupacion.
+"Sin embargo... puedo decirles que no logré encontrarla."
 
-"Excelente, las espero entonces." dijo Magi con una sonrisa satisfecha.
+El vagón del tren estalló en alegría. Pero antes de que pudieran celebrar demasiado, Magi alzó la voz.
 
-Applejack finalmente solto a Dash. La pegaso de melena arcoiris de inmediato increpo: "¿EN QUE ESTAN PENSANDO?, ¿ACASO NO ESCUCHARON TODO LO QUE DIJE DE ELLA?"
+"En cambio, conocí a las extraordinarias amigas de la princesa, y ellas estaban muy interesadas en visitar las oficinas principales del Consorcio Average. ¿Qué les parece? ¿Están de acuerdo?"
 
-"Lo entendemos perfectamente, Rainbow Dash. Pero no es la primera vez que tratamos con comerciates de esa calaña. Sin ofender" rápidamente Rarity se dirigio a Magi.
+Rarity miró a sus amigas, quienes asintieron con entusiasmo. Ninguna se opuso, salvo Rainbow Dash, que seguía atrapada por Applejack y negaba con la cabeza enérgicamente, aunque sin éxito.
 
-"Descuida" replico Magi que bebia relajada un refresco sentada en uno de los asientos.
+"Sí, estamos totalmente de acuerdo", dijo Rarity sin ninguna preocupación.
 
-"Rainbow, nosotras hemos asumido riesgos mucho peores en el pasado. ¿Es que lo has olvidado?" cuestiono Applejack
+"Excelente, las espero entonces", respondió Magi con una sonrisa satisfecha.
 
-"Pero esto es diferente, no es un mounstruo o alguna amenaza extraña que quiera acabar con Equestria. Es MI ESTUPIDO ERROR. No se supone que ustedes tambien tengan que cargar con eso." dijo Dash molesta pero con unas pequeñas lagrimas asomando en sus ojos.
+Applejack finalmente soltó a Rainbow Dash. La pegaso de melena arcoíris no tardó en increparlas: "¿¡EN QUÉ ESTÁN PENSANDO!? ¿¡ACASO NO ESCUCHARON TODO LO QUE DIJE SOBRE ELLA!?"
 
-"Ya, ya, esta bien Dashi, no es tan malo. Todos cometemos errores. Ademas solo es una visita a una sospechosa empresa en donde probablemente podrian lavarnos el cerebro." dijo Pinkie Pie apoyandose en Dash. Atras de ellas Magi levanto una ceja.
+"Lo entendemos perfectamente, Rainbow Dash. Pero no es la primera vez que tratamos con comerciantes de esa calaña. Sin ofender", añadió Rarity rápidamente, volviendo su mirada hacia Magi.
 
-"Siempre puedes contar con nosotras. Y no olvides a Twilight, ella podria ayudarte a arreglar tu problema legal." dijo Fluttershy acercandose a su otro lado.
+"Descuida", replicó Magi, bebiendo relajada un refresco desde uno de los asientos.
 
-"Cierto ella podria ayudar, esperen Twilight ... ¡AUN NO SORTEAMOS QUIEN SE ENCARGARA DE LA SORPRESA DE HOY!" exclamo preocupada Dash.
+"Rainbow, hemos asumido riesgos mucho peores en el pasado. ¿Es que lo has olvidado?" cuestionó Applejack con tono firme.
 
-"No te preocupes por eso tontita, yo cedo mi lugar" dijo Pinkie sin una pizca de arrepentimiento. 
+"¡Pero esto es diferente! No es un monstruo ni una amenaza extraña que quiera destruir Equestria. ¡Es MI ESTÚPIDO ERROR! No deberían tener que cargar con esto también", dijo Dash, frustrada, mientras unas pequeñas lágrimas comenzaban a asomarse en sus ojos.
 
-"Yo tambien" añadio Fluttershy.
+"Ya, ya, tranquila, Dashi. No es tan malo. Todos cometemos errores. Además, solo es una visita a una sospechosa empresa donde probablemente podrían lavarnos el cerebro", comentó Pinkie Pie, apoyándose despreocupada en Dash. Detrás de ellas, Magi levantó una ceja, intrigada.
 
-"Chicas ... ustedes ..." Dash ya no contuvo mas sus lagrimas y pronto todas se dieron un abrazo de grupo como tantas veces habian hecho antes.
+"Siempre puedes contar con nosotras. Y no olvides a Twilight; seguro podría ayudarte a resolver tu problema legal", añadió Fluttershy, acercándose al otro lado de Dash.
 
-Afuera el sol aun brillaba como siempre y el tren, que ahora se movia a toda velocidad, avanzaba constante en medio de la pradera.
+"Cierto, ella podría ayudar. Esperen... ¡Twilight! ¡AÚN NO SORTEAMOS QUIÉN SE ENCARGARÁ DE LA SORPRESA DE HOY!" exclamó Dash, de repente preocupada.
 
-Mientras las amigas ponis se daban un abrazo de equipo, Magi las observo pensativa. "¿Era esta la magia de la amistad de la que tanto había escuchado hablar?" Algo dentro de la pegaso ejecutiva empezó a agitarse. Finalmente se levanto.
+"No te preocupes por eso, tontita, yo cedo mi lugar", dijo Pinkie Pie con una gran sonrisa, sin mostrar el menor rastro de arrepentimiento.
 
-"Perdonen por interrumpir, pero ¿realmente esta bien que esten tan separadas?" dijo Magi de pie en medio del pasillo. Applejack y el resto se voltearon para mirarla. En ese momento, Magi aún mantenía un semblante agradable y comprensivo, pero se percibía un ligero matiz de molestia en su voz.
+"Yo también", agregó Fluttershy con una dulce sonrisa.
 
-"¿A que te refires querida?" pregunto Rarity
+"Chicas... ustedes..." Dash ya no pudo contener más sus lágrimas, y pronto todas se abrazaron en grupo, como tantas veces lo habían hecho antes.
 
-"Chicas, todas ustedes forman un equipo increíble y han logrado tantas cosas juntas. Muchos ponis terrestres, pegasos y unicornios las admiran en toda Equestria. Entonces, ¿por qué no siguen siendo un equipo y gobiernan directamente junto al trono de la princesa Twilight?"
+Afuera, el sol seguía brillando con intensidad, mientras el tren nuevamente avanzaba a toda velocidad a través de la vasta pradera.
 
-El quinteto de amigas se miró entre sí. Después de unos segundos de silencio, Applejack fue la que respondió acercándose a Magi.
+Mientras las amigas ponis disfrutaban de su abrazo de equipo, Magi las observaba en silencio, pensativa. "¿Era esta la magia de la amistad de la que tanto había oído hablar?" Algo oscuro y profundo dentro de la pegaso ejecutiva comenzó a agitarse. Finalmente, se levantó de su asiento.
 
-"Escucha, Magi, es cierto que cada una de nosotras tiene un gran talento y también es verdad que hemos logrado muchas cosas increíbles junto a Twilight. Sin embargo, gobernar Equestria de esa manera con ella no sería lo correcto", sentenció Applejack.
+"Perdonen la interrupción, pero ¿realmente está bien que estén tan separadas?" dijo Magi, ahora de pie en medio del pasillo.
 
-"¿No sería lo correcto? ¿Cómo puede ser?", respondió Magi casi indignada.
+Applejack y el resto se giraron para mirarla. A pesar de que Magi mantenía un semblante agradable y comprensivo, había un leve matiz de molestia en su voz.
 
-"Cuando conocimos a Twilight, ella estaba en una misión para aprender sobre la magia de la amistad en nuestro hogar, Ponyville. Desde aquel momento, Twilight comenzó a aprender muchas lecciones de amistad de nosotras. Pero nosotras también aprendimos de ella. Y una de las primeras lecciones que aprendimos fue que todo tiene su lugar y su momento. Ciertamente, a todas nos gustaría estar más tiempo a su lado. Pero si fuera así, con el paso del tiempo nos convertiríamos en una carga y es muy probable que eso no le permita crecer como la gran princesa que puede llegar a ser. Queremos lo mejor para nuestra amiga. Es por eso que en este caso nos hacemos a un lado", concluyó solemnemente Applejack  mientras el resto de sus amigas asentían en silencio, confirmando lo que había dicho.
+"¿A qué te refieres, querida?" preguntó Rarity, arqueando una ceja con curiosidad.
 
-Magi tenía una expresión de incredulidad por lo que había escuchado.
+"Chicas, todas ustedes forman un equipo increíble y han logrado cosas admirables juntas. Muchos ponis terrestres, pegasos y unicornios las admiran en toda Equestria. Entonces, ¿por qué no siguen siendo un equipo y gobiernan directamente junto al trono de la princesa Twilight?"
 
-"Además, ninguna de nosotras sabría cómo comportarse adecuadamente como alguien de la realeza..." detrás de Applejack se escuchó el carraspeo de voz de Rarity "... bueno, algunas de nosotras sí."
+El quinteto de amigas intercambió miradas. Tras varios segundos de silencio, fue Applejack quien dio un paso adelante y respondió.
 
-Las risas nuevamente inundaron el vagón mientras Rarity reprendía a las demás. "¡Pero si es verdad!"
+"Escucha, Magi, es cierto que cada una de nosotras tiene un gran talento y también es verdad que hemos logrado muchas cosas increíbles junto a Twilight. Sin embargo, gobernar Equestria de esa manera con ella no sería lo correcto", sentenció Applejack con seguridad.
 
-Magi observó al grupo de amigas riendo juntas como una sola yegua. Parecia que el conflicto de habia ocurrido un momento atras jamas hubiera existido.
+"¿No sería lo correcto? ¿Cómo puede ser?" respondió Magi, casi indignada.
 
-"Realmente yo..." dijo Magi todavía incrédula, pero de inmediato se contuvo. "...la verdad, sigo sin poder entenderlo."
+"Cuando conocimos a Twilight, ella estaba en una misión para aprender sobre la magia de la amistad en nuestro hogar, Ponyville. Desde aquel momento, Twilight comenzó a aprender muchas lecciones de amistad de nosotras. Pero nosotras también aprendimos de ella. Una de las primeras lecciones que nos enseñó fue que todo tiene su lugar y su momento. Claro que a todas nos encantaría pasar más tiempo a su lado, pero si lo hiciéramos, con el tiempo nos convertiríamos en una carga, y eso probablemente le impediría crecer como la gran princesa que puede llegar a ser. Queremos lo mejor para nuestra amiga. Por eso, en este caso, nos hacemos a un lado", concluyó solemnemente Applejack, mientras el resto de sus amigas asentían en silencio, respaldando sus palabras.
 
-"No es tan difícil, es como dicen, si amas algo, déjalo ir", respondió Applejack con elocuencia.
+Magi observó con incredulidad, incapaz de procesar lo que acababa de escuchar.
 
-"¡NUNCA!" respondió cortante Magi. "Eh, quiero decir... nunca he entendido bien ese refrán, ¿dejar de lado lo que amas? Ja, ja, realmente suena algo tonto, ja, ja". Magi había alterado torpemente su temperamento. Las palabras de Applejack habían tocado inesperadamente una fibra sensible en ella, y sin darse cuenta, había mostrado su verdadera forma de ser.
+"Además, ninguna de nosotras sabría cómo comportarse adecuadamente como alguien de la realeza...", añadió Applejack, cuando un leve carraspeo detrás de ella la interrumpió.
 
-Applejack y el resto de ponis la miraron extrañadas.
+"...Bueno, algunas de nosotras sí", dijo Rarity con un aire altivo.
 
-La pegaso ejecutiva comenzó a retroceder nerviosa.
+Las risas no tardaron en llenar el vagón mientras Rarity fingía reprenderlas. "¡Pero si es verdad!"
 
-"Oye, ¿estás bien?" preguntó Applejack.
+Magi observó al grupo de amigas riendo juntas, como si el conflicto de hacía unos momentos nunca hubiera existido.
 
-"No... quiero decir, sí, sí, solo que acabo de recordar que tengo otra reunión. ¡Vaya que tarde es!" rápidamente Magi desvió la conversación y comenzó a guardar todos los materiales de su presentación. De reojo, observó brevemente a las otras ponis. No era bueno. Ellas empezaban a mirarla con sospecha. Se reprendió a sí misma. No se suponía que las cosas salieran así. Había planeado dividirlas como objetivo principal, y si eso resultaba demasiado difícil, al menos debería ganarse su confianza. Pero no había logrado ninguno de sus objetivos, y ahora la imagen que habia proyectado de si misma estaba en peligro. Tenía que retirarse y replantear su estrategia de inmediato.
+"Realmente, yo...", comenzó Magi, aún incrédula, pero se contuvo rápidamente. "...la verdad, sigo sin poder entenderlo."
 
-"¡Oh, cielos! No encuentro mis folletos de viaje. ¿Podría alguien abrir las ventanas? Está algo oscuro y no veo bien", dijo Magi falsamente preocupada mientras terminaba de revisar su maleta. Al mimo tiempo ya pensaba en su escape, observo confiada la escotilla en el techo del vagon.
+"No es tan complicado. Como dicen, si amas algo, déjalo ir", respondió Applejack con elocuencia.
 
-"Las ventanas ya están abiertas", dijo Pinkie Pie extrañada.
+"¡NUNCA!" respondió Magi abruptamente, para luego corregirse torpemente. "Eh... quiero decir, nunca he entendido bien ese refrán. ¿Dejar de lado lo que amas? Ja, ja... suena algo tonto, ¿no? Ja, ja."
 
-Magi y las demás ponis también lo notaron.
+El cambio repentino de actitud no pasó desapercibido. Las palabras de Applejack habían tocado una fibra sensible en Magi, quien sin darse cuenta había dejado entrever su verdadera naturaleza.
 
-Aquello era extraño. Apenas había pasado el mediodía y, sin embargo, afuera ya estaba tan oscuro como si fuera a caer pronto la noche.
+Applejack y las demás ponis la miraron extrañadas.
 
-Fue en ese momento que el intenso silbido del tren se escuchó en el vagón, sorprendiendo a todas. Un momento después, el caos se desató.
+La pegaso ejecutiva retrocedió nerviosa.
+
+"Oye, ¿estás bien?" preguntó Applejack, frunciendo el ceño.
+
+"¡No! Bueno... sí, sí. Solo que acabo de recordar que tengo otra reunión. ¡Vaya, qué tarde se ha hecho!" respondió Magi apresuradamente mientras comenzaba a guardar los materiales de su presentación. De reojo, observó a las ponis, notando las miradas de sospecha que empezaban a dirigirle.
+
+No estaba bien. Las cosas no habían salido como esperaba. Su plan original era dividirlas, y si eso no funcionaba, al menos ganarse su confianza. Pero ahora no había logrado ninguno de sus objetivos, y su imagen comenzaba a tambalearse. Necesitaba retirarse y replantear su estrategia de inmediato.
+
+"¡Oh, cielos! No encuentro mis folletos de viaje. ¿Podría alguien abrir las ventanas? Está algo oscuro y no veo bien", dijo Magi, fingiendo preocupación mientras revisaba su maleta con movimientos apresurados. En realidad, ya estaba calculando su escape, echando un vistazo rápido a la escotilla en el techo del vagón.
+
+"Las ventanas ya están abiertas", respondió Pinkie Pie con extrañeza.
+
+Magi, junto con las demás, se dio cuenta de que era cierto.
+
+Era extraño. Apenas había pasado el mediodía, pero afuera estaba tan oscuro como si la noche estuviera a punto de caer.
+
+Entonces, un intenso silbido del tren resonó a través del vagón, sobresaltando a todas. Un instante después, el caos se desató.
+
+[---]
 
 Abruptamente, el tren había frenado su marcha.
 
