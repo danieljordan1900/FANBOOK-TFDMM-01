@@ -570,7 +570,7 @@ En el vagón de las amigas ponis, la situación no era diferente.
 
 "¡Muuu hu... tengo... una... pezuña... agg... en mi boca!"
 
-"Mmmmmm mmmm mmm mmm."
+"Uhmmm uhmmmm uhmmmm."
 
 Rainbow Dash fue la primera en reaccionar. Empujó a quien estuviera sobre ella y, a tientas, comenzó a buscar el interruptor de emergencia. Momentos después, una tenue luz rojiza llenó el vagón, revelando el caos.
 
