@@ -556,11 +556,11 @@ Entonces, un intenso silbido del tren resonó a través del vagón, sobresaltand
 
 Abruptamente, el tren había frenado su marcha.
 
-Sin ninguna oportunidad de reaccionar e impulsadas por la inercia, las seis ponis fueron empujadas contra un extremo del vagón chocando unas con otras. Las luces se apagaron y solo se pudo escuchar el estridente freno del tren deteniéndose. Así continuó por varios segundos más, hasta que finalmente se detuvo.
+Sin tiempo para reaccionar y arrastradas por la inercia, las seis ponis fueron lanzadas hacia un extremo del vagón, chocando unas contra otras en un torpe amasijo. Las luces se apagaron de golpe, y el estridente chillido de los frenos llenó el aire durante varios segundos hasta que, finalmente, el tren quedó inmóvil.
 
-Dentro de los oscuros vagones del tren detenido reinaba la confusión y el miedo entre los pasajeros. Afuera también había oscuridad.
+Dentro de los vagones oscuros, el miedo y la confusión reinaban entre los pasajeros. Afuera, la negrura era total, como si la noche hubiera caído de repente.
 
-En el vagón de las amigas ponis, la situación era igual.
+En el vagón de las amigas ponis, la situación no era diferente.
 
 "¿Chicas, están bien? ¡Ay, mi ala!"
 
@@ -568,57 +568,63 @@ En el vagón de las amigas ponis, la situación era igual.
 
 "¡No siento mi cola!"
 
-"Muuu hu ... ¡Tengo ... una ... pezuña ... agg ... en mi boca!"
+"¡Muuu hu... tengo... una... pezuña... agg... en mi boca!"
 
-"Mmmmmm mmmm mmm mmm"
+"Mmmmmm mmmm mmm mmm."
 
-Dash fue la primera en reaccionar, empujó a quienquiera que estuviera sobre ella y, sin ninguna luz, buscó a tientas el interruptor de emergencia del tren. Pronto, el vagón se llenó de una luz rojiza, revelando el caótico estado de las ponis.
+Rainbow Dash fue la primera en reaccionar. Empujó a quien estuviera sobre ella y, a tientas, comenzó a buscar el interruptor de emergencia. Momentos después, una tenue luz rojiza llenó el vagón, revelando el caos.
 
-Tal como había supuesto, encima de ella había estado Fluttershy. A quien había empujado y que ahora se encontraba, aún aturdida, en uno de los asientos. Más atrás estaban el resto de sus amigas, que se hallaban en un estado de enredo de extremidades y melenas.
+Tal como había imaginado, Fluttershy estaba encima de ella. La pegaso amarilla, aturdida, se deslizó hacia uno de los asientos. Más atrás, el resto de sus amigas formaban un enredo de extremidades y melenas desordenadas.
 
-"¡No es momento de descansar, Fluttershy!" amonestó la pegaso arcoíris. "Ayudemos al resto. ¡Ahora!"
+"¡No es momento de descansar, Fluttershy!" reprendió Rainbow Dash, poniéndose de pie. "¡Ayudemos al resto, ahora!"
 
-"Sí, sí..." dijo Fluttershy, aún aturdida. De inmediato, agitó su cabeza y, algo recuperada, ayudó a Dash a desenredar a sus amigas ponis.
+"Sí, sí... lo siento", respondió Fluttershy, sacudiendo la cabeza para despejarse. Con algo más de claridad, se apresuró a ayudar a Dash a liberar al resto del grupo.
 
-Pronto pusieron de pie al resto de sus amigas.
+Pronto, todas estuvieron nuevamente de pie.
 
-"Cof cof, ¡Gracias al cielo!" dijo agradecida Rarity a las dos pegasos. Fue la primera en ponerse de pie y le había sacado de la boca el casco inferior izquierdo de Applejack."
+"¡Cof, cof! ¡Gracias al cielo!" exclamó Rarity con un suspiro de alivio. Fue la primera en incorporarse, después de quitarse el casco izquierdo de Applejack que había terminado en su boca.
 
-"¡Gracias Fluttershy! Pero aún no siento mi cola...", dijo apenada Pinkie Pie, mientras se levantaba con la ayuda de Fluttershy. En efecto, su esponjosa cola había perdido mucho de su volumen. Dash no le prestó atención mientras ayudaba a Applejack.
+"Gracias, Fluttershy. Pero... aún no siento mi cola...", murmuró Pinkie Pie mientras se levantaba tambaleante. En efecto, su característica cola esponjosa había perdido casi todo su volumen.
 
-"Vaya embestida. ¿Están todas bien?", dijo Applejack rápidamente recuperada. Aunque había quedado debajo de todas, parecía no haberle afectado mucho, ni había perdido el sombrero. En parte, la cola de Pinkie Pie había amortiguado el impacto del frenado del tren.
+Rainbow Dash, ocupada ayudando a Applejack a ponerse de pie, no le prestó atención.
 
-"Bueno, yo estoy completa. El resto...", respondió Dash, mirando detrás de ella. Ahí estaban sus amigas, que se habían reunido alrededor de Rarity. La unicornio había encendido su cuerno y ahora era la única luz visible. Las luces de emergencia habían fallado en algún momento, lo cual dificultaba la situación para sus amigas. Así que el resto del vagón se encontraba a oscuras.
+"¡Vaya embestida! ¿Están todas bien?" preguntó Applejack, recuperándose rápidamente. A pesar de haber quedado al fondo de la pila, no parecía afectada. Ni siquiera había perdido su sombrero. Irónicamente, la cola de Pinkie había amortiguado parte del impacto.
 
-"No te preocupes, Applejack. Solo estamos un poco aturdidas por este terrible accidente", dijo Rarity, examinando con la luz de su cuerno a sus amigas y los restos del equipaje en el suelo. "Sin embargo, nuestro equipaje... ¡miren este desastre! Esperen... ¡¿dónde está mi balija?! ¡Mis artículos de belleza importados!"
+"Yo estoy completa", respondió Rainbow Dash mientras lanzaba una mirada al resto del vagón. "Aunque... ellas no se ven muy bien."
 
-"Ok, todas están bien, ahora debemos...", interrumpió Applejack, ignorando el creciente pánico en Rarity.
+Detrás de Applejack, las demás ponis se habían agrupado alrededor de Rarity, quien había encendido su cuerno, proyectando una luz tenue que iluminaba su entorno inmediato. Las luces de emergencia habían fallado en algún momento, dejando el resto del vagón sumido en sombras inquietantes.
 
-"Esperen, ¿todas? ¿No falta alguien?", dijo repentinamente Pinkie Pie.
+"No te preocupes, Applejack. Solo estamos un poco aturdidas por este terrible accidente", comentó Rarity mientras usaba la luz de su cuerno para inspeccionar a sus amigas y el equipaje disperso en el suelo. De repente, soltó un grito ahogado. "¡¿Pero qué es este desastre?! ¡¿Y mi balija?! ¡Mis artículos de belleza importados!"
 
-Entonces, las cinco ponis notaron que Magi no se encontraba con ellas. Tras buscar deprisa a su alrededor, Fluttershy fue la primera en notarlo. "Miren eso", dijo la atemorizada pegaso, apuntando su casco hacia una enorme esfera amarilla ubicada sobre los asientos del otro extremo del vagón.
+"Ok, todas están bien. Ahora debemos..." Applejack trató de intervenir, ignorando el creciente pánico de Rarity, pero entonces alguien más habló.
 
-Sorprendidas por el inesperado hallazgo, las desconcertadas ponis se miraron unas a otras. Sin embargo, Dash y Applejack fueron las primeras en tomar la iniciativa. Con solo un par de miradas, parecieron entrar en un acuerdo, y ambas comenzaron a avanzar juntas hacia el misterioso objeto, seguidas por las demás.
+"Esperen... ¿todas?" preguntó Pinkie Pie, con una expresión súbitamente alerta. "¿No falta alguien?"
 
-Lentamente se acercaron. Era un objeto bastante inusual, más que una esfera parecía un huevo gigante, tan grande que fácilmente un poni podría caber dentro. Applejack, que se había acercado lo suficiente, notó que tenía escrito un mensaje en su superficie y comenzó a leerlo en voz alta: "Cápsula de protección contra impactos de alta intensidad - Average C, ¿Uh?" se expresó confundida la poni granjera.
+Las cinco ponis se dieron cuenta entonces de que Magi no estaba con ellas. Tras buscar deprisa a su alrededor, Fluttershy fue la primera en notarlo. "Miren eso", dijo la atemorizada pegaso, señalando con su casco hacia el otro extremo del vagón.
 
-En ese momento, como si fuera un globo desinflándose, un silbido salió del huevo gigante y pronto este empezó a perder volumen. La figura de un poni emergió lentamente de la piel del desinflado huevo. Entonces, uno de los extremos se rasgó y una pegaso malhumorada salió de él.
+Una enorme esfera amarilla había aparecido entre los asientos, bloqueando la salida en ese lado.
 
-"¡Aghh! ¡Qué asco! Esos incompetentes de tecnología. ¡Cof! Les dije que incluyeran aromatizantes dentro de la cápsula. ¡Cof!" dijo gravemente Magi quejándose, mientras se alejaba de los restos de la cápsula de la cual emanaba un apestoso olor a huevos podridos. "No importa... ¿Qué rayos ha sido eso?"
+Sorprendidas por el inesperado hallazgo, las desconcertadas ponis se miraron unas a otras. Dash y Applejack, sin embargo, fueron las primeras en tomar la iniciativa. Con solo un par de miradas, parecieron ponerse de acuerdo, y ambas comenzaron a avanzar juntas hacia el misterioso objeto, seguidas por las demás.
 
-Magi cruzó miradas con las otras ponis. Ellas estaban muy sorprendidas. La pegaso ejecutiva tenía los ojos irritados y una mirada tan furiosa que opacaba cualquier recuerdo de la imagen amable y comprensiva que había mostrado hasta hace unos momentos atrás. Tras mirarse unos segundos, Magi se volteó rápidamente y luego volvió su mirada.
+Lentamente se acercaron, notando con cada paso más detalles de la anormalidad frente a ellas. Era algo demasiado inusual; más que una esfera, parecía un huevo gigante, tan grande que fácilmente un poni podría caber dentro. Applejack, que se había acercado lo suficiente, notó un mensaje escrito en su superficie y comenzó a leerlo en voz alta: "Cápsula de protección contra impactos de alta intensidad - Average C, ¿uh?" dijo, con evidente confusión.
 
-"¡Qué alivio! ¡Están todas a salvo!" dijo Magi con una inútil sonrisa que intentaba ocultar la evidente irritación que sentía.
+En ese momento, como si fuera un globo desinflándose, un silbido escapó del huevo gigante, que comenzó a colapsar. Lentamente, la figura de un poni emergió de la piel del huevo desinflado. Entonces, uno de los extremos se rasgó, y una pegaso malhumorada salió de él.
+
+"¡Aghh! ¡Qué asco! Esos incompetentes de tecnología. ¡Cof! Les dije que incluyeran aromatizantes dentro de la cápsula. ¡Cof!" se quejó Magi gravemente, alejándose de los restos de la cápsula, de la cual emanaba un apestoso olor a huevos podridos. "No importa... ¿Qué rayos ha sido eso?"
+
+Magi cruzó miradas con las otras ponis. Todas estaban visiblemente sorprendidas. La pegaso ejecutiva tenía los ojos irritados y una expresión tan furiosa que opacaba cualquier recuerdo de la imagen amable y comprensiva que había mostrado solo momentos antes. Tras mirarse unos segundos, Magi se volteó rápidamente y luego regresó su mirada hacia ellas.
+
+"¡Qué alivio! ¡Están todas a salvo!" exclamó Magi con una sonrisa forzada, que intentaba ocultar la evidente irritación que sentía.
 
 Dash fue la primera en hablar.
 
-"No te esfuerces en seguir actuando, Magi. No necesitamos eso ahora", dijo seriamente la pegaso. Magi velozmente observó a las demás. Las miradas severas que tenían reflejaban que estaban en la misma línea que la pegaso arcoíris.
+"No te esfuerces en seguir actuando, Magi. No necesitamos eso ahora", dijo seriamente la pegaso. Magi observó rápidamente a las demás. Las miradas severas que recibía reflejaban que todas estaban en la misma línea que la pegaso arcoíris.
 
-Tras vacilar unos segundos, Magi suspiró y volvió a una expresión seria y fría que parecía más natural en ella. "Bien, ¿de qué me perdí? ¿Qué está pasando?"
+Tras vacilar unos segundos, Magi suspiró y adoptó una expresión seria y fría, mucho más natural para ella. "Bien, ¿de qué me perdí? ¿Qué está pasando?"
 
-Nadie le respondió. Un crujido se escuchó desde la puerta posterior del vagón, llamando la atención de todas. Pronto, la puerta fue engullida por una brillante magia rosada, de la cual emergió la figura de un poni. Apenas visible por la intensa luz, pronto se dieron cuenta de que no se trataba de un poni ordinario.
+Nadie respondió. Un crujido se escuchó desde la puerta posterior del vagón, llamando la atención de todas. Pronto, la puerta fue engullida por una brillante magia rosada, de la cual emergió la figura de un poni. Apenas visible por la intensa luz, pronto se dieron cuenta de que no se trataba de un poni ordinario.
 
-La luz se desvaneció y ante ellas se encontraba un poni enigmático y desconocido. Aquel poni de mirada severa tenía una corta cabellera rosada del mismo color de sus ojos, pero dividida por un grueso flequillo marrón. Tenía puesta una pulida armadura negra de alicornio que parecía brillar con luz propia. En el pecho de su oscura armadura se veían los relieves de un árbol plateado rodeado de seis estrellas, e incrustada en su cuello se hallaba una brillante gema rosada. Era un corcel, sin duda, pero se veía más joven que cualquiera de las presentes. Con un paso imponente, este joven corcel avanzó hacia el enmudecido grupo de ponis.
+La luz se desvaneció, y ante ellas se encontraba un poni enigmático y desconocido. Aquel poni de mirada severa tenía una corta cabellera rosada, del mismo color de sus ojos, pero dividida por un grueso flequillo marrón. Vestía una pulida armadura negra de alicornio que parecía brillar con luz propia. En el pecho de su oscura armadura se veían los relieves de un árbol plateado rodeado de seis estrellas, e incrustada en su cuello se hallaba una brillante gema rosada. Era un corcel, sin duda, pero parecía más joven que cualquiera de las presentes. Con paso imponente, el joven corcel avanzó hacia el enmudecido grupo de ponis.
 
-"SALUDOS, PORTADORAS DE LOS ELEMENTOS DE LA ARMONÍA. POR FAVOR, ACOMPÁÑENME A ESPERAR LA CONCLUSIÓN DE SUS DESTINOS", dijo Badwhiz Starheart con una voz que hizo que todas, incluida Magi, sintieran miedo en su piel.
+"SALUDOS, PORTADORAS DE LOS ELEMENTOS DE LA ARMONÍA. POR FAVOR, ACOMPÁÑENME A ESPERAR LA CONCLUSIÓN DE SUS DESTINOS", dijo Badwhiz Starheart con una voz que hizo que todas, incluida Magi, sintieran un escalofrío recorriéndoles la piel.
 

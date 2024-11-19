@@ -10,12 +10,13 @@ Escenas:
 - En el tren rumbo a Canterlot, Magazine Doublereport una pegaso sofisticada e intrigante se encuentra con Rainbow Dash y sus amigas.
 - Sobre el techo del tren rumbo a Canterlot, Rainbow Dash y Applejack discuten.
 - En el tren rumbo a Canterlot, las amigas poni confrontan a Magi.
+- El tren rumbo a Canterlot sufre un misterioso accidente.
 
 [
     -> Edita el siguiente fragmento de mi fanfic de my little pony para mejorar (la claridad) (la fluidez) 
     -> Corrige cualquier error gramatical o de puntuación que encuentres. Considera buen uso de los gerundios.
     -> Respeta el uso de comillas dobles "" no las reemplaces
-    -> La escena actual es parte de la descripción: En el tren rumbo a Canterlot, las amigas poni confrontan a Magi.
+    -> La escena actual es parte de la descripción: El tren rumbo a Canterlot sufre un misterioso accidente.
 ]
 
 ¿Estas listo para la traduccion?
