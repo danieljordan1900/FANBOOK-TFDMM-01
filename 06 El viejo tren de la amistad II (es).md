@@ -170,13 +170,13 @@ Todas giraron la vista hacia el fondo. Allí, cómodamente sentada y con un refr
 
 [---]
 
-El avance del tren de Ponyville a Canterlot se había vuelto lento. En medio de una amplia pradera, apacibles rebaños de ovejas cruzaban despreocupadamente las vías férreas, interrumpiendo la marcha del tren para fastidio de los apresurados maquinistas, cuyo horario de viaje ya se encontraba "muy" atrasado.
+El avance del tren se había vuelto lento. En medio de una amplia pradera, apacibles rebaños de ovejas cruzaban despreocupadamente las vías férreas, interrumpiendo la marcha para fastidio de los apresurados maquinistas, cuyo horario de viaje ya se encontraba "muy" atrasado.
 
-Por otro lado, en el vagón de invitados especiales, se desarrollaba una situación mucho más activa. Una misteriosa pegaso de pelaje blanco y crin roja con rayas negras había irrumpido repentinamente en la reunión del grupo de amigas ahí reunidas. Al ponerse de pie, la desconocida yegua se acercó a las ponis con una mirada pícara y una sonrisa radiante. Su porte, que solo reflejaba confianza, era propio de un exitoso empresario. Y, en efecto, así era. Lo demostraban la corbata amarilla que llevaba puesta, los accesorios de oficinista que sobresalían de su elegante alforja y el intenso perfume que irradiaba.
+Por otro lado, en el vagón de invitados especiales, se desarrollaba una situación mucho más activa. Una misteriosa pegaso de pelaje blanco y crin roja con rayas negras había irrumpido repentinamente en la reunión del grupo de amigas ahí reunidas. Al ponerse de pie, la desconocida yegua se acercó a las ponis con una mirada pícara y una sonrisa radiante. Su porte, que solo reflejaba confianza, era propio de un exitoso empresario de ciudad. Y, en efecto, de eso se trataba. Lo demostraban la corbata amarilla que llevaba puesta, los accesorios de oficinista que sobresalían de su elegante alforja y el intenso perfume que irradiaba.
 
 Magazine Doublereport no necesitaba presentación; su imagen lo decía todo, especialmente la chapa publicitaria corporativa en su pecho que mostraba una sofisticada letra "A" en colores rojos, negros y blancos.
 
-Por supuesto, por obvia formalidad, ella tenía que presentarse, pero lejos de aburrirle, ella disfrutaba enormemente esas teatralidades.
+Por supuesto, por como poni de negocios, ella tenía que presentarse, pero lejos de aburrirle, ella disfrutaba enormemente esas teatralidades.
 
 Y en ese momento, Magi —como prefería que la llamaran— lo disfrutaba aún más al percibir, mientras se acercaba, el leve destello de miedo en los ojos de Rainbow Dash.
 
@@ -240,21 +240,21 @@ Sin más preámbulos, Magi procedió a explicar cómo, tras conocer a Rainbow Da
 
 Sin embargo, Magi omitió una parte importante de la historia. La realidad era que todo se había logrado mediante mentiras y manipulaciones cuidadosamente ejecutadas para obtener el consentimiento de Rainbow Dash.
 
-Magi no era una buena poni, y su forma de operar lo dejaba claro. Su método consistía en verdades a medias, combinadas con tácticas de manipulación y, en ocasiones, sutiles amenazas. Como persona de negocios, siempre lo hacía con una sonrisa radiante, que no era falsa; ella disfrutaba sinceramente de la satisfacción oscura que le daba tener el control sobre los demás.
+Desafortunadamente era asi, contraria a la imagen que proyectaba, Magi no era una buena poni, y su forma de operar lo dejaba claro. Su método consistía en verdades a medias, combinadas con tácticas de manipulación y, en ocasiones, sutiles amenazas. Como persona de negocios, siempre lo hacía con una sonrisa radiante, que no era falsa; ella disfrutaba sinceramente de la satisfacción oscura que le daba tener el control sobre los demás.
 
 Y, si todo lo antes dicho no funcionaba, siempre podia recurrir a otros recursos mas 'convincentes'...
 
-Al concluir su explicación, una inquietante sensación de duda quedó flotando en el aire entre las amigas.
+Al concluir Magi su explicación, una inquietante sensación de duda quedó flotando en el aire entre las amigas.
 
-"Pero, ¿por qué Rainbow Dash querría convertirse en una celebridad comercial? Ella no busca ese tipo de fama", preguntó Fluttershy con su habitual tono inocente.
+"Pero, ¿por qué Rainbow Dash querría convertirse en una celebridad comercial? Ella no busca ese tipo de fama", exclamo Fluttershy con sincera preocupacion por su amiga.
 
-"Es cierto que, al principio, su amiga Rainbow Dash no mostró interés alguno en mi propuesta", respondió Magi tranquilamente, mientras tomaba un sorbo de su refresco. "Sin embargo, cambió de opinión cuando incluí en mi oferta la oportunidad de adquirir los borradores originales del último libro de Daring Do. Estaba muy entusiasmada por conseguirlos. Creo recordar que mencionó algo sobre 'ganar una competencia muy especial'. Aunque, sinceramente, no estoy segura de a qué se refería...".
+"Es cierto que, al principio, su amiga Rainbow Dash no mostró interés alguno en mi propuesta", respondió Magi tranquilamente, mientras tomaba un sorbo de su refresco. "Sin embargo, cambió de opinión cuando incluí en mi oferta la oportunidad de adquirir los borradores originales del último libro de Daring Do. Estaba muy entusiasmada por conseguirlos. Creo recordar que mencionó algo sobre 'ganar una competencia muy especial'. Aunque, no estoy segura de a qué se refería...".
 
 Las cuatro amigas se miraron entre sí, luego dirigieron la vista hacia la pila de documentos sobre uno de los asientos. Poco a poco, todo comenzaba a cobrar sentido. Tres años atrás, las cinco habían hecho una promesa de sorprender o celebrar a Twilight en un día como ese. No especificaron qué tipo de celebración sería —podría tratarse de una fiesta, un regalo o algún detalle especial—, pero dejaron en claro que lo harían sin espíritu competitivo, apoyándose mutuamente. Ahora, los hechos recientes indicaban que Rainbow Dash había decidido ignorar esa regla.
 
 "Todo esto es realmente impactante, señorita Magi. Nos gustaría saber más sobre este delicado asunto, si no le importa dedicarnos un poco más de su tiempo...", declaró Rarity, ya intuyendo el alcance del problema en el que se había metido Rainbow Dash.
 
-"No me importa en absoluto, señorita Rarity", respondió Magi rápidamente. "Sin embargo, no dispongo de mucho tiempo para dar más explicaciones. Tengo una reunión con los directivos del Consorcio Averages hoy mismo, y mi cliente estrella, Rainbow Dash, debe estar presente. Estoy obligada a llevarla a nuestras oficinas en Manehattan, o de lo contrario su 'amiga' podría enfrentarse a graves problemas legales. No deseo que eso suceda, e imagino que ustedes tampoco. Así que, si me lo permiten..."
+"No me importa en absoluto, señorita Rarity", respondió Magi rápidamente en tono frio distinto al de antes. "Sin embargo, no dispongo de mucho tiempo para dar más explicaciones. Tengo una reunión con los directivos del Consorcio Averages hoy mismo, y mi cliente estrella, Rainbow Dash, debe estar presente. Estoy obligada a llevarla a nuestras oficinas en Manehattan, o de lo contrario su 'amiga' podría enfrentarse a graves problemas legales. No deseo que eso suceda, e imagino que ustedes tampoco. Así que, si me lo permiten..."
 
 "No se preocupe por eso, yo iré a buscarla", interrumpió Applejack abruptamente.
 
@@ -268,7 +268,7 @@ Applejack asintió con la cabeza. Su seguridad fue suficiente para evitar más p
 
 Magi sopesó la idea mientras daba otro sorbo a su refresco, hasta que finalmente tomó su decisión.
 
-"Está bien, realmente se lo agradecería si lo hiciera. Entonces... esperaré aquí hasta que regreses. Pero no más de 15 minutos", dijo Magi, aceptando la propuesta de Applejack, aunque con cierta desconfianza.
+"Está bien, confiare en usted señorita Applejack, se lo agradecere bastante si lo hiciera. Entonces... esperaré aquí hasta que regrese. Pero no más de 20 minutos", dijo Magi, aceptando la propuesta de Applejack, aunque con cierta desconfianza.
 
 "No tardaré tanto. Ya vuelvo", aseguró Applejack, ajustándose el sombrero antes de salir rápidamente por la puerta trasera del vagón.
 
@@ -430,23 +430,25 @@ Rainbow Dash solo pudo sonreír para sí misma por eso.
 
 "Y eso fue lo que realmente pasó", terminó de decir Rainbow Dash.
 
-"¡Oh cielos! Pero, ¿por qué hiciste todo eso?" preguntó Fluttershy.
+"¡Oh, cielos! Pero, ¿por qué hiciste todo eso?" preguntó angustiada Fluttershy apenas su amiga terminó de hablar.
 
-"Yo solo deseaba darle un día increíble a Twilight, mejor que el que ustedes habían preparado. Pero cuando las cosas empezaron a salir mal, me desesperé y... terminé metiéndome en este lío", respondió una abatida Rainbow Dash a sus amigas.
+"Yo... yo solo deseaba darle un día increíble a Twilight, mejor que el que ustedes habían preparado", respondió Rainbow Dash, abatida. "Pero cuando las cosas empezaron a salir mal, me desesperé y... terminé metiéndome en este lío."
 
-Sus amigas la observaron en silencio. Aquellas miradas mezcladas de preocupación y lástima fueron demasiado para Dash, quien rápidamente les dio la espalda. "En fin, ahora tengo que ir a cumplir con el contrato de Magi si no quiero terminar en prisión o algo peor. Díganle a Twilight que la veré..."
+Sus amigas la observaron en silencio. Aquellas miradas mezcladas de preocupación y lástima fueron demasiado para Dash, quien rápidamente les dio la espalda.
+
+"En fin, ahora tengo que ir a cumplir con el contrato de Magi si no quiero terminar en prisión o algo peor. Díganle a Twilight que la veré..."
 
 "Espera ahí, Rainbow Dash", interrumpió Rarity. "¿No pensarás que te dejaremos ir tan fácilmente, verdad?"
 
-"Ah, qué..." la pegaso no terminó de responderle a Rarity, el lazo de Applejack envolvió rápidamente a la pegaso, inmovilizándola y dejándola en el suelo. Applejack se puso encima de ella, asegurándose de que no se moviera.
+"¿Ah? ¿Qué...?" La pegaso no terminó de responder cuando el lazo de Applejack la envolvió rápidamente, inmovilizándola y derribándola al suelo. Applejack se colocó encima de ella, asegurándose de que no pudiera moverse.
 
-"¡¿QUÉ CREEN QUE ESTÁN...?!" La boca de Rainbow Dash fue tapada por una caja de muffins.
+"¡¿QUÉ CREEN QUE ESTÁN...?!" La boca de Rainbow Dash fue cubierta con una caja de muffins.
 
-"Estamos ayudando a una amiga a cumplir una promesa. Eso es lo que estamos haciendo", dijo Pinkie alegremente, y se sentó a su lado asegurando su flanco. Fluttershy también hizo lo mismo del otro lado, pero se veía más apenada.
+"Estamos ayudando a una amiga a cumplir una promesa. Eso es lo que estamos haciendo", dijo Pinkie alegremente, sentándose a su lado para asegurar su flanco. Fluttershy también se colocó del otro lado, aunque lucía más apenada.
 
-Dash solo pudo contemplar cómo Rarity se dirigía a Magi.
+Dash solo pudo observar, sin poder hacer nada, cómo Rarity se dirigía a Magi.
 
-"Magi, querida, ¿estarías interesada en escuchar una propuesta para permitir que Dash se quede con nosotras por este día?" dijo Rarity con determinación.
+"Magi, querida, ¿estarías interesada en escuchar una propuesta para que nuestra amiga Rainbow Dash se quede con nosotras por este día?" preguntó Rarity con determinación.
 
 "Te escucho", respondió impasible la pegaso ejecutiva.
 
