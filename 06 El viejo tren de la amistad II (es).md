@@ -554,7 +554,7 @@ Entonces, un intenso silbido del tren resonó a través del vagón, sobresaltand
 
 [---]
 
-Abruptamente, el tren había frenado su marcha.
+Abruptamente, el tren rumbo a Canterlot había frenado su marcha.
 
 Sin tiempo para reaccionar y arrastradas por la inercia, las seis ponis fueron lanzadas hacia un extremo del vagón, chocando unas contra otras en un torpe amasijo. Las luces se apagaron de golpe, y el estridente chillido de los frenos llenó el aire durante varios segundos hasta que, finalmente, el tren quedó inmóvil.
 
