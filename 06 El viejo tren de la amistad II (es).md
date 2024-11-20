@@ -406,7 +406,7 @@ El porte decidido que la caracterizaba había regresado. Applejack lo entendio d
 
 La verdadera Rainbow Dash estaba de vuelta. Su recuperacion emocional habia sido mas rapido de lo que habia esperado.
 
-"Está bien, Applejack. Tú ganas. Les contaré todo, pero después de eso, tendré que irme con Magi. Tiene una junta, reunión... lo que sea, y debo estar presente. Espero que sea rápido... creo", declaró Dash, con sus ojos brillando de renovada determinación.
+"Está bien, Applejack. Tú ganas. Les contaré todo, pero después de eso, tendré que irme con Magi. Tiene una junta, reunión... lo que sea, y debo estar presente. Espero que sea rápido... creo", declaró Dash, con sus ojos brillando de renovada confianza.
 
 Applejack no había anticipado esa respuesta. Brevemente desvió la mirada hacia el horizonte mientras reflexionaba sobre sus próximas palabras.
 
