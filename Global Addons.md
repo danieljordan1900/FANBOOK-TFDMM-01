@@ -31,3 +31,11 @@ Escenas:
 -> Twilight cierra su dificil dia pensando ya en mañana
 
 The podcast should be user-friendly and in English only. Avoid over-extending the duration of the podcast.
+
+
+Audio Creation Instructions:
+
+Length: Make sure the audio is under 12 minutes long. Focus on summarizing key points concisely.
+Language: Use simple, accessible language that is easy for a general audience to understand. Avoid jargon unless briefly explained. Use English.
+Tone: Keep a neutral, yet engaging tone appropriate for the narrative. Emphasize clarity over dramatization.
+Relevance: Stick strictly to the content of the fanfic. Avoid speculation or extrapolation beyond the source material.
