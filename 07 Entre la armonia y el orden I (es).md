@@ -1,95 +1,103 @@
-El mediodía se alzaba triunfal sobre Canterlot, la majestuosa capital de Equestria. Por las blancas calles, multitudes de ponis transitaban alegres y rebosantes de confianza. En las casas y tiendas, no faltaba algún adorno que conmemorara la celebración de ese día: el Festival de las Dos Hermanas. Y en un día así, había pocas excusas para no divertirse.
+El mediodía brillaba radiante sobre Canterlot, la majestuosa capital de Equestria. Por las blancas calles, multitudes de ponis caminaban alegres, rebosantes de confianza y entusiasmo. En cada casa y tienda se veía algún adorno conmemorativo que celebraba la gran festividad del día: el Festival de las Dos Hermanas. En una ocasión especial como esta, había pocas excusas para no disfrutar.
 
-Bajo un cielo despejado, cerca de uno de los miradores de la ciudad, una potra desconocida de melena amarilla comía descuidadamente su helado, sin percatarse de que el nudo descuidado de la lámpara volante que había hecho con sus amigos se deshacía. Tras un lento deterioro, esta finalmente se liberó y la lámpara comenzó a ascender hacia el profundo cielo azul.
+Bajo un cielo despejado, cerca de uno de los miradores de la ciudad, una potra de melena amarilla disfrutaba despreocupada de su helado, mientras un vistoso globo de papel flotaba tenuemente atado a su lado. El globo, elaborado por la potra y sus amigos como parte de un intercambio de regalos, luchaba contra el débil nudo que lo sujetaba, ansioso por liberarse.
 
-"¡No, mi lámpara!" la potra gimoteó consternada al darse cuenta demasiado tarde de lo lejos que se encontraba su lámpara. Pero aquel susto duró poco. Repentinamente, una pegaso de pelaje púrpura tomó en el aire la lámpara extraviada y descendió hacia donde estaba la niña para devolverle su presente.
+Poco a poco, la cuerda se deshizo hasta que el nudo finalmente cedió, y la lámpara voladora escapó, ascendiendo con gracia hacia el profundo cielo azul.
 
-"¡Sí, mi lámpara! ¡Muchas gracias, muchas gracias...!" La potra quedó enmudecida al reconocer la identidad de la poni que le devolvió su lámpara.
+"¡No, mi lámpara!" exclamó tardiamente la potra, con ojos llenos de consternación al darse cuenta de que su regalo ya estaba fuera de su alcance.
 
-Sin esperar más agradecimientos, la amable alicornio se elevó nuevamente hacia el cielo en un vuelo suave, apenas haciendo ondear su melena alrededor de su majestuoso cuerno.
+Sin embargo, su preocupación fue breve. En un destello inesperado, una pegaso de pelaje púrpura apareció desde lo alto. Con movimientos ágiles y precisos, atrapó la lámpara al vuelo y descendió con suavidad para devolvérsela a la pequeña.
 
-Twilight, sin llevar ninguna prenda que la distinga como alguien de la realeza ni ninguna obligación que ocupe su breve tiempo libre, voló hasta alcanzar una altitud desde la cual podía contemplar toda la ciudad. Bajo sus cascos, las tiendas de comercio estaban dispuestas según lo planeado, los agentes de seguridad se encontraban en sus posiciones asignadas y el estadio de carreras estaba abarrotado de ponis ansiosos por presenciar el evento de apertura que estaba a punto de comenzar. Todo iba según lo previsto e incluso mejor, ya que una gran cantidad de ponis se habían ofrecido como voluntarios para guiar a los visitantes.
+"¡Sí, mi lámpara! ¡Muchas gracias, muchas gracias...!" La potra se quedó muda al reconocer la figura de la poni que le había hecho aquel gesto.
 
-"Más familias que en ocasiones anteriores... Tendré que revisar las estadísticas después", pensó para sí misma mientras observaba las largas filas en los juegos de entretenimiento.
+Sin esperar más agradecimientos, la amable alicornio se alzó nuevamente en el aire con un vuelo elegante, su melena ondeando apenas alrededor de su majestuoso cuerno.
 
-Sin nada más que revisar, comenzó a planear en círculos sobre la ciudad, observando descuidadamente todos los lugares que conocía, como la biblioteca, la escuela de magia, entre otros. En todos esos lugares, había ponis divirtiéndose o ocupados en la celebración, creando un ambiente de alegría y amistad.
+Twilight Sparkle, sin portar ningún atuendo que la distinguiera como princesa ni obligaciones que interrumpieran su breve tiempo libre, ascendió hasta alcanzar una altitud desde la que podía observar toda la ciudad. Bajo sus cascos, las tiendas de comercio estaban ordenadas según lo planeado, los agentes de seguridad cumplían con sus funciones, y el estadio de carreras rebosaba de ponis ansiosos por presenciar el evento inaugural que estaba a punto de comenzar. Todo avanzaba según lo previsto, incluso mejor, ya que muchos se habían ofrecido como voluntarios para guiar a los visitantes.
 
-Twilight sonrió, permitiendo que la nostalgia acompañara su vuelo. Pero no era un sentimiento deprimente. Todo lo contrario, su corazón brillaba como el sol de mediodía en un cielo libre de preocupaciones. De buen humor, Twilight continuó surcando el firmamento.
+"Más familias que en ocasiones anteriores... Tendré que revisar las estadísticas después", pensó, observando las largas filas en los juegos de entretenimiento.
 
-Bajo ella se extendía la ciudad en la que había crecido y estudiado durante tantos años de su juventud. Era el lugar que durante mucho tiempo consideró su único hogar, donde se encontraba su familia y tantos recuerdos queridos.
+Sin nada más que supervisar, Twilight comenzó a planear en círculos sobre la ciudad, permitiendo que su mirada vagara por lugares que conocía bien: la biblioteca, la escuela de magia, y otros tantos rincones familiares. En cada uno de ellos, veía ponis divirtiéndose o colaborando en la celebración, creando un ambiente lleno de alegría y amistad.
 
-Twilight detuvo su vuelo y su mirada se perdió más allá de los límites de la ciudad, hacia el vasto bosque que cubría gran parte del horizonte. Se detuvo en el pueblo más cercano a la capital. Conocía bien aquel lugar, fue donde su vida dio un giro, donde dejó atrás su antiguo yo para convertirse en una princesa alicornio. Ponyville, donde encontró a las mejores amigas que una poni podía desear y que la impulsaron hacia la posición en la que se encontraba ahora.
+Twilight sonrió, dejando que una ligera nostalgia acompañara su vuelo. Sin embargo, no era una nostalgia triste; al contrario, su corazón brillaba como el sol del mediodía bajo un cielo despejado de preocupaciones. De buen humor, continuó surcando el firmamento.
 
-Twilight sonrió aún más. Pronto esas grandes amigas vendrían a visitarla, pasarían una tarde conversando y compartiendo todo lo que se había perdido en el último año, y tal vez incluso le prepararían una nueva sorpresa, como en las ocasiones anteriores.
+Bajo ella se extendía la ciudad donde había crecido y estudiado durante tantos años. Era el lugar que, por mucho tiempo, consideró su único hogar: el lugar donde residía su familia y tantos recuerdos queridos.
 
-Con la mente ocupada adivinando en qué podría consistir la sorpresa esta vez, Twilight se dejó caer en picada sobre las cataratas que descendían desde la ciudad, solo para elevarse nuevamente como un rayo de luz púrpura hacia una de las torres del castillo. Los transeúntes de las calles quedaron maravillados al contemplar el hermoso arcoíris que dejó atrás la princesa en su fugaz vuelo por el cielo.
+Twilight detuvo su vuelo, y su mirada se dirigió más allá de los límites de Canterlot, hacia el vasto bosque que se extendía en el horizonte. Sus ojos se fijaron en el pequeño pueblo cercano, uno que conocía demasiado bien. Allí, su vida había dado un giro inesperado. Fue donde dejó atrás su antiguo yo para convertirse en una princesa alicornio. Ponyville: el hogar de las mejores amigas que una poni podía desear, las mismas que la habían impulsado hacia la posición que ahora ocupaba.
 
-------------------
+Su sonrisa se ensanchó. Pronto, aquellas grandes amigas vendrían a visitarla. Pasarían la tarde conversando y poniéndose al día con todo lo que había ocurrido durante el último año. Tal vez incluso le prepararían alguna sorpresa, como ya habían hecho en otras ocasiones.
 
-En uno de los cuartos de limpieza cercanos a la suite real del castillo, Twilight ordenaba algunos materiales de cocina y limpieza. Había terminado de lavar unos platos conmemorativos del festival del año pasado. Esta era una tarea que normalmente correspondería a los mayordomos o a los ponis encargados de la limpieza, pero en ese momento se encontraban ausentes. Twilight había ordenado que todos los sirvientes fueran a disfrutar de las actividades del día festivo. Por tanto, solo el personal de seguridad se encontraba en funciones.
+Con la mente entretenida imaginando de qué podría tratarse esta vez, Twilight descendió en picada hacia las cataratas que caían desde la ciudad, solo para elevarse nuevamente, como un rayo de luz púrpura, hacia una de las torres del castillo. Los transeúntes en las calles, maravillados, observaron el hermoso arcoíris que dejó tras de sí la princesa en su fugaz vuelo por el cielo.
 
-"Veamos, estos cubiertos no están completos... Necesito cinco más, pero no son de la misma tonalidad", murmuró Twilight mientras fruncía el ceño. Hablaba consigo misma, algo poco común para ella debido a su papel como princesa, pero en ese momento se permitía ser solo Twilight.
+[---]
 
-"Le dije a Spike que ordenara las cajas como todas las demás..." añadió la alicornio, algo molesta al observar el desorden frente a ella.
+En uno de los cuartos de limpieza cercanos a la suite real del castillo, Twilight organizaba materiales de cocina y limpieza. Había terminado de lavar unos platos conmemorativos del festival del año pasado, una tarea que normalmente recaía en los mayordomos o el personal de limpieza. Sin embargo, todos ellos estaban ausentes, ya que Twilight había dado la orden de que disfrutaran de las actividades del día festivo. Solo los guardias permanecían en servicio.
 
-Con su magia, levantó una de las cajas, revelando otra en mal estado. Esta última tenía escrito encima: "Platos, cubiertos y otros del castillo de la amistad...".
+"Veamos... Estos cubiertos no están completos. Necesito cinco más, pero no son del mismo tono", murmuró mientras fruncía el ceño. Hablar consigo misma no era algo habitual en su rol como princesa, pero en aquel momento (estando ella sola ahí) se permitía ser simplemente Twilight.
 
-"¡SÍ! ¡PERFECTO, ESTO ES LO QUE BUSCABA!", exclamó emocionada. La caja descubierta se abrió mágicamente y un juego completo de tazas, platos y cubiertos flotó en el aire. Después de examinar la cantidad y el estado del contenido de la caja, Twilight asintió satisfecha. "Esto será suficiente, a las chicas les encantará".
+"Le pedí a Spike que organizara las cajas como las demás..." añadió, algo molesta, al notar el desorden frente a ella.
 
-Repentinamente, un remolino de magia se formó frente a ella y un pergamino sellado se materializó de la nada.
+Con un leve destello de su magia, levantó una de las cajas apiladas, revelando otra debajo que parecía estar en mal estado. Sobre su tapa, un texto a mano decía: "Platos, cubiertos y otros del castillo de la amistad...".
 
-Twilight lo sostuvo con su magia y revisó el contenido del pergamino. Se sorprendió, no esperaba que aquellas invitadas llegaran tan temprano. Sin más interrupciones, salió apresurada del cuarto llevando consigo la caja que había encontrado.
+"¡Sí! ¡Perfecto, esto es justo lo que necesitaba!" exclamó emocionada. La caja, ahora flotando en el aire, se abrió mágicamente. Un juego completo de tazas, platos y cubiertos salió de su interior, levitando en un orden impecable. Twilight inspeccionó cuidadosamente cada pieza, contando y verificando su estado. Tras un momento, asintió con satisfacción.
 
-------------------
+"Esto será suficiente. A las chicas les encantará", dijo con una sonrisa, sintiendo una mezcla de orgullo y alivio.
 
-En el salón del trono, Twilight aguardaba la llegada de sus inesperadas invitadas. Las puertas del salón real se abrieron y dos ponis a las que conocía demasiado bien ingresaron. Celestia y Luna, ex gobernantes de Equestria, entraron con paso regio que reflejaba su posición como miembros de la realeza.
+De repente, un remolino de magia se formó frente a ella, y un pergamino sellado apareció en el aire.
 
-Con un aleteo, Twilight se acercó a sus invitadas.
+Twilight lo atrapó con su magia y leyó su contenido con rapidez. Sus ojos se abrieron con sorpresa: no esperaba que sus invitadas llegaran tan temprano. Sin perder más tiempo, salió apresurada del cuarto, llevando consigo la caja que acababa de encontrar.
 
-"Celestia, Luna, es un gusto tenerlas de vuelta", exclamó emocionada, acercándose a Celestia. No podía ocultar la alegría que sentía al tener de vuelta a su mentora.
+[---]
 
-"Oh, Twilight, ha pasado mucho tiempo", dijo Celestia permitiendo que Twilight se apoyara cariñosamente a su lado. Luna, a su lado, también sonrió feliz por aquel reencuentro.
+En el salón del trono, Twilight aguardaba con impaciencia la llegada de sus inesperadas invitadas. Las majestuosas puertas se abrieron lentamente, revelando a dos figuras que ella conocía demasiado bien. Celestia y Luna, las antiguas gobernantes de Equestria, entraron con un paso elegante que reflejaba su porte real, a pesar de que hacía tiempo habían dejado el trono, el aire de nobleza que irradiaban era inconfundible.
 
-"Oh, vamos Celestia, solo han pasado cinco meses desde nuestro último encuentro con Twilight", dijo Luna al notar que el acercamiento entre ambas se alargaba.
+Twilight desplegó sus alas y, con un suave aleteo, se acercó a ellas con una sonrisa radiante.
 
-"El concurso de comida picante en Yeguadelfia no cuenta como un encuentro adecuado, Luna", corrigió Celestia apartándose de Twilight.
+"Celestia, Luna, es un gusto tenerlas de vuelta", exclamó con entusiasmo, abrazando a Celestia sin poder ocultar la alegría que sentía al reencontrarse con su mentora.
 
-"Aún me sorprende que hayas participado en ese concurso y que incluso llegaras a las rondas finales", dijo Twilight dirigiéndose a Celestia. "No sabía que fueras tan tolerante al picante".
+"Oh, Twilight, realmente ha pasado mucho tiempo", respondió Celestia, dejando que Twilight se apoyara cariñosamente en su costado.
 
-Celestia desvió la mirada intentando no recordar la presión que tuvo que soportar en aquella ocasión. Aquel había sido un desafío que Luna le impuso en una apuesta. De no haber estado presente Twilight inesperadamente como juez del concurso, probablemente habría abandonado el reto en la primera ronda. Sin embargo, su deseo de no decepcionar a su ex alumna fue más grande que la insoportable irritación que sintió en su lengua.
+Luna, a un lado, observó la escena con una sonrisa divertida. "Vamos, Celestia, solo han pasado cinco meses desde nuestro último encuentro", comentó, arqueando una ceja mientras trataba de suavizar la emotividad del momento.
 
-"Aún hay muchas cosas que no sabes de nosotras", añadió Luna con una sonrisa traviesa.
+"El concurso de comida picante en Yeguadelfia no cuenta como un encuentro adecuado, Luna", replicó Celestia, separándose suavemente de Twilight.
 
-"Entonces podrían contarme esas cosas mientras damos un recorrido por el castillo", contestó Twilight, que ya avanzaba hacia las puertas del salón.
+Twilight rió al recordar ese evento. "Todavía no puedo creer que participaste en ese concurso, Celestia. ¡Y llegaste hasta las rondas finales! No sabía que eras tan tolerante al picante".
+
+Celestia desvió la mirada, incómoda ante el recuerdo. Aquel concurso había sido el resultado de una apuesta impulsiva con Luna, y si Twilight no hubiese aparecido inesperadamente como juez, probablemente habría abandonado en la primera ronda. La vergüenza de rendirse tan facilmente frente a su exalumna había sido mayor que el ardor que sentía en su lengua.
+
+"Aún hay muchas 'cosas' que no sabes de nosotras", intervino Luna con una sonrisa traviesa.
+
+"Entonces, podrían contarme esas 'cosas' mientras damos un recorrido por el castillo", sugirió Twilight, ya avanzando hacia las puertas del salón.
 
 "No tengo problemas en ser honesta públicamente, ¿no te parece, hermana?", bromeó Luna mientras seguía a Twilight.
 
-Luna y Twilight comenzaron a avanzar, pero Celestia no tenía intenciones de seguirles.
+Sin embargo, Celestia no se movió. Su expresión, hasta ese momento relajada, se volvió sombría.
 
-"Twilight, ¿algun poni ha venido recientemente a consultarte sobre la gema Starheart?" el tono de Celestia cambió bruscamente a uno más serio.
+"Twilight, ¿algun poni ha venido recientemente a consultarte sobre la gema Starheart?" preguntó con un tono grave que detuvo a Twilight en seco.
 
-"No, ningún poni ha venido a consultarme al respecto", dijo Twilight volteándose extrañada hacia su ex maestra. "¿No es esa la famosa gema de unicornio perdida hace un siglo?"
+"No, ningún poni ha mencionado nada al respecto", respondió Twilight, girándose con curiosidad hacia Celestia. "¿No es esa la famosa gema de unicornio que se perdió hace un siglo?"
 
-Twilight, al voltearse, notó que Celestia tenía una mirada triste en ese momento.
+La alicornio vio la tristeza reflejada en los ojos de su mentora y sintió un nudo en el estómago.
 
-"¿Pasa algo?", preguntó Twilight preocupada. Sin embargo, Celestia guardó silencio. Al notar la indecisión de su hermana, Luna se adelantó.
+"¿Pasa algo?", preguntó Twilight con preocupación.
 
-"Verás, Twilight, en una de nuestras excursiones hace unas semanas atrás, mi hermana tuvo un sueño en el que cree haber visto al heredero de la casa Starheart..." respondió Luna.
+Celestia permaneció en silencio, como si debatiera internamente si debía hablar. Finalmente, Luna rompió el incómodo momento.
 
-"No fue un sueño", añadió Celestia con una mirada seria hacia Luna.
+"Verás, Twilight, hace unas semanas, durante una de nuestras excursiones, mi hermana tuvo un sueño en el que afirmaba haber visto al heredero de la casa Starheart..."
 
-"No puedo negar lo que afirmas, hermana, pero es imposible que el heredero de la casa Starheart aún esté entre nosotros", respondió Luna. "Yo misma revisé su caso y no encontré ninguna prueba que sugiriera que haya sobrevivido. Además, aquel día de nuestro viaje, estabas muy cansada. Es más probable que lo hayas confundido con algún otro poni", terminó de aclarar Luna. Celestia, por su parte, parecía inundada de melancolía mientras observaba uno de los vitrales en la sala real. A Twilight le sorprendía aquel cambio tan inusual en la poni de la que tanto había aprendido.
+"No fue un sueño", interrumpió Celestia con una mirada seria hacia Luna.
 
-Al notar la mirada de preocupación de su antigua alumna, Celestia pareció despertar. "Disculpa, Twilight. Sé que no es el momento más apropiado, pero me gustaría tomar algo de tu tiempo para conversar en privado entre nosotras".
+Luna suspiró, evidentemente escéptica. "Hermana, ya hemos hablado de esto. Yo misma revisé su caso y no hay evidencia de que haya sobrevivido. Además, ese día estabas agotada por el viaje. Es más probable que lo confundieras con algún otro poni", dijo con voz calmada, intentando tranquilizar a Celestia.
 
-"Entiendo. Si es así, creo que ahora sería un buen momento", respondió Twilight mientras recordaba el lugar más cercano para la reunión. "La sala especial de huéspedes del ala este está disponible. ¿Les parece adecuado?"
+Mientras tanto, Twilight observaba la melancolía en el rostro de Celestia, algo que rara vez había presenciado.
 
-Celestia y Luna asintieron. Era inoportuno, pero su reunión con sus amigas tendría que esperar un poco más. La aflicción que había notado en Celestia era algo que no podía ignorar.
+Finalmente, Celestia pareció volver en sí y suspiró profundamente. "Disculpa, Twilight. Sé que no es el momento más apropiado, pero necesito hablar contigo en privado".
 
-Justo en ese momento, un soldado entró rápidamente por la puerta principal, captando la atención de las alicornios reunidas.
+"Claro, lo entiendo. Podemos usar la sala especial de huéspedes del ala este, está libre", ofreció Twilight con tono comprensivo.
 
-Twilight se acercó al soldado y este hizo una reverencia correspondiente.
+Celestia y Luna asintieron. Aunque inoportuno, Twilight no podía ignorar la inquietud que reflejaban los ojos de su antigua mentora.
 
-"¿Ha sucedido alguna emergencia?", preguntó Twilight seriamente, reconociendo al soldado como uno de los encargados de enviar mensajes hacia ella en caso de algún desastre.
+Sin embargo, antes de que pudieran abandonar el salón, un soldado irrumpió rápidamente por las puertas principales, llamando su atención de inmediato.
 
-"Princesa, lamento informar que el tren de Ponyville a Canterlot ha sido atacado", respondió el soldado.
+"¿Ha sucedido alguna emergencia?" preguntó Twilight con firmeza, reconociendo al soldado como uno de los encargados de reportar incidentes graves.
+
+El soldado inclinó la cabeza con respeto antes de responder: "Princesa, lamento informar que el tren de Ponyville a Canterlot ha sido atacado".
