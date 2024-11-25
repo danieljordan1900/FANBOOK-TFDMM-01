@@ -68,7 +68,7 @@ Celestia desvió la mirada, incómoda ante el recuerdo. Aquel concurso había si
 
 "Entonces, podrían contarme esas 'cosas' mientras damos un recorrido por el castillo", sugirió Twilight, ya avanzando hacia las puertas del salón.
 
-"No tengo problemas en ser honesta públicamente, ¿no te parece, hermana?", bromeó Luna mientras seguía a Twilight.
+"No deberia haber problema con ser honesta públicamente, ¿no te parece, hermana?", bromeó Luna mientras seguía a Twilight.
 
 Sin embargo, Celestia no se movió. Su expresión, hasta ese momento relajada, se volvió sombría.
 
