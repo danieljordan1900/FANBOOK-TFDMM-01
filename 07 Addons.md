@@ -1,6 +1,6 @@
 Hola requiero traducir un texto de español a ingles
 
-El texto es parte de una historia mas grande compuesta de las siguientes escenas.
+El texto es parte de un fanfic de my little pony compuesta de las siguientes escenas. Considéralas cuando empecemos la traducción. 
 
 Escenas:
 

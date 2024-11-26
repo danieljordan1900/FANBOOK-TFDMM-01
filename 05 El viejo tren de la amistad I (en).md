@@ -1,115 +1,127 @@
-It was a sunny and radiant day in Ponyville, a charming village inhabited by a variety of magical creatures such as pegasi, unicorns, and earth ponies. But this was a special day, as the highly anticipated 'Sisters' Festival' was being celebrated. The atmosphere was filled with enthusiasm and joy, and excitement was palpable in the air. Previously, this day had been known as the 'Summer Sun Celebration', although it had changed its name three years ago, the feeling it evoked in the hearts of all the ponies was the same.
+It was a bright and sunny day in Ponyville, a charming town inhabited by various magical creatures: pegasi, unicorns, and earth ponies. At first glance, its residents went about their business as usual during the midday bustle, but this was no ordinary day—it was the highly anticipated "Festival of the Two Sisters." Everywhere, from the houses to the streets, the atmosphere brimmed with excitement and joy, hallmarks of this celebrated occasion. Though it had once been known as the "Summer Sun Celebration," the feelings it stirred in the hearts of ponies remained unchanged.
 
-And no one could be more sure of that than Pinkie Pie. With her characteristic energetic trot, she hurriedly made her way to the train station.
+No one felt it more deeply than Pinkie Pie, who, with her characteristic bouncy and energetic trot, was rushing toward the train station at full speed.
 
-"Take care, Pinkie Pie, don't drop your good mood," Matilda cheerfully said as she strolled with her husband Cranky by the roadside.
+"Take it easy, Pinkie Pie! Don’t go dropping your good cheer along the way!" called out Matilda cheerfully, strolling with her husband, Cranky Doodle, beside the road.
 
-"Never, Matilda, but if I don't hurry, I'll miss the train of punctuality. YIPEE!" With a short neigh, Pinkie Pie continued on her way, picking up her pace and leaving the couple behind.
+"Never, Matilda! But if I don’t hurry, I’ll miss the train to punctuality! YIIIEP!" Letting out a short neigh, Pinkie Pie picked up her pace, leaving the couple in her pink, bubbly dust.
 
-It wasn't a joke; Pinkie Pie was running late, and failing a promise that bore her own name was the last thing she wanted to do that day.
+She wasn’t kidding—she was running late, and breaking a promise with her name on it was the very last thing she intended to do today.
 
-Like a pink streak, she arrived at the station, where she was promptly received. There were no ponies waiting outside; everyone was already on the train, waiting for its departure.
+As fast as her legs could carry her, Pinkie Pie burst into the station like a whirlwind of pink energy. She was greeted by an open platform; there was no line to speak of, as everypony was already aboard, waiting for departure.
 
-Once inside, she was met with a crowd of ponies. Among friends and familiar faces, Pinkie Pie made her way through, greeting everyone she recognized. Finally, she reached a special carriage reserved only for important travelers.
+Entering the station, Pinkie faced her final obstacle: a crowd of ponies in all shapes, sizes, and colors. With her usual exuberance, she weaved her way through the throng, greeting familiar faces and friends with cheerful waves and chirps. Finally, a little out of breath from her own enthusiasm, she arrived at her destination: the door to the special carriage reserved exclusively for important travelers.
 
-Taking a deep breath and then flashing her best smile, Pinkie Pie swung open the carriage doors where Applejack, Rarity, and...
+She took a deep breath, flashed her widest smile, and flung the door open. The familiar interior of the carriage unfolded before her, revealing her friends waiting inside. There sat Applejack, Rarity, and…
 
-"Hi, Pinkie..." said Fluttershy.
+Fluttershy, who gave her a gentle smile upon seeing her. "Hello, Pinkie..."
 
-"FLUTTERSHY, I'VE MISSED YOU SO MUCH!" Pinkie exclaimed amid sobs and tears. In an explosion of overflowing joy, the pink pony threw herself onto her friend who had just greeted her.
+That was all Pinkie needed. Without a moment's hesitation, she leapt into action, throwing herself at her friend in an exuberant hug.
 
-"Okay, okay, Pinkie, Ughh!" Fluttershy felt Pinkie's affectionate and vigorous hug all along her back.
+"FLUTTERSHY, I’VE MISSED YOU SO MUCH!" Pinkie exclaimed between sobs and tears, squeezing Fluttershy with overwhelming enthusiasm.
 
-"A whole week on Mount Aris was too much. I know the baby dolphins needed you, but WE NEEDED YOU HERE TOO!" Pinkie continued, shedding even more tears.
+"There, there, Pinkie… Ughh!" Fluttershy tried to respond, feeling the tight embrace nearly knock the wind out of her.
 
-"I'm sorry, really. I'm sorry. Ughh!" Fluttershy said, and by now her skin was already starting to change color due to the intense hug.
+"A whole season in Mount Aris was too long! I know the baby dolphins needed you, but we needed you here too!" Pinkie continued, shedding even more tears while squeezing Fluttershy with enough enthusiasm to threaten her friend’s ribs.
 
-Meanwhile, her friends merely watched the scene with smiles. Fluttershy was the second-to-last to arrive at the gathering. The other three friends had already met that morning at the train station, but it wasn't until shortly before Fluttershy arrived that Pinkie Pie suddenly dashed out without explanations.
+"I’m sorry, really… I’m sorry… Ughh!" Fluttershy whimpered, noticing how Pinkie’s embrace grew tighter and tighter, to the point of making her change color.
 
-"Well, now we just need Rainbow Dash, and we'd all be here," Applejack said.
+Applejack and Rarity watched the scene unfold with amused smiles. Fluttershy was the second-to-last to arrive, and the three friends had already reunited at the station earlier that morning. But just before Fluttershy’s arrival, Pinkie Pie had dashed off without a word of explanation.
 
-"Wait! Rainbow hasn't arrived yet?" Pinkie asked in surprise, letting go of a tightly squeezed Fluttershy.
+"Well, now we’re just waiting on Rainbow Dash, and we’ll all be here," Applejack remarked, leaning back in her seat.
 
-"Nope."
+"Wait, what?! Rainbow isn’t here yet?" Pinkie exclaimed, abruptly letting go of a very squished Fluttershy, who immediately gasped for air as she was freed.
 
-"Could something have happened to her?" Pinkie asked, now looking worried.
+"Nope," Applejack replied casually.
 
-"I don't think so, she..." Applejack started to respond.
+"Could something have happened to her?" Pinkie asked, her expression shifting to genuine concern.
 
-"She could have had an accident. She could have lost her memory. She could have been kidnapped. She could be sick. They could have been caught in a storm. She could have traveled to another world. She could..."
+"I don’t think so. She’s—" Applejack began.
 
-"Or she could simply be running late," Rarity gently interrupted. "You see, dear, Rainbow Dash left a letter for Fluttershy while she was on her way to the train station."
+"She might’ve had an accident! She might’ve lost her memory! She could’ve fallen into a storm! She might be stuck in another world! She could—"
 
-"Huh?" Pinkie Pie's fluctuating mood was now confused, and she wasn't the only one.
+"Or… she might just be running late," Rarity interjected smoothly, trying to calm her down. "No need to work yourself into a frenzy, darling. You see, Rainbow Dash left Fluttershy a note on her way to the station."
 
-"It seems strange to me too, Pinkie. She hardly ever writes letters," said Applejack, helping a disoriented Fluttershy up from the floor of the carriage. At that moment, she handed her a crumpled piece of paper.
+"Huh?" Pinkie tilted her head, blinking in confusion. Her mood quickly shifted from worry to puzzlement, and she wasn’t the only one.
 
-Pinkie Pie unfolded it, revealing her friend's messy handwriting with a single message: "Running late."
+"I thought it was strange too, Pinkie. Rainbow almost never leaves notes," Applejack said, helping Fluttershy sit up before passing her the crumpled piece of paper.
 
-"Hmm, suspicious..." Pinkie Pie said with an intrigued look.
+Pinkie unfolded it hastily and found a short message in Rainbow Dash’s unmistakably messy handwriting: “Running late.”
 
-"That's not the only 'suspicious' thing today, dear," Rarity replied, having noticed the bulky bags Pinkie had brought along.
+"Hmm… suspicious," Pinkie muttered, narrowing her eyes in an intrigued expression.
 
-Pinkie noticed her gaze and responded, "Oh... it's not suspicious, it's a surprise."
+"Today’s not the only thing that’s ‘suspicious,’ darling," Rarity said, gesturing toward the bulging saddlebags Pinkie had brought with her.
 
-"Was that why you shot out of the train when we asked what surprise you had prepared for Twilight today?" Applejack asked, recalling the moment Pinkie Pie had exited the carriage like a pink projectile.
+Pinkie noticed Rarity’s inquisitive look and quickly responded, "Oh… it’s not suspicious at all! It’s a surprise!"
 
-"Noooo..." Pinkie Pie responded with a mischievous look, "it was because I thought these trivia game rulebooks would be perfect reading material for our train journey," she said as she pulled several bulky copies of the book 'Official Rules of Equestrian Trivia. 35th Edition' from her bags, handing one to each of her friends with a smile.
+"So that’s why you dashed off the train earlier when we asked what surprise you had planned for Twilight?" Applejack recalled, referencing the moment Pinkie had left the train like a pink projectile.
 
-Rarity and Applejack exchanged a brief suspicious look and simply rolled their eyes. While all of Twilight's friends gathered on the day of her coronation to help her with any friendship problems that might arise in the kingdom, they also used holidays like this to enjoy each other's company without worrying about any particular responsibilities. For this reason, they had agreed that each day of the "Sisters' Festival," one of them would organize a special activity dedicated to their good friend and ruling princess. The friend chosen by drawing lots would be tasked with making the gathering as memorable and exciting as possible.
+"Noooo…" Pinkie replied, a bit nervously. "It’s because I thought these trivia rulebooks would be perfect for our train ride!" She pulled out several hefty copies of the book, Official Equestrian Trivia Rulebook, 35th Edition, and handed one to each of her friends with a wide grin.
 
-This challenge had already been taken up by Applejack and Rarity, leaving only the other three friends.
+Rarity and Applejack exchanged skeptical glances before rolling their eyes. While all of Twilight’s friends had gathered for her coronation to help her solve friendship problems across the kingdom, they also took advantage of holidays like this to relax and enjoy each other’s company without worrying about responsibilities. During the "Festival of the Two Sisters," it was tradition for one of them to organize a special activity to honor their dear friend and reigning princess. The chosen friend’s task was to make the gathering as memorable and exciting as possible.
 
-Both ponies set aside the trivia manual.
+Rarity and Applejack had already taken their turns, leaving Fluttershy, Rainbow Dash, and Pinkie Pie next in line.
 
-"Darling, I know Twilight will love you organizing a trivia competition among us..." Rarity began.
+Setting aside the rulebooks and Pinkie’s peculiar enthusiasm, Rarity decided to handle things with grace. She was the first to speak:
 
-"HOW DID YOU KNOW?" Pinkie Pie exclaimed in surprise.
+"Darling, I’m sure Twilight would love it if you organized a trivia competition for us…"
 
-"I guessed," Rarity quickly responded, "but I think you should wait until after the drawing to start with the, uh... preparations."
+"HOW DID YOU KNOW?!" Pinkie exclaimed, her eyes wide with shock.
 
-"Besides, we haven't heard the ideas from the other ponies yet, have we, Fluttershy?" Applejack asked, trying to involve Fluttershy in the conversation.
+"Just a hunch," Rarity replied with a quick smile. "But I think you should wait for the drawing before jumping ahead with your plans."
 
-"Y-yes," Fluttershy timidly replied, seemingly recovered from Pinkie's 'friendly' hug.
+"Besides, we haven’t heard the others’ ideas yet, have we, Fluttershy?" Applejack added, glancing at Fluttershy to encourage her to join the conversation.
 
-"You have something prepared too, don't you, Fluttershy?" Pinkie asked, getting closer with a curious smile toward her friend.
+"U-um, no," Fluttershy murmured softly, curling up in her seat as she continued to recover from Pinkie’s ‘friendly hug.’
 
-"Y-yes..." Fluttershy responded even more shyly.
+"Do you have something planned too, Fluttershy?" Pinkie asked, leaning in with a curious smile.
 
-"Will you tell us NOW?" Pinkie asked, getting even closer.
+"Y-yes…" Fluttershy whispered, growing more timid.
 
-"N-NO. I mean, I think I'll wait until after the drawing, if that's okay with you," Fluttershy replied with sudden confidence.
+"Would you tell us?" Pinkie pressed, leaning closer.
 
-"I agree. We have plenty of time to chat during the journey. Besides, I'd love for you to tell us everything about your trip to Mount Aris, my dear friend Fluttershy," Rarity said as she settled into her seat.
+"Y-yes…" Fluttershy murmured, her voice barely audible as her nervousness intensified.
 
-Suddenly, the characteristic sound of the train's whistle echoed, announcing its impending departure from the station.
+"Will you tell us… RIGHT NOW?!" Pinkie shouted, leaning so far in that Fluttershy instinctively scooted back into her seat.
 
-"Oh, heavens! Rainbow Dash still hasn't arrived. Do you think the train conductor will accept waiting a little longer?" Fluttershy asked.
+"NO!" Fluttershy blurted out with unexpected firmness, straightening up as Pinkie backed away, surprised. "I mean… I’d prefer to wait until after the drawing, if that’s okay with all of you."
 
-"I don't know, dear. The train has already been delayed quite a bit today," Rarity replied.
+Faced with Fluttershy’s firm response, her friends nodded in agreement.
 
-"That pony, where could she be?" Applejack said, looking out the window.
+"You’re right, Fluttershy. We have plenty of time to chat during the trip," Rarity said gently as she settled into her seat. "Besides, I’d love to hear all about your adventures in Mount Aris, darling."
 
-"Maybe she's up above," Pinkie Pie said as her tail began to twitch.
+Just then, the train’s signature whistle echoed through the air, signaling its imminent departure.
 
-A dull thud resounded on the roof of the carriage. All the ponies looked up, and shortly after, they heard quick footsteps heading toward the roof hatch. It opened, and a cyan pony with a rainbow mane fell out of it.
+"Oh dear! Rainbow Dash still isn’t here. Do you think the conductor might wait just a little longer?" Fluttershy asked, concern evident in her wide eyes.
 
-It was none other than Rainbow Dash, in a firm stance, nervously looking in all directions.
+"I don’t know, dear. We’re already running quite late today," Rarity replied with a sigh.
 
-"Rainbow Dash, what do you think you're...?" Before Applejack could finish her question, Rainbow Dash covered her mouth with her hoof.
+"That pony… where in tarnation could she be?" Applejack muttered, casting a quick glance out the window.
 
-"Listen, I know it sounds crazy, but you have to close all the doors and windows. NOW!" Rainbow said seriously as she hid under one of the train carriage seats. After exchanging surprised glances, her friends quickly complied with her request. Shortly after, the entire carriage was secured from end to end.
+"Maybe she’s… up there," Pinkie Pie suggested, her tail twitching in an oddly restless way.
 
-"Alright, Rainbow, what's...?" Once again, Applejack was interrupted by a new thud on the roof. But this time, it was accompanied by a distinct sniffing sound. Stealthy steps were heard slowly making their way to the roof hatch they had forgotten to close.
+A muffled thud sounded from the roof of the train car, causing everypony to look up in surprise. Moments later, hurried hoofsteps approached the hatch, which burst open to reveal a sky-blue figure with a windswept rainbow mane and a determined stance.
 
-The ponies looked on with concern as a pony's nose that wouldn't stop sniffing began to emerge from the hatch.
+It was Rainbow Dash. As she landed in the car, her anxious gaze darted around the room.
 
-The train whistled once more and started moving.
+"Rainbow Dash, what in Equestria do you think you’re—" Applejack began, only to have her sentence cut off when Rainbow Dash firmly pressed a hoof to her mouth.
 
-The mysterious presence seemed to lose interest and quickly departed.
+"Listen, I know this sounds crazy, but we need to lock all the doors and windows. RIGHT NOW!" Rainbow ordered, her tone urgent as she dove under one of the seats.
 
-After a moment of silence, it was Rarity who asked the obvious question. "WHAT WAS ALL THAT?"
+The others exchanged bewildered looks but didn’t waste any time. Quickly, they secured every corner of the car, shutting all the doors and windows they could find.
 
-Applejack and the others turned to Rainbow Dash, who was in an uncomfortable position under a seat.
+"Alright, Rainbow, everything’s locked. Now what’s going—" Applejack’s question was interrupted yet again as a loud thud echoed above their heads.
 
-"It's a bit of a long story. Can someone pass me a cushion?" a tired Rainbow Dash said with a fake smile.
+Cautious hoofsteps crept closer to the roof hatch, the one opening they’d forgotten to close in their rush. Eyes glued to the hatch, the ponies froze, holding their breath.
+
+Inside the dimly lit car, where only faint rays of light filtered through the curtains, everypony watched with growing tension as an unfamiliar nose poked through the hatch, sniffing persistently, as if searching for something.
+
+At that exact moment, the train whistle blared again, and the locomotive began to move. The mysterious figure hesitated for a brief second before vanishing abruptly, seemingly discouraged by the train’s departure.
+
+Once the figure was gone, the ponies collectively exhaled in relief. An awkward silence filled the car, until Rarity finally broke it, voicing what everypony was thinking:
+
+"WHAT IN EQUESTRIA WAS THAT?!"
+
+All eyes turned to Rainbow Dash, who remained half-hidden under the seat, her expression a mix of relief and nervousness.
+
+"It’s… kind of a long story," Rainbow Dash admitted, offering a slightly forced smile as she tried to get comfortable. "Does anypony have a cushion?"
