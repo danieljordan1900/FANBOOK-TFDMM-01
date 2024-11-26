@@ -1,523 +1,290 @@
-In one of the train carriages heading to Canterlot, a young pony sat trembling in the midst of oppressive darkness, under the faint light filtering in from the ceiling. The young pony, hunched over amidst boxes and cargo equipment, hadn't slept the night before and had gone hours without any food. But despite his physical exhaustion, his spirit remained strong, keeping him focused and alert. However, the anxiety that enveloped him couldn't be ignored.
+In the train bound for Canterlot, within one of the cargo carriages stacked high with crates and bulky luggage, a young pony sat cloaked in oppressive darkness. His face, faintly illuminated by the dim light seeping through the hatch above, betrayed a nervous energy. He hadn’t slept the previous night, and it had been hours since he’d had anything to eat. Yet none of this was the true source of his unease. His spirit remained resilient, his mind sharp and alert.
 
-He was aware that the moment was drawing near.
+It was, rather, his clarity—the unyielding awareness of his predicament—that fed the storm inside him.
 
-Amidst this anticipation, he decided to open the bottle of cider that had been given to him as a prize. It was the first time in his life he had tasted cider, and upon drinking it, the taste of the beverage only served to scorch his throat, worsening his discomfort. Nevertheless, he continued to drink, consuming approximately a third of the bottle before setting it aside. Soon, the effects of the drink dissipated his tremors, and his mind cleared even more. He felt ready, but there was still some time left, so he decided to turn on the music player he had with him, put on his headphones, and, feeling more relaxed, stretched out on the floor.
+The moment of his ultimate trial was drawing near.
 
-Those headphones were so new that they still had their box on the side, another gift he hadn't wished for but couldn't refuse either. It was probably the only opportunity in his life to try out such accessories.
+Trying to steady his nerves, he reached for the bottle of cider his mentors had gifted him before he boarded the train. It was his first time tasting cider, and the fiery burn of the first sip made him cough dryly, the sound echoing in the stillness of the carriage. Despite the discomfort, he kept drinking, downing about a third of the bottle before setting it aside. Gradually, the warmth of the drink eased the trembling in his hooves, and his thoughts became more focused.
 
-Intrigued by this modern device, the young pony checked the box and read to himself: "Silent Gamma Headphones - Averages C."
+With a bit of time to spare, he switched on the music player he carried, slipped on the headphones, and let himself sink to the floor in an attempt to relax.
 
-//----------------------//
+The headphones were so new that their box still rested nearby, untouched apart from the broken seal. Another gift he hadn’t asked for but couldn’t refuse. It was unlikely he’d ever get the chance to own something this sophisticated again in his lifetime.
 
-"...and that's what happened," Dash finished confidently.
+Curious about the sleek gadget, he picked up the box and read the label softly: "Gamma Silente Headphones - Averages C."
 
-"Wow! That was amazing. You fought against a giant crocodile, saved Daring Do from being devoured by a swarm of ant-locusts, and restored peace in a kingdom of hippos. You're awesome, Dashi!" exclaimed Pinkie Pie, bouncing in her seat.
+[---]
 
-"Yeah, it's really an 'amazing' story, Rainbow," Applejack commented with a skeptical tone next to Rarity.
+"...and that's what happened," Rainbow Dash concluded confidently. In front of her, her friends listened intently.
 
-"And after all that, Daring Do handed you the original draft of her latest book. Wow..." said Fluttershy, thoughtfully looking at her own saddlebag.
+"Wow! That was incredible! You fought a giant crocodile, saved Daring Do from being eaten by a swarm of ant-locusts, and restored peace to a kingdom of hippos. You're amazing, Dashie!" Pinkie Pie exclaimed, bouncing excitedly in her seat.
 
-"Yes, that's right," confirmed Dash.
+"Yeah, that's a pretty ‘incredible’ story, Rainbow," Applejack remarked, her tone dripping with skepticism as she cast a sidelong glance at Rarity.
 
-The four ponies looked at the pile of disheveled and battered documents Dash had left on one of the seats.
+"And after all that, Daring Do gave you the original draft of her latest book? My goodness..." Fluttershy murmured thoughtfully, her hooves fiddling with the saddlebag slung across her side.
 
-"It's truly a very valuable document, dear. But I suppose by bringing it here, this is the surprise you have prepared for Twilight, right?" Rarity asked.
+"Exactly! That's exactly how it happened," Dash confirmed, radiating an almost defiant confidence.
 
-"Of course! Knowing her, she might have already read the book ten times. But I'm completely sure I'll impress her when I give her this," Dash replied, filled with excitement.
+The four ponies turned their attention to the pile of disheveled and battered documents Rainbow Dash had proudly placed on one of the seats moments earlier.
 
-The rainbow Pegasus had already imagined several times what would happen next. Her friends would bombard her with questions and praises for her brilliant idea, for which she had even prepared some pre-emptive responses. However, none of that happened. Instead, her friends looked at each other with concern.
+"We understand these documents are very valuable, darling. And since you've brought them to our little gathering today, I suppose this must be the big surprise you have planned for Twilight, right?" Rarity asked, narrowing her eyes.
 
-"What's going on?" Dash asked, puzzled by her companions' lack of enthusiasm. "Don't you think she'll be surprised?"
+"Of course!" Dash exclaimed with excitement. "Knowing her, she's probably read the published book ten times already. But I’m sure she’ll be blown away when she sees this."
 
-"Of course she'll be surprised," Applejack replied. "It's just that your story doesn't explain anything about what happened a moment ago."
+Rainbow Dash had pictured this moment over and over. Her friends would bombard her with questions and praise for her brilliant idea, and she'd respond to each one enthusiastically. As long as she avoided mentioning that other dangerous matter, everything she’d gone through to get those documents would be worth it.
 
-"Explain what?" Dash replied, feigning innocence.
+All I need is their approval... just that.
 
-"Who was that suspicious pony we saw earlier?" Applejack asked, in a serious tone.
+Keeping her emotions tightly guarded, Dash waited with a confident smile. But...
 
-"Oh, that, it's not important. Just an admirer I met somewhere who wants me to sign a contract to become her star model. Funny, right?" Dash replied.
+Nothing of the sort happened.
 
-The other ponies looked puzzled, Applejack frowned, and Rarity raised an eyebrow.
+Instead, her friends exchanged silent glances, their expressions laced with concern.
 
-"An admirer...?" Applejack replied, inquisitively.
+"What’s wrong?" Dash asked, a chill of unease creeping over her as she noticed the lack of enthusiasm. "Don’t you think she’ll be impressed?"
 
-"Well, you should talk to her. She shouldn't be stalking you like that. It'll only cause you trouble, and you'll end up more stressed than you already are," Pinkie said as she ate some muffins she had pulled from somewhere. The other ponies gave her a brief reproachful look, as it was a somewhat cheeky advice considering that their pink friend had acted that way numerous times in the past.
+She didn’t show it on her face, but inside, a growing fear was twisting her stomach into knots.
 
-"Stressed? What are you talking about, Pinkie? I'm perfectly fine."
+"Oh, she’ll definitely be surprised," Applejack replied in a calm yet firm tone. "It’s just that your story doesn’t explain what happened earlier."
 
-"Pinkie's right, dear. You look terrible. Have you seen yourself in a mirror?" Rarity said.
+A faint twitch in Dash's eyelid betrayed her nerves, though she didn’t seem to notice it herself.
 
-Dash frowned. She usually didn't trust Rarity's opinion when it came to her appearance, as she tended to exaggerate. But the doubt had already been planted, so she decided to ask the pony she knew would never lie to her.
+"Explain what?" she shot back immediately, feigning innocence.
 
-"Fluttershy, do I really look that bad?" Rainbow said, glancing past Applejack.
+"Who was that suspicious pony we saw earlier?" Applejack asked seriously, her gaze unwavering.
 
-"Well... yes, you don't look so bad, but when you arrived, I really got worried. Well, we all got worried," Fluttershy replied as she handed her friend a mirror.
+"Oh, that? It’s nothing important," Dash replied with a casual shrug and a forced laugh. "Just a fan I met somewhere. She wants me to sign a contract to be her star model. Funny, right?"
 
-Dash soon saw her reflection. Fluttershy was right. Her mane was more disheveled than usual, and her irritated eyes showed slight dark circles. Although she still looked amazing, she wasn't in her best condition.
+Her words, deliberately simple, hardly convinced anyone. Applejack frowned, and Rarity raised a skeptical eyebrow.
 
-"Well, I think you should talk to your 'admirer' and clarify what you think. Today we have a special day with Twilight, and it would be wrong to bring her that kind of trouble," Applejack scolded.
+"A fan?" Applejack pressed, her tone sharpening.
 
-Dash rolled her eyes bored. "Pfft! You worry too much, Applejack. Everything's fine!"
+"You should probably talk to her. She shouldn’t be creeping on you like that. It'll just cause you more trouble and make you more stressed than you already are," Pinkie chimed in, pulling a muffin out of nowhere and taking a nonchalant bite.
 
-At that moment, the train doorbell rang. Shortly after, a train employee poked his head through the door, while the noise of what seemed to be a large group of colts on the other side grew louder.
+The other ponies shot her brief, reproachful looks; they all knew Pinkie wasn’t exactly the best source of advice on boundaries, given her own history of similar behavior.
 
-"Oh, excuse me, is Miss Rainbow Dash here? Several youngsters want to meet her," the employee asked. From the other side of the door, the clamor of praises and excited shouts grew louder.
+"Stressed? What are you talking about, Pinkie? I'm perfectly fine," Dash retorted, her tone a mix of exasperation and defiance.
 
-Applejack and the rest of the friends turned to where Rainbow Dash was sitting, but the Pegasus wasn't there. Instead, she was poking her head out of a window, with the rest of her body ready to exit the carriage.
+"Pinkie’s right, darling. You look dreadful. Have you seen yourself in a mirror?" Rarity chimed in, her usual dramatic concern for appearances shining through.
 
-"Ha, ha... it's really hot today," Dash said to her friends, hiding her nervousness as she sat back down.
+Rainbow frowned, feeling a twinge of irritation. She rarely trusted Rarity’s opinions on her looks, considering them overly melodramatic. Still, the seed of doubt was planted, so she turned to the friend she knew would never lie to her.
 
-//----------------------//
+"Fluttershy, do I really look that bad?" she asked, avoiding Applejack's piercing gaze.
 
-The train carriage where the pony friends were exploded into a deafening uproar of excitement and cheers.
+"Well... you don’t look too bad, but when you first arrived, I was really worried. Actually, we all were," Fluttershy admitted softly as she pulled out a small mirror and offered it to Dash.
 
-"IT'S RAINBOW DASH!", "SHE'S AMAZING!", "YES!". The young colts who had entered cheered joyfully. Their friends watched them with smiles, except for Applejack, who maintained a skeptical look.
+With some reluctance, Rainbow glanced at her reflection. Fluttershy wasn’t wrong. Her mane was more disheveled than usual, her eyes were slightly red, and faint dark circles lingered beneath them. She still thought she looked awesome—naturally—but she couldn’t deny she wasn’t at her best.
 
-"Alright, I got this," said Dash, more spiritedly, leaving her friends behind. "Wow, I guess everyone came for an autograph, huh?"
+"Maybe you should go talk to your 'admirer' and clear things up," Applejack cut in firmly. "We’ve got a special day planned with Twilight, and it wouldn’t be fair to mess it up with all this drama."
 
-"YEAH!", neighed the young ponies. Some jumped while others stamped the ground.
+Dash rolled her eyes with a groan, letting out an exaggerated sigh. "Pfft! You worry too much, Applejack! Everything’s fine!"
 
-"Okay, okay, settle down. Form a line and give me something to sign." Dash flew to a seat and pulled out a pen from somewhere in her mane. "Alright, who's first?"
+Just then, the cheerful chime of the train car bell interrupted the conversation. Moments later, a train attendant poked his head in, the lively chatter of young voices growing louder beyond the door.
 
-Without needing further instructions, the colts and fillies quickly formed a line. The first was a filly with a pink hat and ribbon, carrying a book that seemed to be about cooking. With great joy, she handed it to Dash.
+"Excuse me, is Miss Rainbow Dash here? A group of foals is eager to meet her," the attendant announced kindly. The noise outside surged, accompanied by excited shouts and praises directed at the pegasus.
 
-"Huh, are you sure you want me to sign here? Works for me." Quickly, Dash passed her hoof over the open book.
+Rainbow Dash’s friends turned toward the commotion, but when they looked back to Dash... the spot where she had been standing was empty.
 
-"Yeeesss!, of course! Your Blackberry Pie recipe is just like my grandma's," said the filly before moving away from the line.
+"Rainbow?" Applejack called, blinking as she scanned the car.
 
-"Huh?" said Dash, confused. Behind her, Pinkie Pie was heard choking on one of the muffins she was eating. "Okay... next!"
+A few steps away, Dash’s silhouette was visible. Her head was sticking out of the window, and the rest of her body was poised in a suspiciously ready-to-jump stance.
 
-"Me! Me! Here, here," it was a colt with blue fur and white sneakers. He handed Dash a brochure of sneakers for travel and exploration.
+"Ha, ha! Sure is warm today, huh?" Dash said with a nervous grin, slowly retreating back into the center of the car while doing her best to avoid her friends’ questioning stares.
 
-"This is better! Here you go." Quickly, Dash passed her hoof over the brochure.
+[---]
 
-"Awesome! Now my folks gotta buy me the same sneakers you wear, yay!" said the colt before running off the carriage.
+The train car erupted into a deafening uproar of cheers and excited shouts.
 
-Behind Dash, murmurs from her friends could be heard. Dash didn't turn around, her face already reflecting the feeling that something was not right.
+"IT'S RAINBOW DASH!" "SHE'S AMAZING!" "YEAH!" cried the foals, practically vibrating with joy as they crowded around their idol. Her friends watched with amused smiles—except Applejack, who maintained a skeptical expression.
 
-"Alright, you!" pointing her hoof, Dash stopped the next young filly who had stickers on her face. "Where do you want me to sign?"
+"Alright, I’ve got this," Dash said, visibly perking up. She stepped away from her friends and strode forward confidently. "Wow! I guess you all came here for an autograph, huh?"
 
-"On my fashion magazine," the filly replied cheerfully.
+"YEEEEESSS!" the young ponies neighed in unison, some bouncing up and down while others stomped their hooves in a frenzy of excitement.
 
-"And that's because...?" questioned the concerned pegasus.
+The roar of cheers and the glimmering admiration in her fans’ eyes rekindled Rainbow Dash’s energy. With a flourish of her wings, she lifted into the air, striking her signature pose. Any trace of fatigue or unease melted away, as though the adoration itself had magically reinvigorated her.
 
-"Because I love your makeup! Your sparkles and stickers are divine! Yaaay!" neighed the excited filly.
+"Alright, alright, calm down. Form a line and give me something to sign." Dash landed next to a seat and, as if she had rehearsed it, pulled a pen out from her mane. "Okay, who’s first?"
 
-Rainbow Dash took the filly's magazine and reviewed it, an expression of distress appearing on her face.
+Without hesitation, the foals lined up in an orderly queue. First up was a filly sporting a pink hat and ribbon, holding what appeared to be a cookbook. Beaming, she handed it to Dash.
 
-"Alright, here's your signature," said the pegasus, signing and abruptly dismissing the filly. "THANKS FOR COMING, BUT THAT'S IT!"
+"Huh? Are you sure you want me to sign this? Fine by me." Dash quickly scribbled her name across the open page.
 
-Words of confusion and disappointment were heard among the colts.
+"YESSS! Of course! Your Blackberry Pie recipe tastes just like my grandma’s!" squealed the filly before bouncing out of the line.
 
-But before anyone could complain, Dash continued: I'LL CONTINUE WITH THE AUTOGRAPHS WHEN THE TRAIN ARRIVES AT THE NEXT STATION! I PROMISE! RAINBOW DASH'S WORD!
+"Uh... what?" Dash muttered, confused. Behind her, she could hear Pinkie Pie choking on a muffin, but decided to ignore it. "Alright… next!"
 
-Perhaps they were very polite or trusted their idol Rainbow Dash's promise, but the vast majority decided to comply despite being unhappy. Thus, with the help of the train employee, Rainbow Dash quickly managed to get all the young ponies out of the carriage.
+"Me! Me! Over here!" a blue-coated colt with white sneakers called, handing Dash a travel shoe catalog.
 
-Dash sighed tiredly as she closed the carriage door after the last of the colts crossed it. She had solved one problem, but now she had a bigger one on her hands.
+"Now this is more like it! Here you go." Dash swiftly signed the booklet.
 
-"Wow, Rainbow, I didn't know you liked wearing sneakers," said Pinkie Pie as she looked over a brochure that one of the colts had dropped.
+"Awesome! Now my parents have to buy me the same sneakers you wear! Yesss!" the colt shouted, running off excitedly.
 
-Before a second passed from Pinkie finishing her sentence, Dash, at a considerable speed, grabbed the brochure from Pinkie and all the others on the floor. Then she threw them out of one of the train's windows.
+Behind Dash, her friends exchanged murmurs. She didn’t turn around, but her smile began to falter as an uncomfortable feeling crept over her. Something wasn’t adding up.
 
-"Phew, geez. Those kids should take better care of where they leave their trash. Cleanliness is very important! Don't you think?" said Dash breathlessly as she closed the window.
+Everypony in that car knew perfectly well that Rainbow Dash didn’t wear sneakers.
 
-Her friends looked at her puzzled for a moment, then exchanged some words of acceptance among themselves, intending to let the matter go. However, Applejack wasn't willing to let it slide.
+"Okay, you!" she said, pointing a hoof at the next filly—a young pony with stickers plastered across her face. "Where do you want me to sign?"
 
-"That's enough! Rainbow Dash, what are you hiding?" said the farm pony in a stern tone approaching the pegasus.
+"On my fashion magazine," the filly answered brightly.
 
-"Hiding something? What could I be hiding?" said Dash with a slightly tense laugh.
+"And that’s because…?" Dash asked, feeling a knot tighten in her stomach.
 
-"Since you arrived, I've felt that something's NOT RIGHT, and when something's NOT RIGHT, I can't stay silent. I'm asking you again, WHAT ARE YOU HIDING, RAINBOW DASH?"
+"Because I love your makeup! Your sparkles and stickers are fabulous! Yip!" the filly neighed enthusiastically.
 
-"Hey, calm down, Applejack. Everything's fine. I'm not hiding anything, right, girls?" said Dash, seeking support from her other friends. The rest of her friends didn't respond.
+Rainbow Dash nearly yanked the magazine from the filly's hooves. Flipping through it, her expression shifted to one of mild horror.
 
-Silence filled the carriage with tension.
+"Alright, here’s your autograph," she said briskly, scrawling her name and handing the magazine back. She then turned to the remaining line.
 
-Sensing which side her friends were on, Dash felt she had had enough of this situation and, in an annoyed tone, spoke to them, "I just remembered I need to buy something. I'll go on ahead. See you in Canterlot."
+"THANK YOU FOR COMING, BUT THAT’S ALL FOR NOW!" she suddenly shouted.
 
-"You...!" said Applejack, now truly upset, but she was interrupted by someone else.
+A ripple of confusion swept through the foals, but before they could voice their disappointment, Dash raised a hoof and added:
 
-"Are you thinking of leaving already, Rainbow Dash? I thought you'd want to spend more time with your friends," a voice from the other side of the carriage asked.
+"I’LL KEEP SIGNING AUTOGRAPHS WHEN WE GET TO THE NEXT STATION! I PROMISE! RAINBOW DASH’S WORD!"
 
-They all turned their gaze to the back of the carriage, there was Magazine Doublereport herself, comfortably seated and sipping on a soda.
+Perhaps it was blind faith in her or simple politeness, but most of the foals complied, though a few visibly pouted. With the help of the train attendant, Rainbow Dash quickly ushered the young ponies out of the car.
 
-//----------------------//
+Dash let out an exhausted sigh as she shut the door of the train car behind the last of the foals. One problem had been resolved, but now she felt a bigger one looming over her.
 
-The train continued to move slowly across the meadow, interrupting its journey as peaceful flocks of sheep crossed the path towards Canterlot.
+"Wow, Rainbow, I didn’t know you liked wearing sneakers," Pinkie Pie remarked, holding up a brochure one of the foals had dropped.
 
-Meanwhile, in the special guest carriage, a more active and bustling situation was beginning to unfold. The mysterious white-skinned pegasus with red mane and black stripes approached the group of friends with a mischievous look. She had a radiant smile, full of confidence, befitting a successful entrepreneur. And indeed, that's what she was, as evidenced by the yellow tie she wore. Magazine Doublereport needed no introduction; her image said it all. However, she couldn't avoid formalities, especially when she enjoyed performances so much.
+Before another second passed, Dash sprang into action with lightning speed. She snatched the brochure from Pinkie’s hooves and hastily scooped up all the others scattered on the floor, tossing them out one of the train’s windows.
 
-At that moment, nothing amused her more than the fear she perceived in Rainbow Dash.
+“Whew! Those kids really need to take better care of where they leave their trash. Cleanliness is super important, don’t you think?” Dash said, breathless, as she slammed the window shut with a forced grin.
 
-"Hello! Nice to meet you all! I'm Magazine Doublereport, owner and chief executive of the Averages consortium. You can call me 'MAGI'. It's a pleasure to meet the heroic and acclaimed friends of Princess Twilight Sparkle," Magi quickly exclaimed, almost sounding like a whinny.
+Her friends stared at her in baffled silence. While most exchanged uneasy glances, trying to brush off the incident, Applejack wasn’t about to let it go.
 
-One by one, she began to greet the surprised Rarity, Pinkie Pie, and Fluttershy, while handing them promotional brochures.
+“That’s it! Rainbow Dash, what in tarnation are you hiding?” demanded the farm pony, her tone firm as she stepped closer to the pegasus.
 
-"Hey, you're not the pony from a moment ago..." Applejack said.
+“Hiding? Me? Hah! What could I possibly be hiding?” Dash replied, letting out a laugh that sounded more like a nervous hiccup.
 
-"And you must be Applejack, nice to meet you!" said Magi, shaking Applejack's right hoof in such an effusive greeting that the farmer fell dizzy to the side when it ended.
+“Ever since you got here, somethin’ just ain’t sittin’ right. And when somethin’ ain’t right, I can’t just keep my mouth shut. So I’m askin’ you one more time—WHAT ARE YOU HIDIN’, RAINBOW DASH?” Applejack’s voice rose as her emerald eyes bore into Dash’s.
 
-Thus, Magi, approaching each one, finished greeting them all.
+“Whoa, whoa, calm down, Applejack! Everything’s fine. Nothing to worry about. Right, girls?” Dash’s eyes darted to her other friends, silently pleading for backup.
 
-"Excuse me for interrupting your pleasant gathering, but I need to speak with your friend Rainbow Dash for a moment," Magi addressed Applejack and the rest of the ponies before then, approaching the rainbow pegasus with excessive confidence. "Really, all your friends look as cool as you mentioned, Dashi. By the way, I need you to sign some additional documents to include the Crystal Empire in the target market for the marketing campaign. Dash... Dash? Are you there?"
+But all she got was silence.
 
-Rainbow Dash didn't respond. In her terrified eyes, only reflected the scene unfolding before her slowly.
+The weight of her friends’ disapproving gazes bore down on her. Frustration bubbling up, Dash decided she’d had enough. Her tone turned sharp and defensive as she spoke:
 
-Pinkie Pie was holding back laughter in her seat while looking at a pajama brochure where Dash appeared wearing rabbit ears. Rarity, astonished, stood observing a fashion brochure where Dash sported an elegant spring dress. Fluttershy, on the other hand, seemed not to react at all, or rather, she was paralyzed by the content of the friendly hunting and taxidermy brochure she still held between her hooves.
+“Y’know what? I just remembered I have something to pick up. I’m gonna head on ahead. See you all in Canterlot.”
 
-Without waiting to hear a word from her friends, Dash shot out like a rainbow lightning through one of the windows.
+“You—!” Applejack started, her voice tinged with indignation, but she was cut off by an unexpected voice.
 
-Her friends were surprised by their loyal friend's sudden departure.
+“Leaving already, Rainbow Dash? I thought you’d want to spend more time with your friends,” a smooth, unfamiliar voice chimed in from the far end of the car.
 
-"Great! There she goes again... Is she always like this?" Magi asked somewhat annoyed at the rest of the ponies.
+Everypony turned to look. There, lounging comfortably and holding a drink in her hoof, sat none other than Magazine Doublereport herself.
 
-"Who did you say you were?" Applejack replied, still disoriented from the earlier greeting.
+[---]
 
-"Apologies for our friend's behavior, Miss Magi," Rarity said, moving Applejack aside. The unicorn had understood Magi's position. "But tell us, what is your relationship with our friend Rainbow Dash?"
+The train's progress had slowed to a crawl. Out in the vast prairie, flocks of sheep leisurely crossed the tracks, oblivious to the frustration of the train engineers, whose schedule was already severely behind.
 
-"I'm currently her legal representative and manager," Magi replied after taking a seat and settling in comfortably.
+Meanwhile, the guest carriage was a hub of far more activity. A mysterious pegasus with a white coat and a red mane streaked with black had suddenly interrupted the gathering of friends. Rising to her hooves, the unfamiliar mare approached the ponies with a sly look and a radiant smile. Her confident demeanor was that of a seasoned city entrepreneur. And indeed, that’s precisely what she was. The yellow tie she wore, the office accessories peeking from her sleek saddlebags, and the overpowering fragrance she exuded made that abundantly clear.
 
-"Rainbow Dash has a manager?" Pinkie immediately asked, puzzled. She wasn't the only one; all of them, including Applejack, looked at each other in confusion.
+Magazine Doublereport didn’t need an introduction; her presence spoke for itself—especially the corporate badge pinned to her chest, bearing a sophisticated "A" in red, black, and white.
 
-"I think I've heard of the Averages Consortium before..." Rarity murmured under her breath, seeming to be trying to remember something. "Miss Magi, you just mentioned being our friend's legal representative. Could you elaborate on that?"
+Of course, as a businesspony, she had to introduce herself anyway. But far from finding it tedious, she relished these theatrics.
 
-"Of course, Miss Rarity, you see, your friend Rainbow Dash recently signed a 'binding contract' with the Averages Consortium for us to use her image and name, given the importance she holds as a star client. Personally, I took on the responsibility of managing all the legal aspects involving her. It's quite an effort considering how hectic her 'daily schedule' is. However, it's a necessary investment to turn her into the new and biggest celebrity in all of Equestria," Magi concluded with a wide smile.
+And in this moment, Magi—as she preferred to be called—was enjoying herself even more as she noticed the faint flicker of fear in Rainbow Dash’s eyes.
 
-Rarity was dumbfounded after hearing that statement, as were the others.
+“Hello! So wonderful to meet you all! I’m Magazine Doublereport, owner and CEO of the Averages Consortium. Please, call me Magi. It’s an honor to meet the heroic and celebrated friends of Princess Twilight Sparkle,” Magi said in an enthusiastic burst that was almost a whinny.
 
-Applejack, on the other hand, barely showed emotion. She already expected something bad from that executive-looking pony. The farm pony knew that a 'binding contract' was bad news no matter where you bit it from. She wasn't a legal expert like Twilight, but her grandmother had told her enough stories about that infamous document to know what kind of trouble it could cause.
+One by one, Magi greeted Rarity, Pinkie Pie, and Fluttershy, handing out promotional brochures with a dazzling smile.
 
-"So she went and did that..." Applejack said, connecting the dots in her mind. "So that's why she's been hounding our friend, right, Miss Magi?"
+“Uh, you’re not the pony from a moment ago…” Applejack observed skeptically, her eyes narrowing.
 
-Magi, sensing Applejack's hostility and what she might be thinking, responded quickly.
+“And you must be Applejack! So pleased to meet you!” Magi replied, grabbing Applejack’s right hoof and shaking it so vigorously that the farm pony stumbled to the side, visibly dizzy.
 
-"I'd like there to be no misunderstandings between us, but Miss Rainbow Dash received a fair deal and was fully informed of the scope of the document she signed with my organization. Consequently, I ensure she complies with what was agreed upon," Magi said with a smile, but with a tone of seriousness.
+With the introductions complete, Magi addressed the group with her trademark confidence.
 
-"What was agreed upon? And what does that entail?" Applejack inquired, hoping for a more detailed explanation from Magi.
+“Apologies for the interruption, but I need to borrow your friend Rainbow Dash for just a moment,” she announced, stepping closer to the pegasus. “Your friends are as amazing as you said they’d be, Dash. You really should’ve warned me you’d be meeting them—naughty, naughty! But no hard feelings. More importantly, I need you to sign some documents to include the Crystal Empire in the marketing campaign. The Dash Splash cleaning accessories are a hit! Great name, don’t you think? Dash…? Dash?”
 
-"Well, it's a somewhat lengthy explanation, unfortunately, I don't think you and your friends have the time..."
+Rainbow Dash didn’t respond. Her eyes were glued to the brochures her friends were holding.
 
-"We've got it!" Applejack responded firmly, interrupting Magi's words, while her friends nodded in agreement.
+Pinkie Pie was barely stifling a laugh as she stared at a pajama catalog featuring Rainbow Dash in bunny ears. Rarity, stunned, examined a fashion flyer where Dash modeled an elegant spring ensemble. Fluttershy, frozen—no, paralyzed—clutched a brochure for “friendly hunting,” complete with images of taxidermied animals.
 
-"If that's the case, then I can give you a brief summary..." Magi responded. Inside, the executive pegasus sighed tiredly. That explanatory talk wasn't to her liking, but she had to do it if she wanted to achieve the goals she had in mind.
+Without warning, Rainbow Dash bolted straight out the nearest window, leaving her stunned friends behind.
 
-With nothing more to add, Magi proceeded to explain to the pony friends how, after meeting Dash and her signing a binding contract several days ago at the Averages Consortium's main offices in Manehattan, she and her partners began using her image in commercial advertisements. Magi clarified that Dash wasn't the pony appearing in the brochures, but rather models who wore her same colors. It had been a complicated and tedious process of makeup, but in the end, it had received Rainbow Dash's personal approval. However, Magi didn't mention that this had been achieved through lies and deceit.
+“Great. There she goes again. Is she always like this?” Magi asked, her tone a mix of irritation and surprise.
 
-That's how Magazine Doublereport worked, sometimes using manipulation and threats as means to achieve her goals. Her smile, on the other hand, wasn't fake; she enjoyed the dark satisfaction of having control over others.
+“And who exactly did you say you were?” Applejack demanded, still trying to steady herself after the overly zealous handshake.
 
-As she concluded her explanation, a question hung in the air among the group of friends.
+“Pardon me, Miss Magi,” Rarity interjected politely, stepping forward. “But what exactly is your connection to our friend Rainbow Dash?”
 
-"But why would Rainbow Dash want to become a commercial celebrity? She doesn't seek that kind of fame," the innocent Fluttershy asked aloud.
+“I’m her legal representative and manager,” Magi replied nonchalantly, settling into a nearby seat.
 
-"It's true that at first, your friend Rainbow Dash showed no interest in my initial proposal," Magi responded calmly, taking a sip of her drink. "However, she changed her mind when I included in my offer the opportunity to acquire the original drafts of the latest Daring Do book. She was excited to get them. I believe she mentioned something about 'winning a very special competition.' Although I could be mistaken."
+“Rainbow Dash has a manager?” Pinkie asked, tilting her head in visible confusion.
 
-The four friends looked at each other and then glanced at the stack of documents on one of the seats. Everything was starting to make sense. Three years ago, the five friends had made a promise to celebrate or surprise their great friend Twilight on a day like this, without specifying the type of celebration (it could be a party, a gift, or another gesture), but making it very clear that they would do so by supporting each other, without any competitive spirit among them. However, recent events indicated that their pegasus friend had decided to set aside that rule.
+The rest exchanged glances, equally bewildered by this unexpected revelation.
 
-"All of this is truly shocking, Miss Magi. We would like to know more about this delicate matter, if you wouldn't mind giving us more time..." Rarity declared, beginning to understand the mess Rainbow Dash had gotten herself into.
+"I believe I've heard of the Averages Consortium before..." murmured Rarity thoughtfully. After a brief pause, she added with a more serious tone, "Miss Magi, this is truly surprising for all of us. Could you please explain a bit more about this situation?"
 
-"I don't mind at all, Miss Rarity," Magi interrupted. "However, I don't have so much time to offer further explanations. I have a meeting with Averages Consortium executives later today, and Rainbow Dash must be present. I am obliged to take her to the offices in Manehattan, or else your friend could face serious legal problems. I don't want that to happen, and I imagine neither do you, so if you'll permit me..."
+"Of course, Miss Rarity. You see, your friend Rainbow Dash recently signed a binding contract with the Averages Consortium, allowing us to use her name and likeness. Given her immense significance as a star client, I personally took on the responsibility of managing all legal matters related to her. It's a challenge, considering how 'hectic' her daily schedule tends to be. Still, she's a crucial investment in our vision to make her the newest and greatest celebrity in all of Equestria!" Magi explained with a triumphant smile, as if announcing the crowning achievement of her career.
 
-"Don't worry about that, I'll go fetch her," Applejack announced abruptly.
+When she finished, Rarity was utterly stunned, as were most of her friends.
 
-"Do you know where she is?" Rarity asked, surprised in chorus with Pinkie Pie. Applejack nodded in response. Seeing her so sure, she and the rest of her friends didn't ask any more questions. Magi also noticed that detail.
+Well, not all of them.
 
-"Can you really bring her?" Magi asked, inquisitive.
+Applejack, who had maintained a neutral expression throughout the conversation, had already suspected what kind of news Magi might deliver. The phrase binding contract only confirmed her suspicions. She wasn’t an expert in legal matters like Twilight, but her granny had shared enough tales about such documents to know they rarely brought good news.
 
-"That's right," confirmed Applejack, who seemed uninterested in negotiating.
+"So that's what she did..." Applejack murmured, piecing things together in her mind. Then, with a firm tone, she added, "So that's why you've been chasing after our friend, huh, Miss 'Magi'?"
 
-"Alright, I really appreciate it. Then, I'll stay here until you return. But no more than 15 minutes," said Magi, accepting Applejack's proposal with some distrust.
+Sensing the tension in Applejack's voice and anticipating where this was heading, Magi replied swiftly.
 
-"I won't take that long, be right back," said Applejack, adjusting her hat before quickly exiting through the rear door of the carriage.
+"I’d like to avoid any misunderstandings between us. Miss Rainbow Dash was given a fair deal and was fully informed of the terms of the document she signed with my organization. As such, I’m simply ensuring she fulfills her obligations under that agreement."
 
-The rest of her friends watched her leave, worried. They all wondered what was happening to their friend Rainbow Dash and sincerely hoped that Applejack would bring her back. On the other hand, Magi...
+"Fulfills her obligations? And what does that mean, exactly?" Applejack shot back, her gaze unwavering.
 
-"I have samples of the new Ginger-flavored Jumy Cookies. Anyone interested?" offered Magi.
+Magi let out an almost imperceptible sigh. "Well, it's an unfortunately long explanation. I doubt you and your friends have the time—"
 
-Pinkie Pie waved her right hoof in the air, excited about the offer.
+"We’ve got the time!" Applejack interrupted with firm determination. Her friends immediately nodded in agreement, making it clear they were ready to hear whatever Magi had to say.
 
-//----------------------//
+Magi, however, wasn’t nearly as enthusiastic.
 
-On the delayed train from Ponyville to Canterlot, Applejack trotted toward the last of the cars. She found it closed, which didn't surprise her since it was a cargo car. However, she was intrigued that it was so tightly secured, even with sealed windows. The farm pony didn't dwell on it and climbed a set of stairs to the roof of the car. Soon, she spotted her rainbow-maned pegasus friend sitting at the opposite end.
+"Very well," Magi conceded with a slight bow of her head. Internally, she sighed again, resigning herself to delivering an explanation she would rather avoid. But she knew that to maintain control of the situation and steer it toward her objectives, she had no choice.
 
-Without a word, Applejack walked over to Rainbow and sat down beside her. Rainbow didn't move. Her mane had lost its luster, and even her wings seemed droopy at her sides. Her gaze was fixed on some distant point on the train tracks.
+Without further ado, Magi began to explain. She detailed how, after meeting Rainbow Dash and convincing her to sign a binding contract at the Averages Consortium’s headquarters in Manehattan a few days prior, she and her team had started using Rainbow's likeness in advertising campaigns. She pointed out that while the brochures featured ponies who looked like Rainbow Dash, they weren’t actually her—just models meticulously styled to replicate her colors. Magi emphasized that Rainbow Dash had personally approved these strategies during a meeting, making it clear that everything had been handled professionally.
 
-"Well... you came," Rainbow said.
+However, Magi left out a critical part of the story.
 
-"Yeah."
+The truth was that all of it had been achieved through carefully crafted lies and manipulative tactics to secure Rainbow Dash's consent.
 
-"How did you know I'd be here?"
+In reality, Magi wasn’t the virtuous pony her polished exterior suggested. Her business methods revolved around half-truths, subtle threats, and calculated deceit. And she executed it all with a radiant smile—a smile that wasn’t fake. Magi genuinely enjoyed the dark satisfaction of having power over others.
 
-"You like to see things in motion."
+And if all else failed, Magi could always rely on more... persuasive methods.
 
-"Yeah, that's true," Dash said, turning her gaze back to the train tracks.
+As Magi finished her explanation, an unsettling sense of doubt lingered in the air between the friends.
 
-"Magi already told us part of what happened. But I'd like to hear the rest from you."
+"But why would Rainbow Dash want to become a commercial celebrity? She doesn’t chase that kind of fame," Fluttershy asked, her voice filled with genuine concern for her friend.
 
-"That's good," Dash said without looking at her.
+"It’s true that, at first, your friend Rainbow Dash showed no interest in my proposal," Magi replied calmly, taking a sip of her drink. "However, she changed her mind when I included an opportunity to acquire the original drafts of the latest Daring Do book in my offer. She seemed quite thrilled to get them. I believe she mentioned something about ‘winning a very special competition.’ Though, I’m not entirely sure what she meant by that..."
 
-Applejack waited for her to continue, but nothing happened. "So, are you going to tell me what happened?"
+The four friends exchanged glances, then turned their attention to the pile of documents on one of the seats. Slowly, the pieces began to fall into place. Three years ago, the five of them had made a promise to surprise or celebrate Twilight on a day like this. They hadn’t specified what kind of celebration it would be—whether a party, a gift, or a thoughtful gesture—but they had made it clear that it would be a collaborative effort, without competition. Now, the recent events hinted that Rainbow Dash had decided to break that rule.
 
-"It's not your problem."
+"This is truly shocking, Miss Magi. We’d like to know more about this delicate matter, if you don’t mind sparing us a little more of your time," Rarity declared, already sensing the depth of the trouble Rainbow Dash had gotten herself into.
 
-"Rainbow..."
+"I don’t mind at all, Miss Rarity," Magi replied swiftly, her tone colder than before. "However, I don’t have much time to provide further explanations. I have a meeting with the board of directors at the Averages Consortium later today, and my star client, Rainbow Dash, must be present. I am obligated to bring her to our Manehattan offices, or your 'friend' could face severe legal consequences. I don’t want that to happen, and I imagine neither do you. So, if you’ll excuse me—"
 
-"No, really, it's not your problem, or anyone else's. It's just that I... did something really stupid."
+"Don’t worry about that. I’ll go find her," Applejack interrupted abruptly.
 
-"And that's why you don't want to talk about it. You think you can handle it on your own."
+"You know where she is?" Rarity asked in surprise, joined by Pinkie Pie’s exclamation of curiosity.
 
-"Exactly."
+Applejack nodded firmly. Her confidence was enough to silence further questions from her friends. Magi, observing the gesture, narrowed her eyes slightly.
 
-Applejack sighed and, with a swift hoof movement, smacked Rainbow on the head. "Ouch! HEY!" The irritated pegasus turned to look at her friend. The farm pony was now facing her with a stern look typical of the Apple family.
+"Can you really bring her back?" Magi inquired, her tone skeptical.
 
-"Tell me, Rainbow, when did my BRAVE BEST FRIEND turn into a CHICKEN COWARD?"
+"Sure can, and I don’t need you tagging along," Applejack stated plainly, leaving no room for negotiation.
 
-Rainbow Dash's eyes flashed with anger, and part of her mane seemed to regain its shine. Applejack was secretly pleased to see that reaction but kept her emotions hidden. If she wanted to successfully bring Rainbow back to her friends, she had to be more careful than Puss in Boots.
+Magi weighed the suggestion as she took another sip of her drink. Finally, she made her decision.
 
-"I'M NOT A CHICKEN, AND THIS ISN'T YOUR BUSINESS!" Rainbow Dash exclaimed.
+"Very well. I’ll trust you, Miss Applejack, and I’d appreciate it if you could bring her back. I’ll wait here... but no more than 20 minutes," Magi said, reluctantly agreeing, though her tone carried a hint of doubt.
 
-"REALLY, IS IT SO IMPORTANT THAT YOU'RE PUTTING OUR FRIENDSHIP ASIDE?" Applejack retorted, but Dash didn't respond. Getting no response, Applejack turned around and began to walk away.
+"Won’t take that long. Be right back," Applejack assured her, adjusting her hat before quickly heading out through the back door of the carriage.
 
-Rainbow Dash hesitated for a moment, but seeing her friend walking away, she quickly flew to catch up with her.
+Her friends watched her leave, their concern evident. Each of them silently wondered what was going on with Rainbow Dash and fervently hoped Applejack would succeed in bringing her back.
 
-"HEY, HEY, WAIT! I'm not leaving them behind; I just don't want them involved in this," Dash said, trying to catch up.
+Meanwhile, Magi...
 
-"IT'S THE SAME THING," Applejack asserted.
+"I have samples of the new Jumy Ginger Cookies. Anyone interested?" she offered with an air of casual indifference.
 
-"YOU DON'T UNDERSTAND."
+"Oooh, me!" Pinkie Pie exclaimed, enthusiastically raising her right hoof.
 
-"THEN EXPLAIN... PLEASE," Applejack pleaded.
+[---]
 
-"It's just... I'm really embarrassed," Dash said, letting herself slump.
-
-Applejack looked at her puzzled. "Is that all?"
-
-"It's much more than 'just that,'" Dash replied, her expression filled with frustration.
-
-"Is it really that bad?"
-
-"Yes," Dash remained silent for a moment, but before Applejack could ask again, she continued. "After signing that stupid contract, they called me back. That's when I found out they had been doing cooking promotions with my image."
-
-Applejack looked at her in confusion. "That doesn't sound so bad, Rainbow. Magi said..."
-
-"They also did beauty promotions."
-
-"Okay, but..."
-
-"They even did special mare's clothing promotions for Hearts and Hooves Day," Dash said, covering her face in embarrassment.
-
-Applejack fell silent for a moment and then continued. "Is there more?"
-
-"Yes... a lot more," Dash replied with an anguished expression.
-
-There was a long pause between them. Only the sound of the train moving forward could be heard. Applejack began to reflect, trying to understand her overwhelmed friend. In the past, similar situations had arisen due to unfounded rumors in a school newspaper, and Rainbow Dash had not taken it well back then. Now, on the other hand, her friend was caught up in a real mess of her own making. Considering her friend's massive ego, she could only imagine an equal amount of shame weighing her down on the inside.
-
-Applejack sighed. "Looks like this time you've really gotten yourself neck-deep in trouble. And how many ponies will Magi's magazines reach?"
-
-"According to what she told me, everypony in Equestria will have a magazine by the end of next week. By then, my public image will be ruined," Dash replied.
-
-"And how did you plan to fix it?"
-
-"Something will come to me... like it always does!" Dash said with a confident smile, but then she looked away. Applejack knew that gesture was a lie.
-
-The train continued to advance slowly through the meadow. Tranquil herds of sheep could be seen grazing on the horizon, and other groups crossed the train's path. An interval of silence passed between the two ponies until Applejack broke the silence.
-
-"And all of this for a book?"
-
-"Yes... It's really silly when I think about it now. I could have thought of something else. Like going on a trip or some kind of competition among us. But NO, I WANTED TO DO 'SOMETHING INCREDIBLE!'" Dash said, extending her front hooves into the air and then slumping down pitifully. "I guess deep down, I wanted to do something better than what you did."
-
-"Rainbow, we promised we wouldn't compete against each other. Not for this," scolded Applejack.
-
-"I KNOW! ... I know," Dash sighed wearily.
-
-"The others need to hear it from you."
-
-"Yes, but... the faces they made. I can't bear it, Applejack. I..."
-
-"I'll be there, they won't laugh," said Applejack, placing her hoof on her friend's shoulder.
-
-Dash looked at Applejack, touched, like a child receiving forgiveness from their mother. However, she then lowered her gaze and returned to her usual self. "Alright, Applejack. I'll tell them everything, but after that, I'll have to go with Magi. She has some meeting, gathering, whatever, and I have to be there. I think it'll be short... I hope."
-
-The farm pony remained silent for a moment and then looked away.
-
-"If that's really what you want, we'll accept it," Applejack said, her face partially obscured by her hat.
-
-"Umph, thanks..." Dash seemed to be suspicious of Applejack's words, but she continued, "Well, let's go."
-
-Rainbow Dash and Applejack agilely descended from the roof of the car and returned to the interior of the train. Upon their return, they found Magi and the rest of their friends. After a brief greeting, Dash began to explain everything that had happened. Although she omitted several details about her visit to the Averages Tower, she was quite clear about how she had been treated and the circumstances under which she had signed the binding contract with Magi. She also narrated what happened afterward, her return to Average's offices, and how she had been evading Magi to prevent further use of her image in promotions. She continued her story until her arrival on the train that day.
-
-//----------------------//
-
-"And that's what really happened," Rainbow Dash finished.
-
-"Oh my goodness! But why did you do all that?" Fluttershy asked.
-
-"I just wanted to give Twilight an amazing day, better than what you all had planned. But when things started going wrong, I panicked and... ended up getting into this mess," Rainbow Dash replied, feeling dejected in front of her friends.
-
-Her friends looked at her in silence. Those mixed looks of concern and pity were too much for Dash, who quickly turned her back on them. "Well, now I have to go fulfill Magi's contract if I don't want to end up in prison or something worse. Tell Twilight I'll see her..."
-
-"Wait right there, Rainbow Dash," Rarity interrupted. "You don't think we'll let you go that easily, do you?"
-
-"Oh, what..." Rainbow Dash didn't finish her response as Applejack's lasso quickly wrapped around her, immobilizing her and leaving her on the ground. Applejack climbed on top of her, making sure she couldn't move.
-
-"WHAT DO YOU THINK YOU'RE...?!" Rainbow Dash's mouth was covered by a box of muffins.
-
-"We're helping a friend fulfill a promise. That's what we're doing," Pinkie said cheerfully, sitting down beside Dash and securing her flank. Fluttershy did the same on the other side, but she looked more embarrassed.
-
-Dash could only watch as Rarity addressed Magi.
-
-"Magi, dear, would you be interested in hearing a proposal to allow Dash to stay with us for the day?" Rarity asked determinedly.
-
-"I'm listening," the executive pegasus replied impassively.
-
-"As you know, I own several dress shops throughout Equestria. As a young entrepreneur, I seek to expand my horizons, and joining your Consortium would be a great opportunity for my business. Of course, I would need to study the benefits your organization offers, but you can consider me very interested in becoming part of your community from today," Rarity concluded. Meanwhile, Rainbow, who was a prisoner, struggled with all her might, her eyes filled with desperation.
-
-"It's a very interesting proposal. Unfortunately, as I mentioned before your friend returned, Rainbow Dash's situation is beyond my direct control. The Consortium board won't accept that your friend refused to attend today's meeting just because..." Magi said seriously but stopped when she saw the downcast faces of the group of ponies in front of her. She was particularly intrigued by the pony called Pinkie, who had a sign that read 'PLEASE' with a sad face drawn on it. She began to hesitate. After observing them for a few seconds, Magi finally sighed in surrender.
-
-"However... I can tell you that I failed to find her," she said immediately. Joy erupted in the train car, and then Magi raised her voice, "Instead, I got to know the other extraordinary friends of the princess, and they were very excited to visit the Averages Consortium headquarters. What do you say? Are you in agreement?"
-
-Rarity turned to her friends, and none of them were opposed, except for Dash, who was still trapped by Applejack. The rainbow-maned pegasus kept shaking her head.
-
-"Yes, we're all in agreement," Rarity said without concern.
-
-"Excellent, I'll be expecting you then," Magi said with a satisfied smile.
-
-Applejack finally released Dash. The rainbow-maned pegasus immediately exclaimed, "WHAT ARE YOU THINKING? DIDN'T YOU HEAR EVERYTHING I SAID ABOUT HER?"
-
-"We understand perfectly, Rainbow Dash. But it's not the first time we've dealt with merchants of that kind. No offense," Rarity quickly addressed Magi.
-
-"Don't worry," replied Magi, who was calmly sipping a beverage while sitting in one of the seats.
-
-"Rainbow, we've taken much worse risks in the past. Have you forgotten?" Applejack questioned.
-
-"But this is different. It's not a monster or some strange threat trying to end Equestria. It's MY STUPID MISTAKE. You're not supposed to have to deal with this too," Dash said angrily but with tears welling up in her eyes.
-
-"Alright, alright, it's okay, Dashie. It's not so bad. We all make mistakes. Besides, it's just a visit to a suspicious company where they could probably brainwash us." Pinkie Pie leaned against Dash. Behind them, Magi raised an eyebrow.
-
-"You can always count on us. And don't forget about Twilight; she might be able to help you with your legal problem," Fluttershy said as she approached Rainbow Dash on the other side.
-
-"That's right, she could help. Wait, Twilight... WE HAVEN'T DECIDED WHO'S HANDLING TODAY'S SURPRISE YET!" Dash exclaimed in concern.
-
-"Don't worry about that, silly. I'll give up my spot," Pinkie said without a hint of regret.
-
-"Me too," Fluttershy added.
-
-"Girls... you..." Dash couldn't hold back her tears any longer, and soon, they all gave each other a group hug, just as they had done many times before.
-
-Outside, the sun was still shining as always, and the train, now moving at full speed, continued steadily through the meadow.
-
-As the pony friends shared a team hug, Magi watched them thoughtfully. "Was this the magic of friendship I had heard so much about?" Something inside the executive pegasus began to stir. She finally stood up.
-
-"Forgive me for interrupting, but is it really alright for you to be so separated?" Magi said, standing in the middle of the aisle. Applejack and the others turned to look at her. At that moment, Magi still maintained a pleasant and understanding demeanor, but there was a slight hint of annoyance in her voice.
-
-"What do you mean, dear?" Rarity asked.
-
-"Girls, all of you form an incredible team and have achieved so much together. Many earth ponies, pegasi, and unicorns admire you throughout Equestria. So why not continue as a team and rule directly alongside Princess Twilight's throne?"
-
-The quintet of friends looked at each other. After a few seconds of silence, Applejack was the one who responded, approaching Magi.
-
-"Listen, Magi, it's true that each of us has great talent, and it's also true that we've accomplished many incredible things alongside Twilight. However, ruling Equestria in that way with her wouldn't be the right thing to do," Applejack declared.
-
-"Why wouldn't it be the right thing to do? How could it not be?" Magi responded, almost indignant.
-
-"When we met Twilight, she was on a mission to learn about the magic of friendship in our home, Ponyville. Since then, Twilight has started learning many friendship lessons from us. But we've learned from her as well. And one of the first lessons we learned is that everything has its place and time. Certainly, we'd all like to be by her side for longer. But if that were the case, over time, we'd become a burden, and it's very likely that it wouldn't allow her to grow into the great princess she can become. We want what's best for our friend. That's why in this case, we step aside," Applejack solemnly concluded while the rest of her friends nodded in silence, confirming what she had said.
-
-Magi had an incredulous expression on her face after hearing this.
-
-"Besides, none of us would know how to behave properly as royalty... Well, some of us would," Rarity's voice coughed behind Applejack. "Well, a few of us."
-
-Laughter once again filled the train car as Rarity scolded the others. "But it's true!"
-
-Magi watched the group of friends laughing together as one mare. It seemed like the conflict that had occurred just moments ago had never existed.
-
-"I really..." Magi began, still incredulous, but she immediately restrained herself. "...I mean, I still can't quite understand it."
-
-"It's not that difficult; it's like they say, 'If you love something, let it go,'" Applejack eloquently responded.
-
-"NEVER!" Magi replied sharply. "Uh, I mean... I never quite understood that saying, letting go of what you love? Ha, ha, it really sounds silly, ha, ha." Magi had awkwardly altered her temperament. Applejack's words had unexpectedly struck a nerve in her, and without realizing it, she had shown her true self.
-
-Applejack and the rest of the ponies looked at her strangely.
-
-The executive pegasus began to back away nervously.
-
-"Hey, are you okay?" Applejack asked.
-
-"No... I mean, yes, yes, it's just that I just remembered I have another meeting. It's getting late!" Magi quickly diverted the conversation and began packing up all her presentation materials. Out of the corner of her eye, she briefly observed the other ponies. It wasn't good. They were starting to look at her with suspicion. She scolded herself. Things weren't supposed to go this way. She had planned to divide them as her main objective, and if that proved too difficult, at least she should earn their trust. But she hadn't achieved any of her goals, and now the image she had projected of herself was in jeopardy. She needed to retreat and rethink her strategy immediately.
-
-"Oh, my goodness! I can't find my travel brochures. Could someone please open the windows? It's quite dark, and I can't see well," Magi said, feigning concern as she finished checking her suitcase. At the same time, she was already thinking about her escape, eyeing the hatch on the train's roof.
-
-"The windows are already open," Pinkie Pie said, puzzled.
-
-Magi and the other ponies also noticed it.
-
-That was strange. It was barely past noon, yet outside it was as dark as if nightfall was imminent.
-
-At that moment, the train's loud whistle sounded in the car, startling everyone. A moment later, chaos erupted.
-
-Suddenly, the train had braked to a stop.
-
-With no chance to react and propelled by inertia, the six ponies were pushed to one end of the car, crashing into each other. The lights went out, and all that could be heard was the screeching of the train's brakes as it came to a halt. It continued for several more seconds until it finally stopped.
-
-Inside the darkened train cars, confusion and fear reigned among the passengers. Darkness also prevailed outside.
-
-In the pony friends' car, the situation was no different.
-
-"Girls, are you okay? Ouch, my wing!"
-
-"Can you get off me?"
-
-"I can't feel my tail!"
-
-"Muuuuh... I have... a... hoof... in my mouth!"
-
-"Mmmmmm mmmm mmm mmm"
-
-Dash was the first to react. She pushed whoever was on top of her and, with no light, fumbled for the train's emergency switch. Soon, the car was bathed in a red light, revealing the chaotic state of the ponies.
-
-As she had suspected, Fluttershy had been on top of her. Dash had pushed her aside, and Fluttershy was now sitting in one of the seats, still dazed. Further back were the rest of her friends, caught in a tangle of limbs and manes.
-
-"It's not time to rest, Fluttershy!" Rainbow Dash scolded. "Let's help the others. Now!"
-
-"Yes, yes..." Fluttershy said, still dazed. She shook her head immediately and, somewhat recovered, helped Dash untangle their pony friends.
-
-They soon got the rest of their friends to their feet.
-
-"Cough, cough, Thank heavens!" Rarity said gratefully to the two pegasi. She was the first to stand up and had pulled Applejack's lower-left hat out of her mouth.
-
-"Thanks, Fluttershy! But I still can't feel my tail..." Pinkie Pie said apologetically as she got up with Fluttershy's help. Indeed, her fluffy tail had lost a lot of its volume. Dash didn't pay much attention to her as she helped Applejack.
-
-"What a slam. Are you all okay?" Applejack quickly recovered. Although she had ended up beneath everyone, it didn't seem to have affected her much, and she hadn't lost her hat. In part, Pinkie Pie's tail had cushioned the impact of the train's sudden stop.
-
-"Well, I'm all in one piece. The rest..." Dash responded, looking behind her. Her friends were gathered around Rarity. The unicorn had lit up her horn and was now the only visible light source. The emergency lights had failed at some point, making the situation more difficult for her friends. Thus, the rest of the car was in darkness.
-
-"Don't worry, Applejack. We're just a little dazed from this terrible accident," Rarity said, examining her friends and the remains of the luggage on the floor with the light from her horn. "However, our luggage... look at this mess! Wait... where is my vanity case?! My imported beauty items!"
-
-"Okay, everyone's fine, now we should..." Applejack began, ignoring Rarity's growing panic.
-
-"Wait, everyone? Isn't someone missing?" Pinkie Pie suddenly interjected.
-
-Then, the five ponies noticed that Magi was not with them. After a quick search around them, Fluttershy was the first to notice. "Look at that," the frightened pegasus said, pointing her hoof toward a huge yellow sphere located over the seats at the other end of the car.
-
-Surprised by the unexpected discovery, the puzzled ponies looked at each other. However, Dash and Applejack were the first to take the initiative. With just a couple of glances, they seemed to reach an agreement and both began to advance toward the mysterious object, followed by the others.
-
-They approached slowly. It was quite an unusual object; more like a giant egg, large enough for a pony to fit inside. Applejack, who had gotten close enough, noticed that there was a message written on its surface and began reading it aloud: "High-Intensity Impact Protection Capsule - Average C, Uh?" the farm pony expressed confusion.
-
-At that moment, like a deflating balloon, a hiss came from the giant egg, and it began to lose volume. The figure of a pony emerged slowly from the deflating egg's skin. Then, one end tore open, and a disgruntled pegasus emerged from it.
-
-"Ugh! Gross! Those tech incompetents. Cough! I told them to include air fresheners inside the capsule. Cough!" Magi complained as she moved away from the remnants of the capsule, emitting a foul smell of rotten eggs. "Never mind... What the hay was that?"
-
-Magi exchanged glances with the other ponies. They were very surprised. The executive pegasus had irritated eyes and a furious look that overshadowed any memory of the kind and understanding image she had shown just moments ago. After looking at each other for a few seconds, Magi quickly turned away and then looked back.
-
-"Phew! You're all safe!" Magi said with a futile smile that tried to hide the obvious irritation she felt.
-
-Dash was the first to speak.
-
-"Don't bother trying to keep up the act, Magi. We don't need that now," the pegasus said seriously. Magi quickly looked at the others. The stern looks on their faces indicated they were on the same page as Rainbow Dash.
-
-After hesitating for a few seconds, Magi sighed and returned to a serious, cold expression that seemed more natural on her. "Alright, what did I miss? What's going on?"
-
-No one answered her. A creaking sound came from the rear door of the car, catching everyone's attention. Soon, the door was engulfed in a bright pink magic, from which emerged the figure of a pony. Barely visible due to the intense light, they soon realized it was no ordinary pony.
-
-The light faded, and before them stood an enigmatic and unfamiliar pony. This stern-looking pony had short pink hair, the same color as their eyes, divided by a thick brown bang. They wore polished black alicorn armor that seemed to shine with its own light. On the chest of their dark armor, the reliefs of a silver tree surrounded by six stars were visible, and a bright pink gem was embedded in their neck. They were a stallion, no doubt, but they looked younger than any of the present company. With an imposing step, this young stallion advanced toward the stunned group of ponies.
-
-"GREETINGS, BEARERS OF THE ELEMENTS OF HARMONY. PLEASE, ACCOMPANY ME TO AWAIT THE CONCLUSION OF YOUR DESTINIES," Badwhiz Starheart said with a voice that made everyone, including Magi, feel a chill down their spines.

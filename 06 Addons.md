@@ -9,7 +9,7 @@ Escenas:
 - En el tren rumbo a Canterlot, Rainbow Dash recibe a sus fans, pero siente que algo no va bien.
 - En el tren rumbo a Canterlot, Magazine Doublereport una pegaso sofisticada e intrigante se encuentra con Rainbow Dash y sus amigas.
 - Sobre el techo del tren rumbo a Canterlot, Rainbow Dash y Applejack discuten.
-- En el tren rumbo a Canterlot, las amigas poni confrontan a Magi.
+- En el tren rumbo a Canterlot, las amigas poni de Rainbow Dash confrontan a Magi.
 - El tren rumbo a Canterlot sufre un misterioso accidente.
 
 [
