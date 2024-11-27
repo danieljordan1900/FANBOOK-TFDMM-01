@@ -610,42 +610,28 @@ The five friends froze, realization dawning on them. Magi was nowhere to be seen
 
 Frantically, they scanned the car. Fluttershy was the first to notice something unusual. "Look over there," she whispered, trembling, pointing a hoof toward the far end of the train car.
 
-A massive yellow sphere had appeared between the seats, blocking the exit on that side of the train.
+A massive yellow sphere had appeared between the seats, blocking the exit on that side.
 
-Stunned by the unexpected sight, the ponies exchanged bewildered glances. Rainbow Dash and Applejack, however, were the first to act. With just a few shared looks, they seemed to come to an unspoken agreement and began moving toward the mysterious object, the others following close behind.
+Surprised by the unexpected discovery, the confused ponies looked at each other. Rainbow Dash and Applejack, however, were the first to take action. With just a couple of glances, they seemed to reach an understanding and both started moving together toward the mysterious object, with the others following behind.
 
-As they approached, the details of the anomaly grew clearer with every step. It was nothing ordinary; more than just a sphere, it resembled a giant egg, large enough to easily fit a pony inside.
+They slowly approached, noticing more details about the abnormality in front of them with each step. It was something too unusual; more than a sphere, it looked like a giant egg, so large that a pony could easily fit inside. Applejack, who had gotten close enough, noticed a message written on its surface and began to read it aloud: "High-Impact Protection Capsule - Average C, huh?" she said, clearly confused.
 
-Applejack, stepping close enough to see the surface, noticed some writing on it. Squinting, she read aloud:
-"High-Impact Protection Capsule - Average C... huh?" Her confusion was evident.
+At that moment, as if it were a deflating balloon, a hissing sound escaped from the giant egg, and it began to collapse. Slowly, the figure of a pony emerged from the deflated skin of the egg. Then, one of the ends tore open, and a grumpy pegasus came out of it.
 
-Just then, a hissing sound, like air escaping a balloon, emanated from the giant egg. It began to deflate, and the silhouette of a pony emerged from the collapsing shell. Suddenly, one side of the egg tore open, and a disgruntled pegasus stumbled out.
+"Ugh! How disgusting! Those tech idiots! Cough! I told them to put air fresheners inside the capsule! Cough!" complained Magi gravely, stepping away from the remains of the capsule, which was now emitting a foul smell of rotten eggs. "Never mind... What the hay was that?"
 
-"Ugh! Gross! Those tech idiots! Cough! I told them to include air fresheners in the capsule! Cough!" Magi grumbled as she extricated herself from the remains of the capsule, which now emitted a foul stench of rotten eggs. "No matter... what in Equestria just happened?"
+Magi exchanged glances with the other ponies. They were all visibly surprised. The executive pegasus had irritated eyes and an expression so furious that it overshadowed any memory of the kind and understanding image she had shown just moments before. After staring for a few seconds, Magi quickly turned away, only to return her gaze to them.
 
-Magi locked eyes with the other ponies. Their faces showed unrestrained shock. The executive pegasus had red-rimmed eyes and an expression so stormy it overshadowed any memory of the kind and understanding demeanor she had shown earlier.
+"What a relief! You're all safe!" Magi exclaimed with a forced smile, trying to mask the obvious irritation she was feeling.
 
-After a tense few seconds of silence, Magi quickly composed herself, forcing a strained smile as she glanced back at the group.
-"What a relief! You’re all safe!" she exclaimed, though her tone betrayed her irritation.
+Rainbow Dash was the first to speak.
 
-Rainbow Dash was the first to respond.
-"Don’t bother keeping up the act, Magi. We’re past that now," she said firmly, her voice cutting through the tension.
+"Don't bother acting anymore, Magi. We don't need that right now," the pegasus said seriously. Magi quickly scanned the others. The stern looks they were giving her made it clear they were all on the same page as Rainbow Dash.
 
-Magi’s gaze darted to each of them. The stern expressions meeting her own made it clear they all agreed with Rainbow Dash.
+After hesitating for a few seconds, Magi sighed and adopted a serious, cold expression, much more natural for her. "Fine. What did I miss? What’s going on?"
 
-After a moment of hesitation, Magi sighed, her face settling into a cold, serious look that seemed much more fitting.
-"Fine. What did I miss? What’s going on?"
+No one responded. A creaking sound came from the rear door of the carriage, catching everyone's attention. Soon, the door was engulfed in a brilliant pink magic, and a figure emerged from it. Barely visible in the intense light, they soon realized it wasn’t an ordinary pony.
 
-No one answered.
+The light faded, and before them stood an enigmatic, unfamiliar pony. The pony, with a stern gaze, had short pink hair, the same color as their eyes, but it was divided by a thick brown fringe. They wore a polished black alicorn armor that seemed to shine with its own light. On the chest of their dark armor was a relief of a silver tree surrounded by six stars, and embedded in their neck was a glowing pink gemstone. It was a stallion, no doubt, but he seemed younger than any of the others present. With an imposing step, the young stallion moved toward the stunned group of ponies.
 
-The silence was broken by a creaking sound coming from the rear door of the train car. All eyes turned toward it. The door became engulfed in a radiant pink magic, and from the blinding glow, a figure began to emerge.
-
-Barely visible through the intense light, it quickly became apparent this was no ordinary pony.
-
-As the light dimmed, the figure was revealed: an enigmatic and unfamiliar pony. The newcomer had short, pink hair matching the hue of their piercing eyes, with a thick brown streak running through a blunt fringe. They wore a gleaming black alicorn-like armor that seemed to shimmer with an otherworldly energy.
-
-On the chest of the armor was a relief of a silver tree surrounded by six stars, and embedded in the neckline was a radiant pink gem. Though clearly a colt, he seemed younger than anypony present. His steps were steady and imposing as he approached the group, leaving the ponies—and even Magi—momentarily speechless.
-
-"GREETINGS, BEARERS OF THE ELEMENTS OF HARMONY," the mysterious pony declared in a booming voice that sent chills down everypony’s spine. "PLEASE, JOIN ME AS WE AWAIT THE FULFILLMENT OF YOUR DESTINIES."
-
-The chilling proclamation left the entire group frozen, the air around them heavy with an unshakable sense of dread.
+"GREETING, BEARERS OF THE ELEMENTS OF HARMONY. PLEASE, FOLLOW ME TO WAIT FOR THE CONCLUSION OF YOUR DESTINIES," said Badwhiz Starheart in a voice that sent a chill down everyone’s spine, including Magi’s.
