@@ -1,4 +1,6 @@
-El mediodía brillaba radiante sobre Canterlot, la majestuosa capital de Equestria. Por las blancas calles, multitudes de ponis caminaban alegres, rebosantes de confianza y entusiasmo. En cada casa y tienda se veía algún adorno conmemorativo que celebraba la gran festividad del día: el Festival de las Dos Hermanas. En una ocasión especial como esta, había pocas excusas para no disfrutar.
+El mediodía brillaba radiante sobre Canterlot, la majestuosa capital de Equestria. Por las blancas calles, multitudes de ponis caminaban alegres, rebosantes de confianza y entusiasmo. En cada casa y tienda se veía algún adorno conmemorativo que celebraba la gran festividad del día. 
+
+Este era el Festival de las Dos Hermanas. En una ocasión especial como esta, había pocas excusas para no disfrutar.
 
 Bajo un cielo despejado, cerca de uno de los miradores de la ciudad, una potra de melena amarilla disfrutaba despreocupada de su helado, mientras un vistoso globo de papel flotaba tenuemente atado a su lado. El globo, elaborado por la potra y sus amigos como parte de un intercambio de regalos, luchaba contra el débil nudo que lo sujetaba, ansioso por liberarse.
 

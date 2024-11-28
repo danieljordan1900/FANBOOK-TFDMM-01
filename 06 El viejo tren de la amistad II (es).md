@@ -160,13 +160,13 @@ Sus amigas la miraron perplejas por un momento. Aunque intercambiaron murmullos 
 
 Sintiendo el peso de las miradas de desaprobacion de sus amigas, Dash decidió que ya había tenido suficiente. Con un tono molesto y cortante, habló:
 
-"Acabo de recordar que necesito comprar algo. Iré a adelantarme. Las veo en Canterlot".
+"¿Sabes qué? Acabo de recordar que necesito comprar algo. Iré a adelantarme. Las veo en Canterlot".
 
 "¡Tú...!" Applejack intentó replicar, claramente molesta, pero fue interrumpida por una voz inesperada.
 
 "¿Piensas irte ya, Rainbow Dash? Pensé que querrías pasar más tiempo con tus amigas", dijo una voz desconocida desde el otro extremo del vagón.
 
-Todas giraron la vista hacia el fondo. Allí, cómodamente sentada y con un refresco en casco, estaba la mismísima Magazine Doublereport.
+Todas giraron la vista hacia el fondo. Allí, cómodamente sentada y con una lata de refresco en casco, estaba la mismísima Magazine Doublereport.
 
 [---]
 
