@@ -104,7 +104,7 @@ A muffled thud sounded from the roof of the train car, causing everypony to look
 
 It was Rainbow Dash. As she landed in the car, her anxious gaze darted around the room.
 
-"Rainbow Dash, what in Equestria do you think you’re—" Applejack began, only to have her sentence cut off when Rainbow Dash firmly pressed a hoof to her mouth.
+"Rainbow Dash, what do you think you’re—" Applejack began, only to have her sentence cut off when Rainbow Dash firmly pressed a hoof to her mouth.
 
 "Listen, I know this sounds crazy, but we need to lock all the doors and windows. RIGHT NOW!" Rainbow ordered, her tone urgent as she dove under one of the seats.
 
