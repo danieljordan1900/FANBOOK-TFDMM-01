@@ -1,155 +1,185 @@
 El Tártaro, poco después de la llegada de la medianoche...
 
-Badwhiz corría apresurado por los deteriorados pasillos que llevaban a la torre de vigilancia exterior. Una orden urgente de Balor lo había instado a reunir a todos los Caballeros del Orden en la sala de guerra por un asunto de extrema importancia.
+Badwhiz Starheart corría apresuradamente por los deteriorados pasillos que conducían a una de las torres de vigilancia exterior de la prisión. Había recibido la orden urgente de Balor de reunir a todos los Caballeros del Orden en la sala de guerra. Sin detenerse ni un momento para tomar aliento, estaba completamente decidido a cumplir cuanto antes con aquella misión de extrema importancia.
 
-Informar a Morrigan, Ceridwen y Mannah había sido sencillo para Badwhiz, pero Taranis, que había tenido un duelo contra Danu horas antes, se encontraba inubicable.
+De hecho, ya casi había terminado.
 
-Después de consultar con Balor, este solo le indicó que Taranis se encontraba en la torre exterior. Aunque no le habían dado más detalles de por qué Taranis se encontraba allí, Badwhiz estaba dispuesto a completar su misión sin más demora.
+Informar a Morrigan, Ceridwen y Mannah momentos antes había resultado sencillo, pero encontrar a Taranis se habia vuelto imposible. Este último, tras haber tenido un duelo contra Danu horas atrás, se encontraba inubicable.
 
-Al llegar al final del pasillo, Badwhiz se encontró con que la puerta del exterior se encontraba abierta de par en par. Apurado, continuó cruzando la puerta.
+Al no tener pistas, Badwhiz había consultado con Balor, quien solo le indicó que Taranis estaba en una de las torres exteriores. No le dieron más detalles sobre la razón de su presencia allí, pero eso no lo detendría. Estaba decidido a cumplir su misión sin más demora.
 
-Afuera, iluminado por la luz de la luna, un desolado mirador sin barandillas se extendía ante él sin señales de su objetivo.
+Al llegar al final del pasillo, Badwhiz notó que la puerta al exterior estaba abierta de par en par. Sin perder un segundo, cruzó la entrada apresuradamente.
 
-"¿Habrá salido sin permiso otra vez? ¡Justo ahora! ¡Ay, cascos! ¿Cómo le explicaré esto a Lord Balor?", exclamó preocupado Badwhiz mientras miraba el fondo del valle desde el borde del mirador.
+Afuera, iluminado por la pálida luz de la luna, un desolado mirador sin barandillas se extendía ante él. No había ni rastro de su objetivo.
 
-La volcánica superficie del Tártaro se extendía hasta donde alcanzaba la vista, hileras tras hileras de fumarolas y géiseres se abrían paso entre lagos ácidos y fallas geológicas. En medio de ese infernal páramo, un sinuoso camino, que apenas podía llamarse como tal, se mostraba borroso a la distancia. Si alguien intentara huir de aquel lugar, ese camino sería la única vía de escape segura.
+"¿Habrá salido sin permiso otra vez? ¡Justo ahora! ¡Ay, cascos! ¿Cómo le explicaré esto a Lord Balor?", murmuró Badwhiz, preocupado, mientras miraba el fondo del valle desde el borde del mirador.
 
-Claro que esto era solo cierto para aquellos que solo pudieran caminar, si uno controlara el aire, otro sería el caso...
+La volcánica superficie del Tártaro se desplegaba hasta donde alcanzaba la vista. Hileras de fumarolas y géiseres rompían el paisaje, abriéndose paso entre lagos ácidos y fallas geológicas. En medio de ese desolador páramo, un sinuoso camino, que apenas merecía llamarse tal, se distinguía borroso a la distancia. Si alguien intentaba huir de aquel lugar, ese sendero sería la única vía de escape segura.
 
-Badwhiz estudiaba las nubes del valle intentando dar con su mentor. Taranis era un experto maestro del aire, difícilmente lo encontraría en el suelo cruzando el camino. Así que buscarlo en el cielo era lo más obvio.
+Claro que esto solo aplicaba para quienes dependían de caminar. Para aquellos que dominaban el aire, la situación era otra muy distinta...
 
-Sin embargo, el engañoso vértigo de la altura comenzó a confundir la vista de Badwhiz. Quien poco a poco empezó a prestar más atención a las afiladas púas que brotaban debajo de la torre, brillando como dientes a la luz de la luna.
+Desde el mirador, Badwhiz estudiaba las nubes del valle, buscando cualquier señal de su mentor. Lord Taranis —o simplemente Taranis, como prefería que lo llamaran— era un maestro del aire y, difícilmente, alguien lo encontraría caminando por el sinuoso sendero. Por eso, Badwhiz dirigía su atención al cielo, donde parecía más lógico hallarlo.
 
-Badwhiz tragó saliva. Desde esa altura, una caída sería mortal. Aunque Badwhiz contaba con alas incorporadas en su armadura, carecía de los instintos de vuelo de un pegaso. El miedo al abismo comenzó a crecer dentro de él, enviando un escalofrío que subía por su columna vertebral.
+Sin embargo, la engañosa altura del mirador empezaba a jugarle una mala pasada. Poco a poco, su mirada se desviaba hacia las afiladas púas que sobresalían del abismo bajo la torre. Estas relucían bajo la luz de la luna, brillando como dientes amenazantes.
 
-"Quizás debería gritar con fuerza desde más atrás, tal vez Lord Taranis me escuche...", habló consigo mismo Badwhiz intentando convencerse de que esa era la mejor solución, cada vez más difícil de ignorar el temor que sentía de caer.
+El joven tragó saliva, sintiendo cómo el miedo al vacío crecía dentro de él. Desde esa altura, una caída sería fatal. Aunque su armadura incluía alas mecánicas, no tenía el instinto natural de un pegaso ni la confianza suficiente en sus habilidades de vuelo, aún recientes y torpes (a su juicio). Un escalofrío subió por su columna hasta su sien, intensificando su inquietud.
 
-Entonces, una ráfaga de viento lo empujó desde atrás. Antes de que Badwhiz pudiera comprender lo que estaba sucediendo, el suelo bajo sus pies desapareció y por un instante se encontró ingrávido en el aire.
+"Quizás debería gritar desde atrás, más atrás ... Lord Taranis seguramente me escuchará si hago eso", murmuró Badwhiz, intentando convencerse de que era la solución más sensata. Tembloroso, retrocedió unos pasos, alejándose del borde traicionero. Pero el temor a caer accidentalmente seguía invadiéndolo, más difícil de ignorar con cada instante.
 
-"¡Hee! ¡Heeeeeeeeeeeeeeeeeee!" gritó Badwhiz cayendo desde la torre, agitó sus alas en busca de impulso. Sin embargo, no era lo suficientemente rápido, y el afilado suelo de púas se acercaba rápidamente.
+Entonces, sin previo aviso, una ráfaga de viento lo empujó por la espalda.
 
-Pero entonces, otro viento surgió de la nada y lo elevó hacia arriba.
+Antes de que pudiera reaccionar, el suelo bajo sus cascos desapareció, y por un instante se encontró flotando en el aire.
 
-En lo que parecía un rebote con una colcha de aire, Badwhiz regresó de manera inesperada a la cima de la torre, justo de vuelta al borde del mirador.
+"¡Hee! ¡Heeeeeeeeeeeeeee!"
 
-"¿Qué...? ¿Cómo...?" balbuceó Badwhiz con el corazón al límite sin entender lo que había pasado.
+Badwhiz gritó tarde y agitó sus alas con desesperación, tratando de ganar impulso para regresar al mirador. Pero sus movimientos eran torpes y el suelo afilado, con sus púas letales, se acercaba con espantosa rapidez.
 
-"Niño, necesitas practicar más tu vuelo. Planear está bien, pero puedes hacer mucho más con tus alas".
+Sin embargo, cuando el impacto parecía inevitable, un nuevo viento surgió de la nada, envolviéndolo con fuerza y elevándolo de vuelta hacia la torre. Como si hubiera rebotado sobre una invisible colcha de aire, ascendió rápidamente, recorriendo toda la altura desde la que había caído.
 
-Una voz habló detrás de Badwhiz, quien de inmediato se volteó. La imponente figura de una criatura que solo podría describirse como la unión entre un toro y una serpiente se hallaba frente a él. Estaba desnudo, pero eso no le quitaba el aire de guerrero que irradiaba. De hecho, la luz de la luna, sumada a las vendas rotas que cubrían su cuerpo, aumentaban aún más la sombra del campeón.
+Para su asombro, aterrizó justo en el mismo lugar donde antes había estado observando el valle.
 
-Este era a quien Badwhiz había estado buscando, Lord Taranis, caballero del orden portador del elemento del orgullo.
+"¿Qué...? ¿Cómo...?" balbuceó Badwhiz, con el corazón latiendo con fuerza, incapaz de comprender lo que acababa de suceder.
 
-Badwhiz, que era incapaz de mostrar la alegría de haber completado su búsqueda, aún se encontraba sin aire y sin palabras.
+"Niño, necesitas practicar más tu vuelo. Planear está bien, pero puedes hacer mucho más con esas alas".
 
-"No pongas esa cara, niño. El esfuerzo valdrá la pena. Imagina el viento como si fuera tu compañera en un baile. Deja que te guíe al principio y luego tómalo a tu lado, enróllala hacia ti... deja que se adapte a tu ritmo...", continuó hablando Taranis mientras movía sinuosamente sus extremidades y cola. Se veía de muy buen humor.
+La voz que resonaba detrás de él era inconfundible. Badwhiz se volteó de inmediato, encontrándose cara a cara con una figura imponente: una criatura que parecía la fusión de un toro y una serpiente. Estaba desnudo, pero eso no le restaba autoridad ni presencia. De hecho, la luz de la luna, combinada con las vendas desgarradas que cubrían parte de su cuerpo, acentuaba la sombra intimidante del guerrero.
 
-"Haaa... Lord Taranis..., Lord Balor lo convoca... a la sala de guerra de inmediato... ", finalmente respondió entrecortado Badwhiz, con dificultad para respirar.
+Frente a Badwhiz se hallaba Lord Taranis, caballero del orden y portador del elemento del orgullo.
 
-// ----------------------------
+Badwhiz, aunque aliviado de haber encontrado a quien buscaba, no era capaz de expresar su alegría. Aún estaba sin aire y sin palabras tras su inesperado aterrizaje.
+
+"No pongas esa cara, niño. El esfuerzo vale la pena. Imagina al viento como tu compañera en un baile. Deja que te guíe al principio, luego enróllala hacia ti... haz que se mueva a tu ritmo", dijo Taranis, mientras movía sus extremidades y su larga cola con un equilibrio casi hipnótico. Su tono despreocupado contrastaba con la seriedad del joven Badwhiz, pero también dejaba entrever ul buen humor que comúnmente mostraba.
+
+"Haaa... Lord Taranis... Lord Balor lo convoca... a la sala de guerra de inmediato...", logró decir finalmente Badwhiz, aún respirando con dificultad.
+
+[---]
 
 Caminando por uno de los pasillos secretos dentro del Tártaro...
 
-Badwhiz, acompañado del recién ubicado Taranis, se dirigía hacia la sala de guerra.
+Badwhiz, acompañado del recién ubicado Taranis, avanzaba hacia la sala de guerra.
 
-Taranis, ya ataviado con su armadura de guerrero, flexionaba sus brazos relajado. Aunque aún sentía algo de tensión en los codos, no le daba demasiada importancia. El entrenamiento con Danu había resultado tan poco productivo como siempre. No había querido participar esta vez, pero Mannah insistió mucho y Balor terminó convenciéndolo de que lo hiciera. Aunque Mannah le había pedido con vehemencia que tomara el encuentro como un duelo verdadero, Taranis no podía tomárselo así. Entrenar no era lo mismo que pelear en el campo de batalla. Del mismo modo que leer una receta de un plato de comida no era lo mismo que prepararla en la cocina.
+Taranis, ahora vestido con su imponente armadura de guerrero, flexionaba los brazos mientras caminaba con aparente relajación. Aunque sentía algo de tensión en los codos, no le daba importancia. El entrenamiento con Danu había sido tan poco fructífero como siempre. No quería participar esa vez, pero Mannah había insistido con tanta vehemencia que Balor terminó por convencerlo. A pesar de las repetidas súplicas de Mannah de que tratara el combate como un duelo real, Taranis no podía tomárselo como tal. Para él, entrenar no era lo mismo que pelear en el campo de batalla, del mismo modo que leer una receta no era igual a preparar el plato de comida en la cocina.
 
-Este último pensamiento despertó una idea en él.
+Este ultimo pensamiento despertó una chispa de idea en su mente.
 
-"¡Hey, niño! ¿Te sientes cansado? ¿Qué tal si antes de ir con Balor vamos un momento a la cocina? Creo que Morrigan aún tiene algunos buñuelos de alma-vainilla en la despensa..."
+"¡Oye, niño! ¿Te sientes cansado? ¿Qué tal si, antes de ver a Balor, pasamos un momento por la cocina? Creo que Morrigan todavía tiene algunos buñuelos de alma-vainilla en la despensa..."
 
-"¡Hee! ¡No, no! Muchas gracias por su ofrecimiento, Lord Taranis, pero no creo que sea el momento oportuno para hacer algo así. Lord Balor tiene mucha urgencia para que se reúna con los demás cuanto antes", respondió de inmediato Badwhiz, visiblemente fatigado por lo tarde que era.
+"¡Hee! ¡No, no! Muchas gracias por su ofrecimiento, Lord Taranis, pero no creo que sea el momento oportuno para algo así. Lord Balor tiene mucha urgencia en que se reúna con los demás cuanto antes", respondió Badwhiz de inmediato, su tono mezclando respeto y una evidente fatiga por lo avanzado de la hora.
 
-"¡Ja, ja, ja! ¡Qué serio! Me gusta, pero deberías relajarte un poco más. Entonces, ¿qué tal si vamos a las duchas primero?"
+"¡Ja, ja, ja! ¡Qué serio eres! Me gusta, pero deberías relajarte un poco más. Bueno, ¿y si vamos primero a las duchas?"
 
-"Por favor, no siga con sus ofrecimientos, Lord Taranis. Recuerde que usted es un caballero y debe cumplir también las órdenes."
+"Por favor, no siga con sus ofrecimientos, Lord Taranis. Recuerde que es un caballero y tiene la obligación de cumplir con las órdenes."
 
-"¿Me estás diciendo que no estoy cumpliendo con mis deberes?" se detuvo Taranis con una mirada de enfado.
+Taranis se detuvo en seco, su expresión cambiando drásticamente a una mirada severa.
 
-"¡No! ¡No quise decir eso! ¡Disculpe, no quise ofenderlo!" respondió de inmediato Badwhiz, inclinándose ante Taranis en busca de su perdón.
+"¿Me estás diciendo que no cumplo con mis deberes?"
 
-Taranis, por su parte, esfumó su mirada de enfado tan rápido como apareció. Solo estaba jugando con Badwhiz, aquel potro le hacía mucha gracia.
+Badwhiz palideció, retrocediendo un paso mientras levantaba la voz en un tono nervioso.
 
-"¡Ja, ja, ja! De verdad te pareces mucho a Danu, niño", se rió Taranis de buena gana.
+"¡No! ¡No quise decir eso! ¡Disculpe, Lord Taranis! ¡No fue mi intención ofenderlo!"
 
-"No creo parecerme mucho al gran señor feudal", respondió dudoso Badwhiz, dándose cuenta del juego de Taranis.
+Al ver al joven inclinarse profundamente en busca de perdón, Taranis dejó escapar una sonora carcajada. La severidad en su rostro desapareció tan rápido como había llegado.
 
-"Ahhh, cierto, no como ahora. Él no siempre fue el gran señor feudal de Cunabula. Tan serio y poco flexible. Yo lo conocí cuando él tenía tu edad. No actuaba muy diferente a ti en ese entonces. Eran buenos tiempos...", continuó riéndose Taranis, mirando al techo.
+"¡Ja, ja, ja! Tranquilo, niño. Solo estoy jugando contigo. Me haces mucha gracia, ¿sabes?"
 
-Badwhiz observó extrañado la mirada nostálgica de Taranis. No sabía cómo tomar las palabras de su maestro; realmente le resultaba muy difícil imaginar a Danu siendo joven, incluso pareciéndose a él...
+Badwhiz alzó la mirada, todavía confundido, pero comenzó a notar el tono bromista de su compañero.
 
-Inmerso en sus pensamientos, Badwhiz fue abruptamente sacado de su ensimismamiento por una voz potente.
+"De verdad te pareces mucho a Danu, niño", añadió Taranis con una amplia sonrisa.
 
-"¡Eh! ¡Deja de soñar despierto! Vamos de una vez a la sala de guerra", dijo Taranis al potro. Con un movimiento de su cola, creó un viento que envolvió su cuerpo y salió disparado por el pasillo, dejando atrás a un sorprendido Badwhiz.
+"No creo parecerme mucho al gran señor feudal, Lord Taranis", respondió Badwhiz con timidez, sospechando que su maestro volvía a burlarse.
 
-Alarmado ante la idea de que podrían señalarlo como poco diligente si no era capaz de seguirle el paso a Taranis, Badwhiz desplegó sus alas y también voló por el pasillo, tratando de alcanzar al caballero del orden. Tras doblar un par de esquinas y casi romperse el cuello tres veces, finalmente, agotado, alcanzó a Taranis frente a las puertas de la sala de guerra. El caballero lo esperaba con una postura arrogante.
+"Ah, cierto, no como ahora. Pero él no siempre fue el gran señor feudal de Cunabula. Tan serio y rígido... Yo lo conocí cuando tenía tu edad. Créeme, no era tan distinto de ti en aquel entonces. Eran buenos tiempos...", dijo Taranis, soltando un suspiro y levantando la mirada hacia el techo.
 
-"Gané. ¿Tengo que informarle al resto de mis camaradas sobre esto?" preguntó Taranis con una sonrisa burlona.
+Badwhiz lo observó con extrañeza. Las palabras de Taranis lo llenaban de curiosidad. Era difícil imaginar a alguien tan imponente como Danu (el lider de los caballeros del orden) siendo joven... ¿y parecido a él?
 
-"Por favor, no", respondió Badwhiz sudoroso y algo pálido.
+Sumido en sus pensamientos, Badwhiz apenas percibió el cambio en el ambiente hasta que una voz potente lo sacó bruscamente de su ensimismamiento.
 
-"Ja, ja, ja", se rió nuevamente Taranis. Sin embargo, su risa se vio interrumpida cuando la puerta de la sala de guerra se abrió y la silueta de una criatura parecida a un dragón se mostró ante ellos.
+"¡Eh! ¡Deja de soñar despierto! Vamos de una vez a la sala de guerra", exclamó Taranis al potro. Con un movimiento de su cola, invocó un viento que lo envolvió y lo impulsó a toda velocidad por el pasillo, dejando atrás a un desconcertado Badwhiz.
 
-Balor tenía una mirada fría, como de costumbre, pero también emanaba una tensión palpable. Taranis se puso en guardia de inmediato.
+Alarmado ante la posibilidad de ser acusado de poco diligente si no lograba seguirle el ritmo, Badwhiz desplegó sus alas apresuradamente y salió volando tras Taranis. Asi, despues de atravesar el pasillo, doblando esquinas con torpeza y esquivando columnas por un pelo (estuvo a punto de golpearse contra las paredes al menos tres veces). Finalmente, agotado y con el corazón latiendo a toda velocidad, alcanzó a Taranis frente a las imponentes puertas de la sala de guerra.
 
-"Llegas tarde, Taranis, pero me reconforta saber que ya estás aquí", saludó Balor en un tono inquietante.
+Taranis lo esperaba con los brazos cruzados y una postura que irradiaba arrogancia.
 
-"Me disculpo, Balor. Necesitaba un poco de aire fresco después de mi entrenamiento con su excelencia", respondió Taranis.
+"Gané. ¿Crees que debería informar al resto de mis camaradas sobre este ‘espectáculo’?" preguntó con una sonrisa burlona en los labios.
 
-"Está bien, por favor, pasa", dijo Balor abriendo más la puerta de la sala de guerra. Dentro de la habitación reinaba la oscuridad, solo iluminada por las velas ornamentales sobre la mesa de reuniones y las débiles luces del techo.
+"Por favor, no", respondió Badwhiz, jadeando y algo pálido.
 
-Taranis, con su vista aguda capaz de ver en la oscuridad, notó la presencia de los demás compañeros en la habitación oscura. Sin embargo, su mirada cambió y se volvió hacia Balor, como si le preguntara qué significaba esa tensión.
+"¡Ja, ja, ja!", rió Taranis, visiblemente divertido. Sin embargo, su risa se cortó cuando las puertas de la sala de guerra se abrieron con un crujido profundo. En el umbral apareció una figura alta y amenazante, con una silueta similar a la de un dragón.
 
-Balor notó la mirada de su compañero, pero no reaccionó. En cambio, puso su atención en Badwhiz.
+Balor, con su habitual mirada fría, emanaba una tensión palpable que parecía llenar el aire. La atmósfera se volvió pesada al instante. Taranis, siempre alerta, ajustó su postura, poniéndose en guardia.
 
-"Niño, necesito que vayas a la despensa y traigas algunas bebidas para nosotros, además de algunos bocadillos. Y también ... date una ducha antes. Tienes 30 minutos", ordenó Balor a Badwhiz, quien aún estaba sudando.
+"Llegas tarde, Taranis. Pero me alivia verte aquí finalmente", dijo Balor en un tono bajo, cargado de intención.
 
-"¡Sí, de inmediato!" respondió afirmativo el poni, pero antes de partir, no pudo evitar mirar preocupado a su maestro, quien ingresaba a la sala de guerra con una expresión de tensión evidente en el rostro.
+"Mis disculpas, Balor. Necesitaba despejarme un poco después de mi entrenamiento con Su Excelencia", respondió Taranis, con una leve inclinación de cabeza.
 
---------------------------------
+"Está bien. Entra", dijo Balor, empujando las puertas con calma y abriendole asi el paso a su compañero.
 
-Transcurrió un tiempo menor al indicado, y Badwhiz se había bañado, preparado las bebidas y colocado los bocadillos en una bandeja de plata. Ahora se encontraba nuevamente frente a las puertas de la sala de guerra.
+Dentro, el interior de la sala de guerra estaba sumido en penumbras, iluminado apenas por un grupo de velas ornamentales dispuestas sobre la mesa de reuniones y las débiles luces que colgaban del techo. A pesar de la oscuridad, los ojos entrenados de Taranis distinguieron las siluetas de varios compañeros ya reunidos en sus asientos. Sin embargo, algo en la atmósfera no se sentía correcto.
 
-Antes de que pudiera siquiera tocar la puerta, esta se abrió por sí sola, invitándolo a pasar. El interior seguía envuelto en oscuridad, así que Badwhiz utilizó la luz del cuerno de su armadura para avanzar con cautela.
+Con una expresión seria, Taranis dirigió una mirada inquisitiva hacia Balor, como si intentara descifrar el origen de aquella tensión latente. Balor, sin embargo, no reaccionó y desvió su atención hacia Badwhiz.
 
-Una vez dentro, sintió la intensa tensión que impregnaba la sala. Alrededor de una mesa circular se disponían seis asientos, enfrentados a un espejo circular que proyectaba imágenes iluminando la estancia. Todos los Caballeros del Orden estaban presentes, excepto Danu y Taranis. Esto llamó la atención de Badwhiz, pero prefirió no hacer preguntas y procedió a repartir las bebidas entre los presentes. Ninguno de ellos le dirigió la palabra ni recibió las bebidas directamente, así que simplemente las dejó sobre la mesa. Le resultaba extraño el silencio inquietante que se había apoderado de la habitación, muy diferente a las reuniones anteriores de los caballeros.
+"Niño", dijo Balor con un tono firme pero neutral, "ve a la despensa y trae bebidas para nosotros, además de algunos bocadillos. Ah, y date una ducha antes de volver. Tienes 30 minutos, no menos".
 
-Todos estaban mirando expectantes las imágenes que se reflejaban en el espejo circular al otro lado de la mesa.
+"¡Sí, de inmediato!" respondió Badwhiz con voz firme, cuadrándose por reflejo. Sin embargo, antes de marcharse, lanzó una mirada furtiva a su maestro. La tensión en el rostro de Taranis, quien ingresaba a la sala de guerra en un ritmo deliberado, no pasó desapercibida para él.
 
-Al terminar de repartir las bebidas y dejar la bandeja de bocadillos a un lado, Badwhiz se posicionó junto a la silla de Balor, esperando las próximas órdenes.
+Con el corazón inquieto, Badwhiz se giró y salió rápidamente, dejando atrás a su maestro y a Balor, sumidos en una penumbra cargada de incertidumbre.
 
-"Realmente crees que tu hermano llegará a tomar el poder", rompió el silencio una voz clara y firme. Era Morrigan dirigiéndose a Mannah, con un ligero tono de burla en sus palabras.
+[---]
 
-"Es el más indicado dada la crisis actual. El consejo y el templo no podrán negarse", respondió Mannah sin apartar la mirada del espejo.
+Transcurrió el tiempo exacto indicado. Badwhiz se había bañado, preparado las bebidas y colocado los bocadillos en una bandeja de plata. Ahora, con la bandeja equilibrada en su lomo, se encontraba nuevamente frente a las puertas de la sala de guerra.
 
-"No estoy tan segura... El rey aún cuenta con muchos partidarios de su lado. Además, el 'Gran Primado' tiene el apoyo del Gran Patriarca. El 'Gran Primado' sería..." Morrigan no pudo terminar su frase antes de que Balor la interrumpiera, tomando un sorbo de su bebida.
+Antes de que pudiera tocar la puerta, esta se abrió sola, como si lo invitara a entrar. El interior seguía envuelto en penumbras, por lo que Badwhiz encendió la luz de su armadura, proyectando un suave resplandor para avanzar con cautela.
 
-"La peor opción en este momento", completó Balor las palabras de Morrigan. Luego, mirando fijamente a Mannah, continuó: "Pero eso es adelantarse. Por favor, Morrigan, espera a que todo termine para sacar conclusiones".
+Al cruzar el umbral, la tensión en la sala lo golpeó como una ráfaga helada. En torno a una mesa circular, seis asientos estaban ocupados por los Caballeros del Orden, todos excepto Danu y Taranis. Frente a ellos, un espejo circular proyectaba imágenes que iluminaban débilmente el espacio. A pesar de la curiosidad que esto despertaba en Badwhiz, optó por no hacer preguntas y comenzó a repartir las bebidas con discreción.
 
-Morrigan le devolvió una mirada afilada a Balor, pero este la ignoró por completo.
+Los caballeros permanecieron en silencio, sin recibir las bebidas directamente. Badwhiz simplemente dejó las tazas en la mesa. Algo en la quietud inquietante de la sala lo perturbaba; nunca había sentido un ambiente tan cargado durante una reunión.
 
-"Presten atención, está por empezar", ordenó Ceridwen a sus compañeros. Las imágenes en el espejo comenzaron a moverse, y Badwhiz, que veía el espejo por primera vez, empezaba a comprender que las imágenes eran una proyección de lo que estaba ocurriendo en otro lugar, aunque no podía identificar dónde.
+Todos los presentes tenían los ojos fijos en las imágenes reflejadas en el espejo.
 
-Entonces, como si se activara un audio, unos sonidos comenzaron a emanar del espejo, que hasta ese momento había permanecido en silencio.
+Al terminar de repartir las bebidas y dejar la bandeja de bocadillos a un lado, Badwhiz se colocó junto a la silla de Balor, esperando nuevas instrucciones.
 
-El espejo susurró por un momento, como si intentara sintonizarse: "Bzzzz... Concilio de Cunábula, miembros del templo... bzzz", antes de que las imágenes se establecieran por completo. Lo que mostraba era un gran anfiteatro, con asientos blancos y dorados que rodeaban un podio de plata. El ambiente estaba cargado de expectación, todas las criaturas semejantes a los Caballeros del Orden se encontraban sentadas, esperando al próximo orador.
+"¿De verdad crees que tu hermano llegará al poder?" rompió el silencio Morrigan, su voz clara y cargada de una sutil burla, mientras dirigía una mirada afilada a Mannah.
 
-Contagiado por la tensión en la sala, Badwhiz agudizó su mirada y su oído tanto como pudo.
+"Es el candidato más indicado, dada la crisis actual. Ni el consejo ni el templo podrán oponerse", respondió Mannah sin apartar los ojos del espejo.
 
-Tras una ovación y un largo silencio, una figura envuelta en una capa negra surgió de uno de los lados del podio y se movió rápidamente hacia el centro del anfiteatro, adoptando la posición de orador. La misteriosa entidad pareció escanear a todos los presentes con la mirada, y un escalofrío recorrió el cuerpo de Badwhiz cuando sus ojos se encontraron por un instante.
+"No lo tengo tan claro", replicó Morrigan, ladeando la cabeza. "El rey aún conserva muchos partidarios, y el 'Gran Primado' tiene el respaldo del Gran Patriarca. Si ese fuera el caso, el 'Gran Primado' sería..."
 
-Instintivamente, Badwhiz apartó la mirada del espejo, sintiendo un miedo inexplicable. ¿Cómo podría aquel ser haberlo visto? Confundido por la sensación inquietante, volvió lentamente la mirada al espejo.
+Morrigan no alcanzó a terminar su frase. Balor la interrumpió con calma tras un sorbo de su bebida.
 
-La misteriosa entidad aún lo observaba. No podía ser, ¿verdad? Quizás solo estaba mirando directamente al otro lado del espejo, donde Badwhiz estaba. Esa fue la explicación que intentó darse a sí mismo para calmar sus nervios.
+"La peor opción en este momento", concluyó, su tono seco. Sin apartar la mirada de Mannah, añadió: "Pero eso es adelantarse. Morrigan, espera a que esto termine antes de sacar conclusiones".
 
-Pero entonces, por un instante, a pesar de la imagen ligeramente borrosa en el espejo, Badwhiz notó que aquel ser sonreía.
+Morrigan lanzó una mirada cargada de desafío a Balor, pero este permaneció impasible, ignorándola.
 
-De repente, unas extremidades parecidas a brazos emergieron de la misteriosa entidad, que se quitó la capucha, revelando su verdadera forma.
+"Presten atención, está por empezar", ordenó Ceridwen, llamando a todos al silencio.
 
-Badwhiz contuvo el aliento, aterrorizado por lo que veían sus ojos. Varios de los otros Caballeros del Orden también quedaron sorprendidos, y Balor, observando con atención, apretó sus garras con furia.
+Las imágenes en el espejo comenzaron a moverse, y Badwhiz, que nunca había visto antes este dispositivo, empezó a comprender que eran proyecciones de un lugar distante, aunque no podía identificar dónde.
 
-La misteriosa entidad habló: "SALUDOS, HABITANTES DE CUNÁBULA. NO TEMAN, HE VENIDO A USTEDES CON UN MENSAJE DE PAZ." Aunque las palabras podrían sonar amistosas para muchos, eran solo polvo al ser pronunciadas por aquel ser que solo se podía describir como monstruoso.
+El espejo emitió un leve zumbido, como si intentara sintonizarse: "Bzzz... Concilio de Cunábula... miembros del templo... bzzz". Finalmente, las imágenes se estabilizaron, revelando un gran anfiteatro. Sus asientos blancos y dorados rodeaban un imponente podio de plata. La atmósfera estaba cargada de expectación, y todas las criaturas presentes, parecidas a los Caballeros del Orden, observaban en silencio, aguardando al próximo orador.
 
-En un rincón de la sala de guerra, Taranis, aún abatido por la noticia de que el Rey había abdicado esa noche, contemplaba la noble bandera de Cunábula que se alzaba en la pared. Al percibir la conmoción de sus compañeros, volvió su mirada a la transmisión del espejo mágico en la sala de guerra. Un profundo odio se reflejó en su rostro al ver la verdadera forma de quien había transgredido el orden del mundo que tanto amaba.
+Badwhiz, contagiado por la tensión, agudizó su vista y oído.
 
-"Maldito emisario de medianoche", murmuró Taranis con un tono cargado de rencor antes de tomar asiento junto con sus compañeros en la sala de guerra. Aunque sus palabras fueron apenas un susurro, resonaron en el silencio tenso de la sala, y ninguno de los presentes se atrevió a contradecirlo, pues todos compartían ese mismo sentimiento.
+Tras una ovación y un instante de silencio sepulcral, una figura envuelta en una capa negra emergió de las sombras y avanzó con rapidez hacia el centro del podio. Allí, se detuvo y escaneó a los presentes con una mirada penetrante.
+
+Cuando sus ojos se encontraron con los de Badwhiz a través del espejo, un escalofrío recorrió el cuerpo del joven caballero. Instintivamente, apartó la vista, sintiendo un miedo inexplicable. ¿Cómo podía ese ser haberlo visto? Intentó tranquilizarse, diciéndose que solo miraba hacia el otro lado del espejo, pero la inquietud persistía.
+
+Con cautela, Badwhiz volvió a mirar. Para su horror, la figura seguía observándolo.
+
+Por un instante, entre la neblina borrosa de la proyección, creyó ver cómo la figura esbozaba una sonrisa.
+
+Entonces, como si el espejo cobrara vida, extremidades similares a brazos emergieron de la capa negra. La entidad se quitó la capucha, revelando su verdadera forma.
+
+Badwhiz contuvo el aliento. La criatura era monstruosa, y el aire en la sala de guerra se volvió aún más pesado. Incluso los Caballeros del Orden, acostumbrados a todo tipo de horrores, parecían sorprendidos.
+
+Balor apretó sus garras contra el borde de la mesa, su mirada fija en la figura.
+
+"¡SALUDOS, HABITANTES DE CUNÁBULA!", proclamó la entidad con una voz estruendosa. "NO TEMAN, HE VENIDO A USTEDES CON UN MENSAJE DE PAZ".
+
+Aunque sus palabras podían parecer conciliadoras, en boca de aquella criatura sonaban tan vacías como cenizas al viento.
+
+En un rincón de la sala, Taranis observaba en silencio. Aún afectado por la noticia de que el Rey había abdicado esa noche, mantenía la vista en la noble bandera de Cunábula que colgaba de la pared. Al percibir la conmoción de sus compañeros, giró hacia el espejo.
+
+Al reconocer la figura que allí se proyectaba, una expresión de odio puro cruzó su rostro.
+
+"Maldito emisario de medianoche", murmuró con rencor.
+
+Aunque sus palabras fueron apenas un susurro, resonaron en la sala cargada de tensión. Nadie se atrevió a contradecirlo, pues todos compartían el mismo sentimiento: un odio latente hacia aquel ser que había profanado el orden que tanto amaban.
