@@ -1,9 +1,3 @@
-[center][img]https://i.ibb.co/72h2gyy/AO-I.png[/img][/center]
-
-[quote]
-[color=#2caf26]Greetings, Fimfiction readers. This document was edited on 29/11/2024.[/color]
-[/quote]
-
 The noonday sun shone brightly over Canterlot, the majestic capital of Equestria. Along its white streets, cheerful crowds of ponies strolled, brimming with confidence and excitement. Every house and shop displayed festive decorations commemorating the grand occasion of the day.
 
 It was the Festival of the Two Sisters. On a special day like this, there were few excuses not to enjoy it.
