@@ -1,14 +1,16 @@
 El Tártaro, poco después de la llegada de la medianoche...
 
-Badwhiz Starheart corría apresuradamente por los deteriorados pasillos que conducían a una de las torres de vigilancia exterior de la prisión. Había recibido la orden urgente de Balor de reunir a todos los Caballeros del Orden en la sala de guerra. Sin detenerse ni un momento para tomar aliento, estaba completamente decidido a cumplir cuanto antes con aquella misión de extrema importancia.
+Badwhiz Starheart corría apresuradamente por los deteriorados pasillos que conducían a una de las torres de vigilancia exterior a la gran prisión. Había recibido la orden urgente por parte de Balor de reunir a todos los Caballeros del Orden en la sala de guerra. Con el entendimiento de la importante tarea que llevaba a sus espaldas, no se habia detenido en ningun a momento  para tomar aliento, encontrandose completamente decidido a cumplir cuanto antes con aquella misión de extrema importancia.
 
-De hecho, ya casi había terminado.
+Y hasta ese momento ya casi había terminado de encontrarse con cada uno de los caballeros ... con la excepcion de uno.
 
-Informar a Morrigan, Ceridwen y Mannah momentos antes había resultado sencillo, pero encontrar a Taranis se habia vuelto imposible. Este último, tras haber tenido un duelo contra Danu horas atrás, se encontraba inubicable.
+Dar con Morrigan, Ceridwen y Mannah momentos antes había resultado sencillo, pero encontrar a Taranis se le habia vuelto imposible. Este último, tras haber tenido un duelo contra Danu horas atrás, no se hallaba en sala medica donde lo habia dejado, ni en sus aposentos donde solia descansar.
 
-Al no tener pistas, Badwhiz había consultado con Balor, quien solo le indicó que Taranis estaba en una de las torres exteriores. No le dieron más detalles sobre la razón de su presencia allí, pero eso no lo detendría. Estaba decidido a cumplir su misión sin más demora.
+Sin pistas, Badwhiz había consultado con la misma Balor, quien solo le indicó que Taranis estaba muy cerca de una de las torres exteriores. 
 
-Al llegar al final del pasillo, Badwhiz notó que la puerta al exterior estaba abierta de par en par. Sin perder un segundo, cruzó la entrada apresuradamente.
+Sin mas pistas que la direccion de la torre a la que se referia Balor, Badwhiz ya habia recorrido apresuradamente todo el camino hasta llegar alli.
+
+Al por fin llegar al final del pasillo, el joven poni notó como la puerta al exterior estaba abierta de par en par. Sin perder un segundo, cruzó la entrada apresuradamente para encontrar se en el exterior.
 
 Afuera, iluminado por la pálida luz de la luna, un desolado mirador sin barandillas se extendía ante él. No había ni rastro de su objetivo.
 
