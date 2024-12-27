@@ -1,42 +1,42 @@
-
 El Tártaro, poco después de la llegada de la medianoche...
 
-Badwhiz Starheart corría apresuradamente por los deteriorados pasillos que conducían a una de las torres de vigilancia de la gran prisión. Había recibido la orden urgente por parte de Balor de reunir a todos los Caballeros del Orden en la sala de guerra. Con el entendimiento de la importante tarea que llevaba a sus espaldas, no se había detenido en ningún momento para tomar aliento, encontrándose completamente decidido a cumplir cuanto antes con aquella misión.
+Badwhiz Starheart corría apresuradamente por los deteriorados pasillos que conducían a una de las torres de vigilancia de la gran prisión. Había recibido la orden urgente de Balor de reunir a todos los Caballeros del Orden en la sala de guerra. Consciente de la importancia de la tarea que llevaba a sus espaldas, no se había detenido ni un instante para tomar aliento, completamente decidido a cumplir cuanto antes con aquella misión.
 
-Y hasta ese momento, dar con Morrigan, Ceridwen y Mannah momentos antes había resultado sencillo, pero encontrar a Taranis se le había vuelto imposible. Este último, tras haber tenido un duelo contra Danu horas atrás, no se hallaba en la sala médica donde lo había dejado, ni en sus aposentos donde solía descansar.
+Hasta ese momento, localizar a Morrigan, Ceridwen y Mannah había resultado sencillo. Sin embargo, encontrar a Taranis se estaba convirtiendo en un desafío frustrante. Este último, tras haber tenido un duelo contra Danu horas atrás, no se encontraba en la sala médica donde lo había dejado ni en sus aposentos, donde solía descansar.
 
-Sin pistas, Badwhiz había consultado con la misma Balor, quien solo le indicó que Taranis estaba muy cerca de una de las torres exteriores.
-Sin más que la dirección de la torre dada por Balor, Badwhiz había recorrido ya apresuradamente todo el camino hasta llegar allí.
+Sin más pistas, Badwhiz había consultado con la misma Balor, quien solo le indicó que Taranis estaba cerca de una de las torres exteriores.
 
-Por fin, después de subir una escalera en espiral, el joven poni se encontró con la puerta al exterior de la torre abierta de par en par, la cual, sin perder un segundo, cruzó apresuradamente.
+Guiado únicamente por esa vaga dirección, Badwhiz había recorrido apresuradamente el largo camino hasta llegar allí.
 
-Afuera, iluminado por la pálida luz de la luna, un desolado mirador sin barandillas se extendía ante él. 
+Finalmente, después de subir una escalera en espiral, el joven poni se encontró con la puerta al exterior de la torre, abierta de par en par. Sin perder un segundo, cruzó el umbral apresuradamente.
 
-Ya lo esperaba cuando subia a quel lugar, pero el sentimiento de sosobra fue sorpresivo. No había ningun rastro de su objetivo.
+Afuera, iluminado por la pálida luz de la luna, se extendía un desolado mirador sin barandillas.
 
-"¿Habrá salido sin permiso otra vez? ¡Justo ahora! ¡Ay, cascos! ¿Cómo le explicaré esto a Lord Balor?", murmuró Badwhiz, angustiado, mientras miraba el fondo del valle desde el borde del mirador.
+Aunque ya lo había imaginado mientras subía, el sentimiento de desasosiego que lo invadió al llegar allí lo tomó por sorpresa. No había ningún rastro de su objetivo.
 
-La volcánica superficie del Tártaro se desplegaba hasta donde alcanzaba la vista. Hileras de fumarolas y géiseres rompían el paisaje, abriéndose paso entre lagos ácidos y fallas geológicas. En medio de ese desolador páramo, un sinuoso camino, que apenas merecía llamarse tal, se distinguía borroso a la distancia. Si alguien intentaba huir de aquel lugar, ese sendero sería la única vía de escape segura.
+"¿Habrá salido sin permiso otra vez? ¡Justo ahora! ¡Ay, cascos! ¿Cómo le explicaré esto a Lord Balor?" murmuró Badwhiz, angustiado, mientras miraba el fondo del valle desde el borde del mirador.
 
-Claro que esto solo aplicaba para quienes dependían de caminar. Para aquellos que dominaban el aire, la situación era otra muy distinta...
+La volcánica superficie del Tártaro se desplegaba hasta donde alcanzaba la vista. Hileras de fumarolas y géiseres rompían el paisaje, abriéndose paso entre lagos ácidos y profundas fallas geológicas. En medio de ese desolador páramo, un sinuoso camino, que apenas merecía llamarse tal, se distinguía borroso a la distancia. Si alguien intentaba huir de aquel lugar, ese sendero sería la única vía de escape segura.
 
-Desde el mirador, Badwhiz estudiaba las nubes del valle, buscando cualquier señal de su mentor. Lord Taranis —o simplemente Taranis, como prefería que lo llamaran— era un maestro del aire y, difícilmente, alguien lo encontraría caminando por el sinuoso sendero. Por eso, Badwhiz dirigía su atención al cielo, donde parecía más lógico hallarlo.
+Claro que esto solo aplicaba para quienes dependían de caminar. Para aquellos que dominaban el aire, la situación era completamente distinta...
 
-Sin embargo, la engañosa altura del mirador empezaba a jugarle una mala pasada. Poco a poco, su mirada se desviaba hacia las afiladas púas que sobresalían del abismo bajo la torre. Estas relucían bajo la luz de la luna, brillando como dientes amenazantes.
+Desde el mirador, Badwhiz alzó la vista, estudiando las nubes del valle en busca de cualquier señal de su mentor. Lord Taranis —o simplemente Taranis, como prefería que lo llamaran— era un maestro del aire. Difícilmente alguien lo encontraría caminando por un sendero tan terrenal. Por eso, Badwhiz enfocó su atención en el cielo, donde parecía más lógico hallarlo.
 
-El joven tragó saliva, sintiendo cómo el miedo al vacío crecía dentro de él. Desde esa altura, una caída sería fatal. Aunque su armadura incluía alas mecánicas, no tenía el instinto natural de un pegaso ni la confianza suficiente en sus habilidades de vuelo, aún recientes y torpes (a su juicio). Un escalofrío subió por su columna hasta su sien, intensificando su inquietud.
+Sin embargo, la altura del mirador comenzaba a jugarle una mala pasada. Poco a poco, su mirada se desvió hacia las afiladas púas que sobresalían del abismo bajo la torre. Estas relucían bajo la luz de la luna, brillando como dientes amenazantes.
 
-"Quizás debería gritar desde atrás, más atrás ... Lord Taranis seguramente me escuchará si hago eso", murmuró Badwhiz, intentando convencerse de que era la solución más sensata. Tembloroso, retrocedió unos pasos, alejándose del borde traicionero. Pero el temor a caer accidentalmente seguía invadiéndolo, más difícil de ignorar con cada instante.
+El joven poni tragó saliva, sintiendo cómo el miedo al vacío crecía dentro de él. Desde esa altura, una caída sería fatal. Aunque su armadura incluía alas mecánicas que podia usar para evitar algo asi, no tenía el instinto natural de un pegaso ni la confianza suficiente en sus habilidades de vuelo (aún recientes y torpes en su opinión) para hacerlo.
 
-Entonces, sin previo aviso, una ráfaga de viento lo empujó por la espalda.
+"Quizás debería gritar desde más atrás... Lord Taranis seguramente me escuchará si hago eso" murmuró Badwhiz, intentando convencerse de que era la solución más sensata. Tembloroso, retrocedió unos pasos, alejándose del borde traicionero.
 
-Antes de que pudiera reaccionar, el suelo bajo sus cascos desapareció, y por un instante se encontró flotando en el aire.
+Entonces, sin previo aviso, como el manotaso de un gigante, una ráfaga de viento lo empujó por la espalda.
+
+Antes de que pudiera reaccionar, el suelo bajo sus cascos habia desapareció, y por un instante se encontró flotando en el aire antes de comenzar a precipitarse al vacio.
 
 "¡Hee! ¡Heeeeeeeeeeeeeee!"
 
-Badwhiz gritó tarde y agitó sus alas con desesperación, tratando de ganar impulso para regresar al mirador. Pero sus movimientos eran torpes y el suelo afilado, con sus púas letales, se acercaba con espantosa rapidez.
+Tardio fue el gritó de Badwhiz que agitaba sus alas con desesperación, tratando de ganar impulso para regresar al mirador. Pero sus movimientos eran torpes y el suelo afilado, con sus púas letales esperandolo en el fondo, estas se acercaba con espantosa rapidez.
 
-Sin embargo, cuando el impacto parecía inevitable, un nuevo viento surgió de la nada, envolviéndolo con fuerza y elevándolo de vuelta hacia la torre. Como si hubiera rebotado sobre una invisible colcha de aire, ascendió rápidamente, recorriendo toda la altura desde la que había caído.
+Sin embargo, cuando el impacto parecía ya inevitable, un nuevo viento surgió de la nada, envolviéndolo con fuerza y elevándolo de vuelta hacia la torre. Como si hubiera rebotado sobre una invisible colcha de aire, ascendió rápidamente, recorriendo toda la altura desde la que había caído.
 
 Para su asombro, aterrizó justo en el mismo lugar donde antes había estado observando el valle.
 
@@ -60,9 +60,9 @@ Caminando por uno de los pasillos secretos dentro del Tártaro...
 
 Badwhiz, acompañado del recién ubicado Taranis, avanzaba hacia la sala de guerra.
 
-Taranis, ahora vestido con su imponente armadura de guerrero, flexionaba los brazos mientras caminaba con aparente relajación. Aunque sentía algo de tensión en los codos, no le daba importancia. El entrenamiento con Danu había sido tan poco fructífero como siempre. No quería participar esa vez, pero Mannah había insistido con tanta vehemencia que Balor terminó por convencerlo. A pesar de las repetidas súplicas de Mannah de que tratara el combate como un duelo real, Taranis no podía tomárselo como tal. Para él, entrenar no era lo mismo que pelear en el campo de batalla, del mismo modo que leer una receta no era igual a preparar el plato de comida en la cocina.
+Taranis, ahora vestido con su imponente armadura de guerrero, flexionaba sus musculosos brazos mientras avanzaba con aparente relajación. Aunque sentía algo de tensión en los codos, no le daba importancia. El entrenamiento con Danu había sido tan poco fructífero como siempre. No quería participar esa vez, pero Mannah había insistido con tanta vehemencia que terminó por convencerlo. A pesar de las repetidas súplicas de Mannah de que tratara el combate como un duelo real, Taranis no podía tomárselo como tal. Para él, entrenar no era lo mismo que pelear en el campo de batalla, del mismo modo que leer una receta no era igual a preparar el plato de comida en la cocina.
 
-Este ultimo pensamiento despertó una chispa de idea en su mente.
+Este ultimo pensamiento despertó una chispa de una idea en su mente.
 
 "¡Oye, niño! ¿Te sientes cansado? ¿Qué tal si, antes de ver a Balor, pasamos un momento por la cocina? Creo que Morrigan todavía tiene algunos buñuelos de alma-vainilla en la despensa..."
 
@@ -116,13 +116,13 @@ Balor, con su habitual mirada fría, emanaba una tensión palpable que parecía 
 
 "Está bien. Entra", dijo Balor, empujando las puertas con calma y abriendole asi el paso a su compañero.
 
-Dentro, el interior de la sala de guerra estaba sumido en penumbras, iluminado apenas por un grupo de velas ornamentales dispuestas sobre la mesa de reuniones y las débiles luces que colgaban del techo. A pesar de la oscuridad, los ojos entrenados de Taranis distinguieron las siluetas de varios compañeros ya reunidos en sus asientos. Sin embargo, algo en la atmósfera no se sentía correcto.
+Dentro, el interior de la sala de guerra estaba sumido en penumbras, iluminado apenas por un grupo de velas ornamentales dispuestas sobre la mesa de reuniones y las débiles luces que colgaban del techo. A pesar de toda esa oscuridad, los ojos entrenados de Taranis distinguieron las siluetas de varios compañeros ya reunidos en sus asientos. Sin embargo, algo en la atmósfera no se sentía correcto.
 
 Con una expresión seria, Taranis dirigió una mirada inquisitiva hacia Balor, como si intentara descifrar el origen de aquella tensión latente. Balor, sin embargo, no reaccionó y desvió su atención hacia Badwhiz.
 
 "Niño", dijo Balor con un tono firme pero neutral, "ve a la despensa y trae bebidas para nosotros, además de algunos bocadillos. Ah, y date una ducha antes de volver. Tienes 30 minutos, no menos".
 
-"¡Sí, de inmediato!" respondió Badwhiz con voz firme, cuadrándose por reflejo. Sin embargo, antes de marcharse, lanzó una mirada furtiva a su maestro. La tensión en el rostro de Taranis, quien ingresaba a la sala de guerra en un ritmo deliberado, no pasó desapercibida para él.
+"¡Sí, de inmediato!" respondió Badwhiz con voz firme, cuadrándose por reflejo. Sin embargo, antes de marcharse, lanzó una mirada furtiva a su maestro. La tensión en el rostro de Taranis, quien ingresaba a la sala de guerra en un ritmo deliberadamente apresurado, no pasó desapercibida para él.
 
 Con el corazón inquieto, Badwhiz se giró y salió rápidamente, dejando atrás a su maestro y a Balor, sumidos en una penumbra cargada de incertidumbre.
 
@@ -130,7 +130,7 @@ Con el corazón inquieto, Badwhiz se giró y salió rápidamente, dejando atrás
 
 Transcurrió el tiempo exacto indicado. Badwhiz se había bañado, preparado las bebidas y colocado los bocadillos en una bandeja de plata. Ahora, con la bandeja equilibrada en su lomo, se encontraba nuevamente frente a las puertas de la sala de guerra.
 
-Antes de que pudiera tocar la puerta, esta se abrió sola, como si lo invitara a entrar. El interior seguía envuelto en penumbras, por lo que Badwhiz encendió la luz de su armadura, proyectando un suave resplandor para avanzar con cautela.
+Antes de que pudiera tocar la puerta, esta se abrió sola, como si lo invitara a entrar. El interior seguía envuelto en penumbras, por lo que Badwhiz encendió la luz del cuerno de su armadura, proyectando un suave resplandor para avanzar con cautela.
 
 Al cruzar el umbral, la tensión en la sala lo golpeó como una ráfaga helada. En torno a una mesa circular, seis asientos estaban ocupados por los Caballeros del Orden, todos excepto Danu y Taranis. Frente a ellos, un espejo circular proyectaba imágenes que iluminaban débilmente el espacio. A pesar de la curiosidad que esto despertaba en Badwhiz, optó por no hacer preguntas y comenzó a repartir las bebidas con discreción.
 
@@ -146,7 +146,7 @@ Al terminar de repartir las bebidas y dejar la bandeja de bocadillos a un lado, 
 
 "No lo tengo tan claro", replicó Morrigan, ladeando la cabeza. "El rey aún conserva muchos partidarios, y el 'Gran Primado' tiene el respaldo del Gran Patriarca. Si ese fuera el caso, el 'Gran Primado' sería..."
 
-Morrigan no alcanzó a terminar su frase. Balor la interrumpió con calma tras un sorbo de su bebida.
+Morrigan no alcanzó a terminar sus palabras. Balor la interrumpió con calma tras un sorbo de su bebida.
 
 "La peor opción en este momento", concluyó, su tono seco. Sin apartar la mirada de Mannah, añadió: "Pero eso es adelantarse. Morrigan, espera a que esto termine antes de sacar conclusiones".
 
@@ -162,7 +162,7 @@ Badwhiz, contagiado por la tensión, agudizó su vista y oído.
 
 Tras una ovación y un instante de silencio sepulcral, una figura envuelta en una capa negra emergió de las sombras y avanzó con rapidez hacia el centro del podio. Allí, se detuvo y escaneó a los presentes con una mirada penetrante.
 
-Cuando sus ojos se encontraron con los de Badwhiz a través del espejo, un escalofrío recorrió el cuerpo del joven caballero. Instintivamente, apartó la vista, sintiendo un miedo inexplicable. ¿Cómo podía ese ser haberlo visto? Intentó tranquilizarse, diciéndose que solo miraba hacia el otro lado del espejo, pero la inquietud persistía.
+Cuando sus ojos que brillaban en la oscuridad de sus tunicas se encontraron con los de Badwhiz a través del espejo, un escalofrío recorrió el cuerpo del joven poni casi de inmediato. Instintivamente, apartó la vista, sintiendo un miedo inexplicable. ¿Cómo podía ese ser haberlo visto? Intentó tranquilizarse, diciéndose que solo miraba hacia el otro lado del espejo, pero la inquietud persistía.
 
 Con cautela, Badwhiz volvió a mirar. Para su horror, la figura seguía observándolo.
 
