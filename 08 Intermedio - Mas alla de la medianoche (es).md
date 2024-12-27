@@ -1,20 +1,20 @@
+
 El Tártaro, poco después de la llegada de la medianoche...
 
-Badwhiz Starheart corría apresuradamente por los deteriorados pasillos que conducían a una de las torres de vigilancia exterior a la gran prisión. Había recibido la orden urgente por parte de Balor de reunir a todos los Caballeros del Orden en la sala de guerra. Con el entendimiento de la importante tarea que llevaba a sus espaldas, no se habia detenido en ningun a momento  para tomar aliento, encontrandose completamente decidido a cumplir cuanto antes con aquella misión de extrema importancia.
+Badwhiz Starheart corría apresuradamente por los deteriorados pasillos que conducían a una de las torres de vigilancia de la gran prisión. Había recibido la orden urgente por parte de Balor de reunir a todos los Caballeros del Orden en la sala de guerra. Con el entendimiento de la importante tarea que llevaba a sus espaldas, no se había detenido en ningún momento para tomar aliento, encontrándose completamente decidido a cumplir cuanto antes con aquella misión.
 
-Y hasta ese momento ya casi había terminado de encontrarse con cada uno de los caballeros ... con la excepcion de uno.
+Y hasta ese momento, dar con Morrigan, Ceridwen y Mannah momentos antes había resultado sencillo, pero encontrar a Taranis se le había vuelto imposible. Este último, tras haber tenido un duelo contra Danu horas atrás, no se hallaba en la sala médica donde lo había dejado, ni en sus aposentos donde solía descansar.
 
-Dar con Morrigan, Ceridwen y Mannah momentos antes había resultado sencillo, pero encontrar a Taranis se le habia vuelto imposible. Este último, tras haber tenido un duelo contra Danu horas atrás, no se hallaba en sala medica donde lo habia dejado, ni en sus aposentos donde solia descansar.
+Sin pistas, Badwhiz había consultado con la misma Balor, quien solo le indicó que Taranis estaba muy cerca de una de las torres exteriores.
+Sin más que la dirección de la torre dada por Balor, Badwhiz había recorrido ya apresuradamente todo el camino hasta llegar allí.
 
-Sin pistas, Badwhiz había consultado con la misma Balor, quien solo le indicó que Taranis estaba muy cerca de una de las torres exteriores. 
+Por fin, después de subir una escalera en espiral, el joven poni se encontró con la puerta al exterior de la torre abierta de par en par, la cual, sin perder un segundo, cruzó apresuradamente.
 
-Sin mas pistas que la direccion de la torre a la que se referia Balor, Badwhiz ya habia recorrido apresuradamente todo el camino hasta llegar alli.
+Afuera, iluminado por la pálida luz de la luna, un desolado mirador sin barandillas se extendía ante él. 
 
-Al por fin llegar al final del pasillo, el joven poni notó como la puerta al exterior estaba abierta de par en par. Sin perder un segundo, cruzó la entrada apresuradamente para encontrar se en el exterior.
+Ya lo esperaba cuando subia a quel lugar, pero el sentimiento de sosobra fue sorpresivo. No había ningun rastro de su objetivo.
 
-Afuera, iluminado por la pálida luz de la luna, un desolado mirador sin barandillas se extendía ante él. No había ni rastro de su objetivo.
-
-"¿Habrá salido sin permiso otra vez? ¡Justo ahora! ¡Ay, cascos! ¿Cómo le explicaré esto a Lord Balor?", murmuró Badwhiz, preocupado, mientras miraba el fondo del valle desde el borde del mirador.
+"¿Habrá salido sin permiso otra vez? ¡Justo ahora! ¡Ay, cascos! ¿Cómo le explicaré esto a Lord Balor?", murmuró Badwhiz, angustiado, mientras miraba el fondo del valle desde el borde del mirador.
 
 La volcánica superficie del Tártaro se desplegaba hasta donde alcanzaba la vista. Hileras de fumarolas y géiseres rompían el paisaje, abriéndose paso entre lagos ácidos y fallas geológicas. En medio de ese desolador páramo, un sinuoso camino, que apenas merecía llamarse tal, se distinguía borroso a la distancia. Si alguien intentaba huir de aquel lugar, ese sendero sería la única vía de escape segura.
 
