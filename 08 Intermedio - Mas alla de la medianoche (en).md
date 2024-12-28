@@ -1,155 +1,187 @@
 Tartarus, shortly after midnight...
 
-Badwhiz hurriedly ran through the deteriorated hallways leading to the outer watchtower. An urgent order from Balor had prompted him to gather all the Knights of the Order in the war room for a matter of utmost importance.
+Badwhiz Starheart raced hurriedly through the crumbling hallways that led to one of the outer watchtowers of the massive prison. He had received an urgent order from Balor to gather all the Knights of Order in the war room. Fully aware of the weight of the task he carried, he hadn't stopped even for a moment to catch his breath, completely determined to fulfill the mission as quickly as possible.
 
-Informing Morrigan, Ceridwen, and Mannah had been easy for Badwhiz, but Taranis, who had dueled Danu hours earlier, was nowhere to be found.
+So far, locating Morrigan, Ceridwen, and Mannah had been relatively simple. However, finding Taranis was proving to be a frustrating challenge. The latter, after having a duel with Danu hours earlier, was neither in the medical bay where Badwhiz had last seen him nor in his quarters where he usually rested.
 
-After consulting with Balor, he was only told that Taranis was in the outer tower. Although he hadn't been given further details on why Taranis was there, Badwhiz was determined to complete his mission without further delay.
+With no further leads, Badwhiz had sought guidance from Balor herself, who only informed him that Taranis was near one of the outer towers.
 
-As he reached the end of the hallway, Badwhiz found the door to the outside wide open. Hurriedly, he continued through the door.
+Armed with nothing but this vague direction, Badwhiz had hurriedly traveled the long path to reach the designated location.
 
-Outside, illuminated by the moonlight, a desolate railing-less lookout stretched before him with no signs of his target.
+Finally, after ascending a spiraling staircase, the young pony found the door to the tower's exterior wide open. Without hesitation, he crossed the threshold in haste.
 
-"Has he gone out without permission again? Right now! Oh, hooves! How will I explain this to Lord Balor?" Badwhiz exclaimed anxiously as he gazed down the valley from the edge of the lookout.
+Outside, bathed in the pale light of the moon, stretched a desolate lookout platform, barren and without railings.
 
-The volcanic surface of Tartarus stretched as far as the eye could see, rows upon rows of fumaroles and geysers weaving through acidic lakes and geological faults. In the midst of this infernal wasteland, a winding path, barely recognizable as such, appeared blurry in the distance. If anyone were to attempt an escape from this place, that path would be the only safe way out.
+Though he had anticipated the stark emptiness as he climbed, the unease that gripped him upon arriving took him by surprise. There was no trace of his objective.
 
-Of course, this was only true for those who could walk; if one could control the air, it would be a different story...
+"Did he slip away without permission again? Right now, of all times! Oh, hooves! How am I supposed to explain this to Lord Balor?" Badwhiz muttered anxiously, glancing down at the valley from the edge of the platform.
 
-Badwhiz scanned the valley clouds in search of his mentor. Taranis was a skilled master of the air; he would hardly be found on the ground crossing the path. So searching for him in the sky was the most obvious choice.
+The volcanic landscape of Tartarus sprawled out as far as the eye could see. Rows of fumaroles and geysers marred the land, weaving through acidic lakes and deep geological fissures. Amid this desolate expanse, a winding path—barely deserving of the term—could be faintly seen in the distance. If anyone dared to escape this place, that path would be their only relatively safe route.
 
-However, the deceptive vertigo of the height began to blur Badwhiz's vision. He gradually began to pay more attention to the sharp spikes sprouting beneath the tower, gleaming like teeth in the moonlight.
+Of course, that only applied to those confined to walking. For those who commanded the skies, the situation was entirely different...
 
-Badwhiz swallowed hard. From this height, a fall would be deadly. Although Badwhiz had wings incorporated into his armor, he lacked the flight instincts of a pegasus. Fear of the abyss began to grow within him, sending a shiver up his spine.
+From the lookout, Badwhiz raised his gaze, scanning the valley clouds for any sign of his mentor. Lord Taranis—or simply Taranis, as he preferred to be called—was a master of the skies. It was highly unlikely anyone would find him treading on such a terrestrial path. Thus, Badwhiz focused his attention on the heavens, where it seemed more logical to locate him.
 
-"I should perhaps shout loudly from further back, maybe Lord Taranis will hear me..." Badwhiz spoke to himself, trying to convince himself that this was the best solution, increasingly difficult to ignore the fear of falling.
+However, the deceptive height of the lookout was beginning to take its toll on him. Gradually, his gaze shifted to the jagged spikes jutting from the abyss beneath the tower. These gleamed under the moonlight, shining like menacing teeth.
 
-Then, a gust of wind pushed him from behind. Before Badwhiz could comprehend what was happening, the ground beneath his feet disappeared, and for a moment, he found himself weightless in the air.
+The young pony swallowed hard, feeling the creeping fear of the void grow within him. From this height, a fall would be fatal. Although his armor included mechanical wings he could use to prevent such a fate, he lacked the natural instincts of a pegasus and had little confidence in his flying skills—still new and, in his opinion, clumsy. A chill ran up his spine and settled in his temple, intensifying his unease.
 
-"Hee! Heeeeeeeeeeeeeeeeeee!" Badwhiz screamed as he fell from the tower, flapping his wings for momentum. However, he wasn't fast enough, and the sharp spike-filled ground was rapidly approaching.
+"Maybe I should call out from farther back... Lord Taranis will surely hear me if I do that," Badwhiz murmured, trying to convince himself that this was the most sensible solution. Trembling, he took a few steps back, putting distance between himself and the treacherous edge.
 
-But then, another wind arose out of nowhere and lifted him upward.
+Then, without warning, like the swipe of a giant's hand, a sudden gust of wind pushed him from behind.
 
-In what seemed like a bounce with a cushion of air, Badwhiz unexpectedly returned to the top of the tower, right back at the edge of the lookout.
+Before he could react, the ground beneath his hooves vanished, and for a fleeting moment, he found himself suspended in mid-air before plummeting into the abyss.
 
-"What...? How...?" Badwhiz stammered with his heart racing, unable to understand what had just happened.
+"Ahhh! AAAAAAAHHHHHHH!"
 
-"Boy, you need to practice your flight more. Gliding is fine, but you can do so much more with your wings."
+Badwhiz's delayed scream tore through the air as he flailed his wings desperately, trying to gain lift and return to the lookout. But his movements were awkward, and the jagged ground below, with its lethal spikes awaiting him, drew closer with horrifying speed.
 
-A voice spoke behind Badwhiz, who immediately turned around. The imposing figure of a creature that could only be described as a cross between a bull and a serpent stood before him. He was naked, but that didn't diminish his warrior-like aura. In fact, the moonlight, combined with the tattered bandages covering his body, further heightened the champion's shadow.
+However, just as impact seemed inevitable, a new wind emerged from nowhere, wrapping around him with force and lifting him back toward the tower. As though bouncing off an invisible cushion of air, he ascended rapidly, retracing the entire height he had fallen.
 
-This was who Badwhiz had been searching for, Lord Taranis, knight of the order and bearer of the element of pride.
+To his astonishment, he landed precisely where he had been standing moments earlier, staring out at the valley.
 
-Badwhiz, unable to express the joy of having completed his search, was still breathless and speechless.
+"What...? How...?" Badwhiz stammered, his heart pounding furiously, unable to comprehend what had just occurred.
 
-"Don't make that face, boy. The effort will be worth it. Imagine the wind as if it were your partner in a dance. Let it guide you at first and then take it by your side, reel it in towards you... let it adapt to your rhythm..." Taranis continued speaking as he sinuously moved his limbs and tail. He seemed to be in very good spirits.
+"Kid, you need more practice with your flying. Gliding is fine, but you can do so much more with those wings."
 
-"Haaa... Lord Taranis..., Lord Balor summons you... to the war room immediately...," Badwhiz finally responded, struggling to breathe.
+The voice that echoed behind him was unmistakable. Badwhiz turned immediately, coming face-to-face with an imposing figure: a creature that appeared to be a fusion of bull and serpent. He was unclothed, but this did nothing to diminish his authority or presence. In fact, the moonlight, combined with the tattered bandages adorning parts of his body, only heightened the intimidating shadow of the warrior.
 
-// -------------
+Standing before Badwhiz was Lord Taranis, Knight of Order and bearer of the Element of Pride.
 
-Walking through one of the secret corridors within Tartarus...
+Although relieved to have found the one he had been searching for, Badwhiz was too stunned to express his joy. He was still breathless and speechless from his unexpected landing.
 
-Badwhiz, accompanied by the newly located Taranis, was heading towards the war room.
+"Don't give me that look, kid. The effort is worth it. Imagine the wind as your partner in a dance. Let it guide you at first, then pull it toward you... make it move to your rhythm," Taranis said, his limbs and long tail moving with an almost hypnotic grace. His casual tone contrasted with the young pony's seriousness, but it hinted at the good-natured humor he often displayed.
 
-Taranis, already clad in his warrior armor, flexed his arms casually. Although he still felt some tension in his elbows, he didn't pay it much mind. Training with Danu had been as unproductive as ever. He hadn't wanted to participate this time, but Mannah had insisted heavily, and Balor had ultimately convinced him to do so. Although Mannah had fervently asked him to treat the encounter as a real duel, Taranis couldn't bring himself to do so. Training wasn't the same as fighting on the battlefield. Just as reading a recipe for a dish wasn't the same as preparing it in the kitchen.
+"Haaa... Lord Taranis... Lord Balor requests your presence... in the war room immediately..." Badwhiz finally managed to say, still gasping for air.
 
-This last thought sparked an idea in him.
+[---]
 
-"Hey, kid! Are you feeling tired? How about before we go to Balor, we take a moment to visit the kitchen? I think Morrigan still has some soul-vanilla fritters in the pantry..."
+Walking through one of the secret passages within Tartarus...
 
-"Hee! No, no! Thank you very much for your offer, Lord Taranis, but I don't think it's the right time to do something like that. Lord Balor is very urgent for you to join the others as soon as possible," Badwhiz responded immediately, visibly fatigued by how late it was.
+Badwhiz, accompanied by the newly located Taranis, made his way toward the war room.
 
-"Haha! How serious! I like it, but you should relax a little more. So, how about we go to the showers first?"
+Taranis, now clad in his imposing warrior armor, flexed his muscular arms as he walked with apparent ease. Though he felt some tension in his elbows, he paid it no mind. Training with Danu had been as fruitless as ever. He hadn't wanted to spar this time, but Mannah had insisted so vehemently that he finally relented. Despite Mannah’s repeated pleas to treat the duel as a real fight, Taranis couldn’t take it seriously. To him, training was nothing like battling on the field, much like reading a recipe was not the same as preparing the dish in the kitchen.
 
-"Please, don't continue with your offers, Lord Taranis. Remember that you're a knight and must also follow orders."
+This last thought sparked an idea in his mind.
 
-"Are you telling me I'm not fulfilling my duties?" Taranis stopped with a look of anger.
+"Hey, kid! Feeling tired? What do you say we stop by the kitchen before seeing Balor? I think Morrigan still has some soul-vanilla fritters in the pantry..."
 
-"No! I didn't mean that! I'm sorry, I didn't mean to offend you!" Badwhiz responded immediately, bowing before Taranis seeking his forgiveness.
+“Ah! N-no, no! Thank you for the offer, Lord Taranis, but I don’t think this is the right moment for something like that. Lord Balor is expecting us to join the others as soon as possible,” Badwhiz replied quickly, his tone blending respect with the evident fatigue of the late hour.
 
-Taranis, for his part, dispelled his angry look as quickly as it appeared. He was just playing with Badwhiz; that colt amused him greatly.
+"Ha! So serious! I like that, but you should loosen up a bit more. Well, what if we stop by the showers first?"
 
-"Haha! You really resemble Danu a lot, kid," Taranis laughed heartily.
+“Please, no more offers, Lord Taranis. Remember that as a knight, you have an obligation to carry out orders.”
 
-"I don't think I resemble the great feudal lord much," Badwhiz responded hesitantly, realizing Taranis's game.
+Taranis stopped abruptly, his expression shifting to a stern, almost menacing glare.
 
-"Ah, right, not like him now. He wasn't always the great feudal lord of Cunabula. So serious and inflexible. I knew him when he was your age. He didn't act much differently from you back then. Those were good times..." Taranis continued laughing, looking up at the ceiling.
+“Are you saying I don’t fulfill my duties?”
 
-Badwhiz looked puzzled at Taranis's nostalgic gaze. He didn't know how to take his master's words; it was really difficult for him to imagine Danu being young, even resembling him...
+Badwhiz paled, stumbling back a step as his voice turned nervous.
 
-Lost in his thoughts, Badwhiz was abruptly snapped out of his reverie by a powerful voice.
+“No! No, I didn’t mean that! I apologize, Lord Taranis! I didn’t mean to offend!”
 
-"Hey! Stop daydreaming! Let's go to the war room at once," Taranis said to the colt. With a flick of his tail, he created a gust of wind that wrapped around his body and shot down the hallway, leaving a surprised Badwhiz behind.
+As the young pony bowed deeply in search of forgiveness, Taranis let out a hearty laugh. The severity in his face disappeared as quickly as it had come.
 
-Alarmed at the thought of being seen as negligent if he couldn't keep up with Taranis, Badwhiz spread his wings and also flew down the hallway, trying to catch up with the knight of the order. After turning a couple of corners and nearly breaking his neck three times, he finally, exhausted, caught up with Taranis in front of the war room doors. The knight was waiting for him with an arrogant posture.
+"Ha! Relax, kid. I’m just messing with you. You’re funny, you know that?"
 
-"I win. Do I have to inform the rest of my comrades about this?" Taranis asked with a mocking smile.
+Badwhiz looked up, still confused, but he began to sense the playful tone of his companion.
 
-"Please, no," responded the sweaty and somewhat pale Badwhiz.
+“You really remind me of Danu, kid,” Taranis added with a broad grin.
 
-"Haha," Taranis laughed again. However, his laughter was interrupted when the war room door swung open, revealing the silhouette of a dragon-like creature.
+"I don’t think I’m anything like the great feudal lord, Lord Taranis," Badwhiz responded shyly, suspecting his master was teasing him again.
 
-Balor had a cold look, as usual, but also exuded palpable tension. Taranis immediately went on guard.
+“Ah, not as he is now. But he wasn’t always the great feudal lord of Cunabula, all serious and rigid... I knew him when he was your age. Believe me, he wasn’t so different from you back then. Those were good times...” Taranis said, sighing as he gazed up at the ceiling.
 
-"You're late, Taranis, but I'm reassured to see you're here," greeted Balor in a unsettling tone.
+Badwhiz watched him curiously. Taranis’s words filled him with intrigue. It was hard to imagine someone as imposing as Danu (the leader of the Knights of Order) being young... and similar to him?
 
-"I apologize, Balor. I needed some fresh air after my training with his excellency," Taranis replied.
+Lost in thought, Badwhiz barely noticed the shift in the atmosphere until a booming voice abruptly yanked him from his reverie.
 
-"It's fine, please, come in," said Balor, opening the war room door wider. Inside the room, darkness prevailed, only illuminated by the ornamental candles on the meeting table and the faint ceiling lights.
+“Hey! Stop daydreaming! Let’s get to the war room already,” Taranis barked at the colt. With a flick of his tail, he summoned a gust of wind that enveloped him, propelling him at high speed down the corridor, leaving a bewildered Badwhiz behind.
 
-Taranis, with his sharp eyesight able to see in the dark, noticed the presence of the other comrades in the dark room. However, his gaze shifted towards Balor, as if asking him what this tension meant.
+Panicked at the thought of being accused of tardiness if he didn’t keep up, Badwhiz hastily unfurled his wings and took off after Taranis. Navigating the hallway, rounding corners clumsily, and narrowly dodging columns (he came perilously close to slamming into the walls at least three times), he finally reached Taranis, panting and heart pounding, in front of the imposing doors of the war room.
 
-Balor noticed his companion's gaze but didn't react. Instead, he turned his attention to Badwhiz.
+Taranis waited with arms crossed, his stance radiating arrogance.
 
-"Boy, I need you to go to the pantry and bring some drinks for us, as well as some snacks. And also... take a shower beforehand. You have 30 minutes," Balor ordered Badwhiz, who was still sweating.
+“I won. Do you think I should inform the others about this ‘performance’?” he asked, a teasing smile on his lips.
 
-"Yes, right away!" the pony responded affirmatively, but before leaving, he couldn't help but look worriedly at his master, who entered the war room with a tense expression on his face.
+“Please, don’t,” Badwhiz replied, breathless and slightly pale.
 
-// -------------
+“Ha! Ha! Ha!” Taranis laughed, visibly amused. However, his laughter stopped short as the war room doors creaked open. In the doorway stood a tall, menacing figure, silhouetted like a dragon.
 
-A shorter time than indicated had passed, and Badwhiz had bathed, prepared the drinks, and arranged the snacks on a silver tray. Now he stood once again in front of the war room doors.
+Balor, with his usual cold gaze, exuded an intense presence that seemed to fill the air. The atmosphere grew heavy in an instant. Always vigilant, Taranis adjusted his posture, standing at attention.
 
-Before he could even touch the door, it swung open on its own, inviting him to enter. The interior remained shrouded in darkness, so Badwhiz used the light from his armor horn to cautiously proceed.
+“You’re late, Taranis. But I’m relieved you’re here at last,” Balor said in a low, deliberate tone.
 
-Once inside, he felt the intense tension permeating the room. Around a circular table were six seats, facing a circular mirror that projected images, illuminating the room. All the Knights of the Order were present, except for Danu and Taranis. This caught Badwhiz's attention, but he preferred not to ask questions and proceeded to distribute the drinks among those present. None of them spoke to him or took the drinks directly, so he simply left them on the table. The unsettling silence that had taken hold of the room felt strange to him, very different from the knights' previous gatherings.
+“My apologies, Balor. I needed to clear my head after training with His Excellency,” Taranis replied, bowing his head slightly.
 
-Everyone was watching expectantly the images reflected in the circular mirror across the table.
+“It’s fine. Come in,” Balor said, pushing the doors open and gesturing for Taranis to enter.
 
-After finishing distributing the drinks and leaving the tray of snacks aside, Badwhiz positioned himself next to Balor's chair, awaiting the next orders.
+Inside, the war room was shrouded in shadows, illuminated only by a cluster of ornate candles on the meeting table and dim lights hanging from the ceiling. Despite the darkness, Taranis’s trained eyes could make out the silhouettes of several comrades already seated. However, something about the atmosphere felt off.
 
-"Do you really believe your brother will come to power?" a clear, firm voice broke the silence. It was Morrigan addressing Mannah, with a slight mocking tone in her words.
+With a serious expression, Taranis shot an inquisitive look at Balor, as if trying to discern the source of the underlying tension. Balor, however, remained impassive and turned his attention to Badwhiz.
 
-"He's the most suitable given the current crisis. The council and the temple won't be able to refuse," Mannah replied, not taking his eyes off the mirror.
+“Kid,” Balor said in a firm but neutral tone, “go to the pantry and bring us drinks, along with some snacks. And take a shower before you return. You have 30 minutes, no more.”
 
-"I'm not so sure... The king still has many supporters on his side. Plus, the 'Great Primate' has the support of the Grand Patriarch. The 'Great Primate' would be..." Morrigan couldn't finish her sentence before Balor interrupted her, taking a sip of his drink.
+“Yes, right away!” Badwhiz responded firmly, snapping to attention instinctively. However, before leaving, he cast a furtive glance at his master. The tension on Taranis’s face, as he entered the war room with a deliberately brisk pace, did not escape him.
 
-"The worst option at this time," Balor completed Morrigan's words. Then, staring directly at Mannah, he continued: "But that's getting ahead of ourselves. Please, Morrigan, wait until everything is over to draw conclusions."
+With a restless heart, Badwhiz turned and hurried away, leaving behind his master and Balor, engulfed in a shadowy room charged with uncertainty.
 
-Morrigan shot a sharp look at Balor, but he completely ignored her.
+[---]
 
-"Pay attention, it's about to begin," Ceridwen ordered her companions. The images in the mirror began to move, and Badwhiz, seeing the mirror for the first time, began to understand that the images were a projection of what was happening elsewhere, although he couldn't identify where.
+The exact amount of time had passed. Badwhiz had showered, prepared the drinks, and arranged the snacks on a silver tray. Now, with the tray balanced on his back, he found himself once again before the doors of the war room.
 
-Then, as if an audio were activated, sounds began to emanate from the mirror, which until then had remained silent.
+Before he could knock, the doors opened on their own, as if inviting him inside. The interior was still shrouded in shadows, so Badwhiz activated the light on his armor's horn, casting a gentle glow to guide his cautious steps.
 
-The mirror whispered for a moment, as if trying to tune in: "Bzzzz... Council of Cunabula, temple members... bzzz," before the images fully settled. It showed a large amphitheater, with white and gold seats surrounding a silver podium. The atmosphere was charged with anticipation; all the creatures resembling the Knights of the Order were seated, awaiting the next speaker.
+As he crossed the threshold, the tension in the room hit him like an icy gust. Around a circular table, six seats were occupied by the Knights of Order, all except for Danu and Taranis. Before them, a circular mirror projected images that dimly illuminated the space. Despite the curiosity this sight stirred in Badwhiz, he refrained from asking questions and began discreetly distributing the drinks.
 
-Infected by the tension in the room, Badwhiz sharpened his gaze and his hearing as much as he could.
+The knights remained silent, not taking the drinks directly. Badwhiz simply placed the cups on the table. Something about the unnerving stillness of the room unsettled him; he had never experienced such a charged atmosphere during a meeting.
 
-After a standing ovation and a long silence, a figure cloaked in black emerged from one side of the podium and swiftly moved to the center of the amphitheater, assuming the position of a speaker. The mysterious entity seemed to scan everyone present with its gaze, and a shiver ran down Badwhiz's spine when their eyes met for an instant.
+All present had their eyes fixed on the images reflected in the mirror.
 
-Instinctively, Badwhiz averted his gaze from the mirror, feeling an inexplicable fear. How could that being have seen him? Confused by the unsettling sensation, he slowly returned his gaze to the mirror.
+Once he finished distributing the drinks and set the tray of snacks aside, Badwhiz positioned himself next to Balor’s chair, awaiting further instructions.
 
-The mysterious entity was still watching him. It couldn't be, could it? Perhaps it was just looking directly at the other side of the mirror, where Badwhiz was. That was the explanation he tried to give himself to calm his nerves.
+“Do you truly believe your brother will ascend to power?” Morrigan broke the silence, her voice sharp and laced with subtle mockery as she cast a piercing glance at Mannah.
 
-But then, for a moment, despite the slightly blurry image in the mirror, Badwhiz noticed that the being was smiling.
+“He is the most suitable candidate given the current crisis. Neither the council nor the temple will oppose him,” Mannah replied without taking his eyes off the mirror.
 
-Suddenly, arm-like limbs emerged from the mysterious entity, which removed its hood, revealing its true form.
+“I wouldn’t be so sure,” Morrigan countered, tilting her head. “The king still has many supporters, and the ‘Grand Primate’ has the backing of the Great Patriarch. If that’s the case, then the ‘Grand Primate’ would be...”
 
-Badwhiz held his breath, terrified by what his eyes beheld. Several of the other Knights of the Order were also taken aback, and Balor, watching closely, clenched his claws in fury.
+Morrigan’s words were abruptly cut off. Balor interrupted her calmly after taking a sip of his drink.
 
-The mysterious entity spoke: "GREETINGS, DENIZENS OF CUNABULA. FEAR NOT, I HAVE COME TO YOU WITH A MESSAGE OF PEACE." Although the words might sound friendly to many, they were mere dust when uttered by that being, which could only be described as monstrous.
+“The worst option right now,” he concluded in a dry tone. Without looking away from Mannah, he added, “But that’s jumping ahead. Morrigan, wait until this is over before drawing conclusions.”
 
-In a corner of the war room, Taranis, still reeling from the news that the King had abdicated that night, gazed at the noble flag of Cunabula hanging on the wall. Sensing the commotion of his comrades, he turned his gaze to the transmission of the magical mirror in the war room. A deep hatred reflected on his face as he beheld the true form of the one who had violated the order of the world he so loved.
+Morrigan shot a defiant look at Balor, but he remained impassive, ignoring her.
 
-"Damned midnight emissary," Taranis muttered with a tone laden with resentment before taking a seat alongside his comrades in the war room. Though his words were barely a whisper, they resonated in the tense silence of the room, and none present dared to contradict him, for they all shared the same sentiment.
+“Pay attention. It’s about to begin,” Ceridwen commanded, bringing the room to silence.
+
+The images in the mirror began to move, and Badwhiz, who had never seen such a device before, started to realize they were projections of a distant place, though he couldn’t identify where.
+
+The mirror emitted a faint hum, as if trying to tune in: “Bzzz... Council of Cunabula... members of the temple... bzzz.” Finally, the images stabilized, revealing a vast amphitheater. Its white and gold seats encircled an imposing silver podium. The atmosphere was charged with anticipation, and all the creatures present—resembling the Knights of Order—watched in silence, awaiting the next speaker.
+
+Badwhiz, caught up in the tension, sharpened his senses.
+
+After a round of applause and a moment of hushed silence, a figure cloaked in black emerged from the shadows and swiftly approached the center of the podium. There, it stopped and scanned the audience with a penetrating gaze.
+
+When the glowing eyes from within the dark hood met Badwhiz’s through the mirror, a shiver ran down the young pony’s spine almost immediately. Instinctively, he looked away, gripped by an inexplicable fear. How could that being have seen him? He tried to calm himself, reasoning that it was merely looking toward the other side of the mirror, but the unease lingered.
+
+Cautiously, Badwhiz glanced back. To his horror, the figure was still staring at him.
+
+For a moment, through the blurry haze of the projection, he thought he saw the figure crack a smile.
+
+Then, as if the mirror itself came to life, limb-like arms emerged from the black cloak. The entity pulled back its hood, revealing its true form.
+
+Badwhiz held his breath. The creature was monstrous, and the air in the war room grew even heavier. Even the Knights of Order, accustomed to all manner of horrors, seemed taken aback.
+
+Balor gripped the edge of the table with his claws, his gaze locked on the figure.
+
+“GREETINGS, INHABITANTS OF CUNABULA!” the entity proclaimed in a thunderous voice. “FEAR NOT, I COME TO YOU WITH A MESSAGE OF PEACE.”
+
+Though its words might have sounded conciliatory, from the mouth of such a creature, they felt as empty as ashes on the wind.
+
+In a corner of the room, Taranis observed in silence. Still reeling from the news that the King had abdicated that very night, his eyes lingered on the noble banner of Cunabula hanging on the wall. As the tension among his companions rose, he turned to the mirror.
+
+Upon recognizing the figure projected within, a look of pure hatred crossed his face.
+
+“Damned Midnight Emissary,” he muttered bitterly.
+
+Though his words were barely a whisper, they resonated in the tension-filled room. No one dared contradict him, for all shared the same sentiment: a simmering hatred for the being that had desecrated the order they held so dear.
