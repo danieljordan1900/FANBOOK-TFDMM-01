@@ -2,7 +2,7 @@ El Tártaro, poco después de la llegada de la medianoche...
 
 Badwhiz Starheart corría apresuradamente por los deteriorados pasillos que conducían a una de las torres de vigilancia de la gran prisión. Había recibido la orden urgente de Balor de reunir a todos los Caballeros del Orden en la sala de guerra. Consciente de la importancia de la tarea que llevaba a sus espaldas, no se había detenido ni un instante para tomar aliento, completamente decidido a cumplir cuanto antes con aquella misión.
 
-Hasta ese momento, localizar a Morrigan, Ceridwen y Mannah había resultado sencillo. Sin embargo, encontrar a Taranis se estaba convirtiendo en un desafío frustrante. Este último, tras haber tenido un duelo contra Danu horas atrás, no se encontraba en la sala médica donde lo había dejado ni en sus aposentos, donde solía descansar.
+Hasta ese momento, localizar a Morrigan, Ceridwen y Mannah había resultado sencillo. Sin embargo, encontrar a Taranis se estaba convirtiendo en un desafío frustrante. Este último, tras haber tenido un duelo contra Danu horas atrás, no se encontraba en la sala médica donde lo había dejado, ni en sus aposentos, donde solía descansar.
 
 Sin más pistas, Badwhiz había consultado con la misma Balor, quien solo le indicó que Taranis estaba cerca de una de las torres exteriores.
 
@@ -170,7 +170,7 @@ Por un instante, entre la neblina borrosa de la proyección, creyó ver cómo la
 
 Entonces, como si el espejo cobrara vida, extremidades similares a brazos emergieron de la capa negra. La entidad se quitó la capucha, revelando su verdadera forma.
 
-Badwhiz contuvo el aliento. La criatura era monstruosa, y el aire en la sala de guerra se volvió aún más pesado. Incluso los Caballeros del Orden, acostumbrados a todo tipo de horrores, parecían sorprendidos.
+Badwhiz contuvo el aliento. La criatura era monstruosa a sus ojos, y el aire en la sala de guerra se volvió aún más pesado. Incluso los Caballeros del Orden, acostumbrados a todo tipo de horrores, parecían sorprendidos.
 
 Balor apretó sus garras contra el borde de la mesa, su mirada fija en la figura.
 
@@ -184,4 +184,4 @@ Al reconocer la figura que allí se proyectaba, una expresión de odio puro cruz
 
 "Maldito emisario de medianoche", murmuró con rencor.
 
-Aunque sus palabras fueron apenas un susurro, resonaron en la sala cargada de tensión. Nadie se atrevió a contradecirlo, pues todos compartían el mismo sentimiento: un odio latente hacia aquel ser que había profanado el orden que tanto amaban.
+Aunque sus palabras fueron apenas un susurro, resonaron en la sala cargada de tensión. Nadie se atrevió a contradecirlo, pues todos compartían el mismo sentimiento contra aquel ser que había profanado el orden que tanto amaban.
