@@ -150,7 +150,7 @@ El poni levantó la cabeza de manera mecánica, como si despertara de un trance.
 
 El destino de Equestria dependía de lo que estaba por suceder. No, no solo de Equestria, sino del mundo entero.
 
-Una espesa niebla empezó a descender desde lo alto de la gran nube que flotaba sobre ellas. Truenos y relámpagos rasgaron el cielo, acompañados por un fuerte viento que azotaba la llanura con creciente intensidad.
+Una espesa niebla comenzó a descender desde lo alto de la gran nube que flotaba sobre ellas. Truenos y relámpagos rasgaron el cielo, acompañados por un fuerte viento que azotaba la llanura con creciente intensidad.
 
 Las ponis, alertadas por estas señales, se reunieron instintivamente alrededor de Twilight, listas para enfrentar cualquier amenaza que pudiera presentarse. Sin embargo, una brillante luz captó su atención, distrayéndolas por completo.
 
@@ -158,24 +158,24 @@ En el lugar donde se encontraba el joven poni de armadura, un halo de luz dorada
 
 "¡GRAN MURO DE LOS LAMENTOS!" exclamó con una voz potente que resonó como un trueno.
 
-De su cuerpo se desprendió una luz de arcoíris que ascendió hacia el cielo, atravesando las nubes como una lanza brillante. En cuestión de segundos, la luz pareció chocar contra un techo invisible y sólido en lo alto. Entonces, comenzó a expandirse, tomando la forma de una gigantesca cúpula que se precipitaba hacia el suelo con rapidez.
+De su cuerpo se desprendió entonces una luz de arcoíris que ascendió hacia el cielo, atravesando las nubes como una lanza brillante. En cuestión de segundos, la luz alcanzó una prodigiosa altura hasta que finalmente pareció chocar contra un techo invisible y sólido en lo alto. Entonces, comenzó a expandirse, tomando la forma de una gigantesca cúpula que se precipitaba hacia el suelo con suma rapidez.
 
-"¡ES UNA BARRERA!", gritó Twilight, sus ojos ampliados por la urgencia.
+"¡ES UNA BARRERA!", gritó Twilight. El pánico se apoderó de ella al darse cuenta de las intenciones de su enemigo y del escaso tiempo que tenían para escapar de la implacable trampa que había lanzado. Convencida del peligroso escenario en el que quedarían atrapadas si la cúpula las alcanzaba, lanzó inmediatamente un hechizo de teletransportación. Para su consternación, este no funcionó en absoluto.
 
-El pánico se apoderó de ella al darse cuenta de que no tenían mucho tiempo. Si no lograban salir antes de que la cúpula los encerrara, no habría otra oportunidad. Twilight lanzó un hechizo de teletransportación, pero, para su consternación, no ocurrió nada. Su magia se desvaneció en el aire como si algo la hubiera neutralizado.
+Su magia se desvaneció en el aire como si algo la hubiera neutralizado.
 
-Miró al poni que flotaba en la distancia, con la atención fija en la gema rosa que brillaba en su pecho. Entonces, un recuerdo fugaz se formó en su mente, y todo encajó. La gema era la auténtica Starheart, un artefacto cuyo poder no debia ser subestimado de ninguna forma.
+Miró al poni que flotaba en la distancia, con la atención fija en la gema rosa que brillaba en su pecho. Entonces, un recuerdo fugaz cruzó su mente, y todo encajó. La gema era la auténtica Starheart, un artefacto cuyo misterioso poder no debía ser subestimado bajo ninguna circunstancia.
 
-"¡Rápido! Fluttershy, Dash, lleven a las demás. ¡Debemos salir de aquí!" ordenó Twilight con voz firme, mientras alzaba vuelo y cargaba a Rarity consigo.
+"¡Rápido! Fluttershy, Dash, lleven a las demás. ¡Debemos salir de aquí! ¡Ahora!", ordenó Twilight con voz firme mientras alzaba vuelo y cargaba a Rarity consigo.
 
 Sin dudarlo, Rainbow Dash y Fluttershy tomaron a Applejack y Pinkie Pie, cada una cargando a una poni, y comenzaron a volar en dirección al horizonte, buscando escapar por el punto más cercano donde la barrera aún no se había cerrado por completo.
 
 Badwhiz, observando sus movimientos, esbozó una sonrisa llena de satisfacción.
 
-"¡QUÉ LAMENTABLE, PRINCESA!" rugió con un tono de burla. "¡TU COBARDÍA ES TAN GRANDE COMO TU IGNORANCIA!".
+"¡QUÉ LAMENTABLE, PRINCESA!" rugió con un tono de burla. "¡TU COBARDÍA ES TAN GRANDE COMO TU IGNORANCIA!"
 
-Una sombra gigante cayó del cielo delante de las ponis que huían. Una enorme bestia con forma de dragón apareció de la nada ante ellas, cortando su ruta de escape. De las fauces de la criatura emanó una luz sulfúrica que apuntaba directamente hacia ellas.
+Una sombra gigantesca cayó del cielo delante de las ponis que huían. Una enorme bestia con forma de dragón apareció de la nada, bloqueando su ruta de escape. De las fauces de la criatura emanó una luz sulfúrica que apuntaba directamente hacia ellas.
 
-Twilight, que se había alejado lo más posible de Badwhiz, lanzó el hechizo de teletransportación que había estado preparando. Un segundo después, desaparecieron en un resplandor de magia que fue engullido por un torrente de humo tóxico y fuego.
+Twilight, que se había alejado lo más posible de Badwhiz, lanzó el hechizo de teletransportación que había estado preparando. Un segundo después, desaparecieron en un resplandor de magia, justo antes de ser alcanzadas por un torrente de humo tóxico y fuego.
 
-Badwhiz, quien observó esto último, sonrió aún más. La primera fase se habia completado con exito. Todo iba de acuerdo al plan.
+Badwhiz, al observar esto último, sonrió aún más. La primera fase se había completado con éxito. Todo iba de acuerdo al plan.
