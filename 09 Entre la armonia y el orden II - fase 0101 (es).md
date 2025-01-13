@@ -146,7 +146,7 @@ Un clic resonó en la mente de Twilight. ¿Cunabula? ¿Podrían realmente existi
 
 Un fuerte clamor de graznidos rompió sus pensamientos. Los gallo-dragones que habían seguido la marcha de los pasajeros anunciaban que todos estaban lo suficientemente lejos.
 
-El poni levantó la cabeza de manera mecánica, como si despertara de un trance. Sus ojos brillaron con una determinación implacable. Este era el momento que había estado esperando durante las últimas doce horas.
+El poni levantó la cabeza de manera mecánica, como si despertara de un trance. Sus ojos brillaron con una determinación salvaje. Este era el momento que había estado esperando durante las últimas doce horas.
 
 El destino de Equestria dependía de lo que estaba por suceder. No, no solo de Equestria, sino del mundo entero.
 
