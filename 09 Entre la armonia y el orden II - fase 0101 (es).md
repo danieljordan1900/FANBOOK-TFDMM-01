@@ -164,7 +164,7 @@ De su cuerpo se desprendió entonces una luz de arcoíris que ascendió hacia el
 
 Su magia se desvaneció en el aire como si algo la hubiera neutralizado.
 
-Miró al poni que flotaba en la distancia, con la atención fija en la gema rosa que brillaba en su pecho. Entonces, un recuerdo fugaz cruzó su mente, y todo encajó. La gema era la auténtica Starheart, un artefacto cuyo misterioso poder no debía ser subestimado bajo ninguna circunstancia.
+Miró al poni que flotaba desafiante en medio de la tormenta, con la atención fija en la gema rosa que brillaba en su pecho. Entonces, un recuerdo fugaz cruzó su mente, y todo encajó. La gema era la auténtica Starheart, un artefacto cuyo misterioso poder no debía ser subestimado bajo ninguna circunstancia.
 
 "¡Rápido! Fluttershy, Dash, lleven a las demás. ¡Debemos salir de aquí! ¡Ahora!", ordenó Twilight con voz firme mientras alzaba vuelo y cargaba a Rarity consigo.
 
