@@ -214,4 +214,4 @@ Con esa última preocupación flotando en el aire de sus pensamientos, Rainbow D
 
 "¿De qué se trata?" Twilight ya podía imaginar que no era algo bueno al ver la expresión alegre de su amiga.
 
-"Creo que finalmente tendremos que luchar contra alguien invisible...", dijo Rainbow Dash con una sonrisa desafiante mientras chocaba sus cascos delanteros llena de emoción.
+"Creo que finalmente tendremos que luchar contra alguien invisible...", exclamó Rainbow Dash con una sonrisa desafiante mientras chocaba sus cascos delanteros llena de emoción.
