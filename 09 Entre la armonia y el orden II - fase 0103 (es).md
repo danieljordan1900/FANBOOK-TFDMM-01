@@ -116,27 +116,27 @@ Avanzó hasta quedar justo frente a él. Bajó la cabeza, inclinándose hasta qu
 
 "No me importa. Eso no cambiará..."
 
-"Sí, sí, terminemos con esto", interrumpió Rainbow Dash. Con un aleteo, se elevó y tomó uno de los extremos de la cuerda con la que había amarrado a Badwhiz y comenzó a jalarlo entre los arbustos.
+"Sí, sí, terminemos con esto", interrumpió Rainbow Dash. Con un aleteo, se elevó y tomó uno de los extremos de la cuerda con la que había amarrado a Badwhiz, comenzando a jalarlo entre los arbustos.
 
-Badwhiz empezó a forcejear para liberarse de las ataduras, pero sus esfuerzos resultaron inútiles. Las cuerdas anudadas con un sólido triple nudo Apple no cedieron en absoluto. Después de ser arrastrado por varios metros por Rainbow Dash, llegaron a la cima rocosa de la colina.
+Badwhiz empezó a forcejear para liberarse de las ataduras, pero sus esfuerzos resultaron inútiles. Las cuerdas anudadas con un sólido triple nudo Apple no cedieron en absoluto. Después de ser arrastrado varios metros por Rainbow Dash, llegaron a la cima rocosa de la colina.
 
 "¿Sabes? Estoy algo decepcionada contigo. Para ser el séptimo caballero de los tontos, resultaste ser todo un chico espectáculo. ¿O es porque tus otros amigos están afuera liberando a esa banda de pseudo-caballeros de su encierro?", preguntó la pegaso, pero Badwhiz solo le respondió con una mirada fría. "Bueno, como sea. Estoy segura de que disfrutarás de una larga charla con Pinkie Pie cuando hayamos terminado con esto".
 
 "Aún no ha terminado. Ustedes no podrán derrotar al poderoso Gallo Dragón Titanicus", respondió Badwhiz desafiante.
 
-"Ah, cierto... el pájaro gigante ese. Qué tal si echas una mirada por acá, niño", dijo Dash jalando a Badwhiz para que viera junto a ella el horizonte donde estaba el tren y la terrible bestia.
+"Ah, cierto... el pájaro gigante ese. ¿Qué tal si echas una mirada por acá, niño?", dijo Dash, jalando a Badwhiz para que viera junto a ella el horizonte donde estaba el tren y la terrible bestia.
 
 Lo siguiente que vio Badwhiz fue algo que le resultó tan difícil de creer que pensó que estaba soñando.
 
-A la distancia, el Gallo Dragón Titanicus atacaba con un rayo de fuego a lo que parecía ser una pegaso púrpura volando alrededor suyo; a sus lados, otros ponis lo atacaban lanzándole rocas y otros proyectiles. Aquella, sin duda, era la princesa poni y sus aliadas enfrentando a la bestia. Como era de esperarse, sus esfuerzos no hacían ningún daño al poderoso Gallo Dragón, que no dejaba de escupir fuego a su alrededor y lanzaba ráfagas de viento desde sus alas. Sin embargo, algo no andaba bien. Poco a poco, los feroces movimientos de la gran criatura fueron haciéndose más y más lentos. Casi ya paralizándose, el Gallo Dragón Titanicus buscó desprenderse de un extraño collar rosa-amarillo en su cuello. Pero fue en vano. El cuerpo del Gallo Dragón se tambaleó, dando un último aliento. Como un árbol cortado, cayó de uno de sus lados, enterrando el pico en la calcinada pastura de la llanura.
+A la distancia, el Gallo Dragón Titanicus atacaba con un rayo de fuego a lo que parecía ser una pegaso púrpura volando alrededor suyo; a sus lados, otros ponis lo atacaban lanzándole rocas y otros proyectiles. Aquella, sin duda, era la princesa poni y sus aliadas enfrentando a la bestia. Como era de esperarse, sus esfuerzos no hacían ningún daño al poderoso Gallo Dragón, que no dejaba de escupir fuego a su alrededor y lanzar ráfagas de viento desde sus alas. Sin embargo, algo no andaba bien. Poco a poco, los feroces movimientos de la gran criatura fueron haciéndose más y más lentos. Casi paralizándose, el Gallo Dragón Titanicus intentó desprenderse de un extraño collar rosa-amarillo en su cuello, pero fue en vano. El cuerpo del Gallo Dragón se tambaleó, dando un último aliento. Como un árbol cortado, cayó de lado, enterrando el pico en la calcinada pastura de la llanura.
 
-Badwhiz estaba estupefacto viendo el resultado final de aquel corto combate. A su lado, Rainbow Dash estaba rascándose la cabeza mas extrañada que sorprendida.
+Badwhiz estaba estupefacto viendo el resultado final de aquel corto combate. A su lado, Rainbow Dash se rascaba la cabeza, más extrañada que sorprendida.
 
 "Vaya. ¿Su barbilla era su punto débil? ¿En serio?", dijo Rainbow Dash. Luego se volteó hacia Badwhiz, que aún seguía atónito. "No me preguntes qué pasó. Ni yo lo entiendo. Mejor... vayamos de una vez con las chicas".
 
 La pegaso arcoíris acomodó la gema y la diadema de Badwhiz en algún lugar dentro de su melena y se dispuso a partir.
 
-//-----------------------
+[---]
 
 Varios minutos antes, en la madriguera...
 
