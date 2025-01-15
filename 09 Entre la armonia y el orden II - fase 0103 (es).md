@@ -140,37 +140,37 @@ La pegaso arcoíris acomodó la gema y la diadema de Badwhiz en algún lugar den
 
 Varios minutos antes, en la madriguera...
 
-"Espera... ¿dijiste invisible?" dijo Rarity, sorprendida.
+"¿Espera... dijiste invisible?" preguntó Rarity, sorprendida y ligeramente asustada.
 
-"Así es, estaba dando vueltas en círculos sobre nosotras desde hace un rato", respondió alegremente Rainbow Dash. La inquietud rondaba a los lados de la mesa de piedra.
+"Así es, estaba dando vueltas en círculos sobre nosotras desde hace un rato", respondió alegremente Rainbow Dash, incrementando el aire de inquietud que rondaba a los lados de la mesa de piedra.
 
 "Rainbow Dash, dijiste que estaba... ¿qué está haciendo ahora?" preguntó Twilight, intentando mantener la calma.
 
 "Viene para acá, por supuesto", respondió la pegaso con una frescura que casi parecía una provocación.
 
-Twilight estaba alarmada. Vainilla ya sabía dónde estaban, y ahora venía por ellas. Y ella aún no había explicado sobre el Gallo Dragón Titanicus ni sobre la posible identidad de Vainilla. En el pasado, Twilight habría estado en el suelo, teniendo un ataque de pánico. Y ciertamente, una parte de ella aún se sentía inclinada a hacer eso en ese momento. Sin embargo, aquellos tres años de constante estrés y tareas atrasadas hasta el final ya le habían curtido lo suficiente como para afrontar una situación así de complicada.
+Twilight estaba alarmada. Vainilla ya sabía dónde estaban, y ahora venía por ellas. Y ella aún no había explicado sobre el Gallo Dragón Titanicus ni sobre la posible identidad de Vainilla. Esto era malo. En el pasado, Twilight habría estado en el suelo teniendo un ataque de pánico. Y ciertamente, una parte de ella aún se sentía inclinada a hacer eso en ese momento. Sin embargo, aquellos tres años de constante estrés y tareas atrasadas hasta el final ya le habían curtido lo suficiente como para afrontar una situación así de complicada.
 
-Con un gran suspiro y haciendo un gran esfuerzo mental, Twilight cerró los ojos, despejó su mente y vislumbró los mejores escenarios que debía tomar, usando la poca información que habían obtenido hasta ese momento. Después de unos segundos, abrió los ojos, por fin divisando qué debía hacer.
+Con un gran suspiro y haciendo un esfuerzo mental, Twilight cerró los ojos, despejó su mente y vislumbró los mejores escenarios que debía tomar, usando la poca información que habían obtenido hasta ese momento. Después de unos segundos, abrió los ojos, por fin divisando qué debía hacer.
 
 Sin prestar atención a las miradas de sus amigas, Twilight se puso de pie y levantó una burbuja de magia protectora alrededor de ellas.
 
-"Este lugar ya no es seguro. Lo siento, Rarity, pero tendremos que dejarlo", dijo Twilight apenada a su amiga.
+"Este lugar ya no es seguro. Lo siento, Rarity, pero tendremos que dejarlo", dijo Twilight, apenada, a su amiga.
 
 "Está bien, Twilight. Solo espero que los conejos de la pradera puedan disfrutar de este hogar más de lo que lo hicimos nosotras", respondió Rarity con pesar.
 
 "¿Y esta burbuja?" preguntó Pinkie Pie, colocando su casco sobre las paredes de la barrera mágica.
 
-"Vainilla ya conoce nuestra posición y es muy probable que nos haya estado observando con magia desde el momento que llegamos aquí. Si no tomó acción antes es porque se mostraba cauteloso ante lo que podríamos hacer. Después de observarnos lo suficiente, debe estar seguro de que no somos una amenaza y ha decidido tomar la iniciativa. Esta barrera evitara que siga observandonos." Twilight explicó mientras su mirada se tornaba más seria.
+"Vainilla ya conoce nuestra posición y es muy probable que nos haya estado observando con magia desde el momento en que llegamos aquí. Si no tomó acción antes es porque se mostraba cauteloso ante lo que podríamos hacer. Después de observarnos lo suficiente, debe estar seguro de que no somos una amenaza y ha decidido tomar la iniciativa. Esta barrera evitará que siga observándonos", explicó Twilight mientras su mirada se tornaba más seria.
 
 "¿Así que ese Vainilla piensa que no somos una amenaza? Pues que siga pensando eso. Aquí le demostraremos que no somos unas ponis indefensas", dijo Applejack. Todas las demás ponis se pusieron de pie, envalentonadas por las palabras de su amiga, excepto Fluttershy, que se mantuvo algo indecisa en su asiento.
 
 "Estoy de acuerdo, Applejack, pero no será aquí donde se lo demostremos", dijo Twilight, manteniendo la calma mientras las miraba a todas.
 
-"¿En serio?" replicó Rainbow Dash que lucia algo descepcionada.
+"¿En serio?" replicó Rainbow Dash, que lucía algo decepcionada.
 
 "Así es, Rainbow Dash. Si peleamos aquí, caeremos en el escenario que debe haber preparado Vainilla. Ahora mismo debemos ir a un nuevo refugio y prepararnos."
 
-"¿Eso no es lo que ya hemos hecho?" preguntó Pinkie Pie asomando su cabeza detrás de Fluttershy.
+"¿Eso no es lo que ya hemos hecho?" preguntó Pinkie Pie, asomando su cabeza detrás de Fluttershy.
 
 "Sí, pero ahora ya tengo un plan", respondió Twilight con una sonrisa. Al ver la confianza de su amiga princesa, todas empezaron a tranquilizarse. "Sé cómo derrotar rápidamente al Gallo Dragon Titanicus y gracias a Rainbow Dash sabemos que Vainilla está viniendo hacia aquí, esta es una buena oportunidad para sorprenderlo por separado. Lo primero que debemos hacer es ir a un nuevo refugio. Usaré la teletransportación para eso, les explicaré el resto cuando lleguemos."
 
