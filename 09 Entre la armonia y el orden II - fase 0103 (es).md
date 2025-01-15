@@ -1,101 +1,118 @@
+Dentro de la gran barrera donde estaban encerradas Twilight y sus amigas, reinaba una pesada calma. Una inquietante tranquilidad solo interrumpida por el aletargado canto del Gallo Dragón Titanicus, la única criatura visible en medio de la vasta y desolada planicie.
 
-Dentro de la gran barrera donde estaban encerradas Twilight y sus amigas, reinaba una pesada calma. Aquella tranquilidad solo era interrumpida por el aletargado canto del Gallo Dragón Titanicus, la única criatura visible en todo el lugar. Sin embargo, en el cielo, una presencia invisible se movía lentamente sobre uno de los extremos del horizonte.
+No obstante, en uno de los extremos del horizonte, otra presencia se movía imperceptible bajo el blanco cielo de la barrera.
 
-Solo la mirada aguda de un auténtico aventurero podría notar los débiles cambios de luz causados por la sombra de aquella presencia. Poco a poco, como la brisa de un inexistente viento, la figura translúcida descendió cerca de una colina rodeada de arbustos.
+Apenas perceptible incluso para el ojo más entrenado, esta figura invisible alteraba débilmente la luz a su alrededor mientras planeaba con lentitud sobre la pradera.
 
-La figura continuó su camino hacia la colina. Ningún ruido de pasos o respiración se podía escuchar en su andar.
+Poco a poco, como una brisa de un viento inexistente, la figura translúcida descendió cerca de una colina rodeada de arbustos resecos y dispersos.
 
-Así de sigiloso se había vuelto Badwhiz Starheart, un joven poni terrestre en armadura de alicornio que había sido empujado por los giros de la vida hacia un extraño destino.
+Avanzó con pasos tan sutiles que ningún sonido delataba su presencia: ni el crujir de las hojas secas bajo sus cascos, ni el ritmo de su respiración.
 
-Con paso silente, Badwhiz se acercó a solo unos metros de la entrada de la madriguera de conejos donde Twilight y sus amigas se habían refugiado.
+Así de sigiloso se había vuelto Badwhiz Starheart, un joven poni terrestre cubierto por una armadura de alicornio, empujado por los giros de la vida hacia aquel extraño y oscuro destino.
 
-Observó confiado.
+Con movimientos silenciosos, se acercó a solo unos metros de la entrada de la madriguera de conejos donde Twilight y sus amigas se habían refugiado.
 
-Encontrar aquel lugar le había resultado sencillo. Lo había estado observando a distancia poco después de que la princesa y sus aliadas hubieran ascendido a esa colina. Y durante el tiempo restante, se había mantenido alerta, planeando invisible por los alrededores.
+Protegido por el mágico encantamiento que lo mantenía oculto del mundo, Badwhiz observó con confianza.
 
-Las órdenes iniciales que había recibido eran vigilar los movimientos de la princesa y sus aliadas. Sin embargo, sabía que esas órdenes podían cambiar en cualquier momento, y efectivamente eso había pasado. Ahora tenía la misión de ingresar a la base de operaciones de la princesa y averiguar qué podrían estar tramando junto con sus molestas amigas.
+Encontrar aquel lugar había sido sencillo. Desde el momento en que la princesa y sus aliadas ascendieron la colina, él las había estado vigilando desde la distancia. Durante ese tiempo, se mantuvo alerta, planeando invisible por los alrededores, como un águila acechando a su presa.
 
-"¡Qué yegua más problemática! ¿Cómo pudieron nombrarla princesa?" pensó Badwhiz molesto. Badwhiz detestaba a Twilight. Detestaba lo que estaba haciendo al reino que sus antepasados habían jurado proteger. A su juicio, Equestria siempre había sido un reino de ponis terrestres, pegasos y unicornios. Un reino que representaba el equilibrio entre tres razas distintas de ponis. Sin embargo, desde que esa yegua había asumido el reino, eso había empezado a cambiar. Criaturas de diferentes lugares del mundo empezaron a llegar y a coexistir entre los ponis, cambiando sus costumbres, sus ciudades, incluso sus fiestas. Poco a poco, la identidad de unión entre los ponis se iba erosionando y diluyéndose en el olvido.
+Las órdenes iniciales que había recibido eran claras: vigilar los movimientos de la princesa y sus aliadas. Sin embargo, sabía que esas instrucciones podían cambiar en cualquier momento, y eso fue precisamente lo que ocurrió. Ahora tenía una nueva misión: infiltrarse en la base de operaciones de la princesa y averiguar qué estaban tramando junto con sus molestas amigas.
 
-Dentro de un tiempo, nadie recordaría por qué estaban unidos en primer lugar, y entonces el terrible molino del conflicto se pondría en marcha.
+"¡Qué yegua más problemática! ¿Cómo pudieron nombrarla princesa?", pensó Badwhiz, sintiendo una ola de desdén.
 
-Y sin embargo, este era el menor de los pecados de esa princesa.
+Detestaba a Twilight. Detestaba lo que ella representaba y lo que estaba haciendo al reino que sus antepasados habían jurado proteger. Para él, Equestria siempre había sido un reino de ponis terrestres, pegasos y unicornios: un reino que representaba el equilibrio entre las tres razas. Pero desde que Twilight asumió el trono, todo eso había comenzado a cambiar.
 
-Lo que había hecho con los Árboles de la Armonía... lo que ocurriría después.
+Criaturas de tierras lejanas comenzaron a llegar, conviviendo con los ponis, transformando sus costumbres, ciudades y hasta sus celebraciones. Poco a poco, la identidad única de los ponis se iba erosionando, diluyéndose en una amalgama de culturas que, según él, acabaría por destruir los cimientos de la unidad entre las razas.
 
-El despertar de la oscuridad ...
+Con el tiempo, nadie recordaría por qué los ponis estaban unidos en primer lugar, y entonces, el terrible molino del conflicto comenzaría a girar.
 
-Badwhiz cerró los ojos un momento, recordando con dolor las palabras de Balor y los otros caballeros. 
+Sin embargo, en su mente, este era solo el menor de los pecados de esa princesa.
 
-Él era el único poni que sabía la verdad. Era el ultimo de los Starheart que aun seguia en este mundo. Marcharia por el mismo camino que habian seguido sus antepasados. Ese era su destino: proteger Equestria sin importar el precio.
+Lo que había hecho con los Árboles de la Armonía... y lo que estaba por venir.
 
-Así, continuó observando hasta que finalmente llegó la confirmación que había estado esperando.
+El despertar de la oscuridad.
 
-"Continúa, niño. Es seguro", escuchó una voz dirigiéndose mentalmente hacia él.
+Badwhiz cerró los ojos por un momento, dejando que los recuerdos de las palabras de Balor y los otros caballeros le pesaran en el alma.
+
+Él era el único poni que conocía la verdad. El último de los Starheart que seguía con vida en este mundo. Marcharía por el mismo camino que sus ancestros, pues ese era su destino: proteger Equestria a cualquier costo.
+
+Abriendo nuevamente los ojos, continuó observando con paciencia hasta que finalmente recibió la confirmación que había estado esperando. La voz resonó telepáticamente en su mente, clara y precisa:
+
+"Continúa, niño. Es seguro".
 
 Obedeciendo aquella orden, Badwhiz se internó en la madriguera.
 
-Tras un trote rápido e imperceptible, Badwhiz llegó a una amplia habitación vacía. El techo estaba decorado con cristales luminiscentes cuya luz caia perfectamente en las sillas de hojas y la mesa de piedra que se encontraban en su centro.
+Tras un trote rápido e imperceptible, Badwhiz llegó a una amplia habitación vacía. El techo estaba decorado con cristales luminiscentes cuya luz caía perfectamente sobre las sillas de hojas y la mesa de piedra que se encontraban en su centro.
 
 "Los conejos de Equestria sí que tienen un buen sentido para la decoración de interiores", se escuchó una nueva voz mental en el interior de Badwhiz.
 
-"No lo creo, mi buen Taranis. Esto es obra de la poni frívola que acompaña a esa princesa cobarde. Deberíamos purgar este lugar para que no tengan un refugio al cual regresar", respondió otra voz.
+"No lo creo, mi buen Taranis. Esto, sin duda, es obra de la poni frívola que acompaña a esa princesa cobarde. Deberíamos purgar este lugar para que no tengan un refugio al cual regresar", respondió otra voz.
 
 "Por favor, Morrigan. Apeguémonos al plan. Niño, continúa la exploración".
 
 "Como ordene, Lord Mannah", respondió Badwhiz mentalmente.
 
-Sin perder más tiempo, el poni comenzó a revisar la habitación. Pronto descubrió que la parte inferior de las paredes estaba llena de agujeros de diferentes tamaños. Usando la luz de su cuerno, observó que esos agujeros eran entradas a otros túneles que descendían más profundo en el suelo. Algunos incluso se ramificaban en varias direcciones. Sin embargo, en su mayoría, eran pequeños y demasiado estrechos para que un poni adulto pudiera pasar.
+Sin perder más tiempo, el poni comenzó a revisar la habitación. Pronto descubrió que la parte inferior de las paredes estaba llena de agujeros de diferentes tamaños. Usando la luz de su cuerno, observó que esos agujeros eran entradas a otros túneles que descendían más profundamente en el suelo. Algunos incluso se ramificaban en varias direcciones. Sin embargo, en su mayoría, eran pequeños y demasiado estrechos para que un poni adulto pudiera pasar.
 
-Badwhiz dio una vuelta completa a la habitación, terminando su inspección. Aparte de los recién puestos decorados en las paredes y otros rastros de civilización, no encontró más señales de las yeguas que habían estado allí. La princesa y sus aliadas habían abandonado su refugio hace muy poco tiempo. No estaba claro cuáles habían sido los motivos de esa decisión. Tampoco se sabía el método que habían utilizado para retirarse. Podrían haber tomado algunos de los túneles más grandes o haber usado la teletransportación.
+Badwhiz dio una vuelta completa a la habitación, terminando su inspección. Aparte de los decorados recién puestos en las paredes y otros rastros de civilización, no encontró más señales de las yeguas que habían estado allí. La princesa y sus aliadas habían abandonado su refugio hacía muy poco tiempo. No estaba claro cuáles habían sido los motivos de esa decisión. Tampoco se sabía el método que habían utilizado para retirarse. Podrían haber tomado algunos de los túneles más grandes o haber usado la teletransportación.
 
 No había suficiente información.
 
 "Niño, es suficiente por ahora. Retírate de ahí y revisa los exteriores", ordenó Mannah, y Badwhiz confirmó la orden mientras salía de la madriguera.
 
-Era una decisión prudente, necesitaba más pistas.
+Era una decisión prudente; necesitaba más pistas.
 
 Una vez afuera, nada había cambiado. Sin una dirección clara, un invisible Badwhiz comenzó a trotar hacia el lado izquierdo de la colina, observando a su alrededor con cuidado, esperando encontrar algún posible rastro que hubieran dejado atrás aquellas ponis.
 
 Solo había dado unos pasos entre los arbustos cuando...
 
-"Whiuuzzzz", un silbido penetrante estalló a su costado. Badwhiz instintivamente retrocedió y de inmediato levantó una barrera mágica para cubrirse.
+"Whiuuzzzz", un silbido penetrante estalló a su costado. Badwhiz retrocedió instintivamente y, de inmediato, levantó una barrera mágica para cubrirse.
 
-Pequeños fragmentos de confeti cayeron sobre él, más los restos de cintas decorativas de fiesta.
+Pequeños fragmentos de confeti cayeron sobre él, junto con los restos de cintas decorativas de fiesta.
 
-Agitado y con el corazón al límite por aquel repentino ataque, Badwhiz se quedó inmóvil por unos segundos. Había cometido un error: al liberar su magia, terminó rompiendo su invisibilidad y revelándose por completo. Agudizó todos sus sentidos lo más que pudo, buscando percibir a algún enemigo cerca de él. Pero no encontró nada. Solo silencio. Aun desconfiado, observó donde antes había estado de pie. En el suelo manchado por confeti, se encontraban los restos de una cápsula de sorpresa que había estado oculta entre las hierbas.
+Agitado y con el corazón al límite por aquel repentino ataque, Badwhiz se quedó inmóvil durante unos segundos. Había cometido un error: al liberar su magia, rompió su invisibilidad y quedó completamente expuesto. Agudizó todos sus sentidos lo más que pudo, intentando percibir a algún enemigo cerca de él. Sin embargo, no encontró nada. Solo silencio.
+
+Aun desconfiado, miró el lugar donde había estado de pie instantes antes. Sobre el suelo, cubierto de confeti y cintas de colores, se encontraban los restos de una cápsula de sorpresa que había estado oculta entre las hierbas.
 
 "¿Ocurre algo, niño?" preguntó una voz familiar en la mente de Badwhiz.
 
-"No, nada. Solo una ridicula trampa", respondió el poni en armadura, recobrando su compostura.
+"No, nada. Solo una ridícula trampa", respondió el poni en armadura, esforzándose por recuperar la compostura.
 
-"Continúa", le ordenó la voz.
+"Continúa", ordenó la voz con frialdad.
 
-Al momento, disipó la barrera. Ya calmado, Badwhiz se acercó a los restos de la diminuta cápsula. Con molestia, observó la frívola trampa que lo había paralizado.
+Badwhiz disipó la barrera y, ya más calmado, se acercó a los restos de la diminuta cápsula. La observó con fastidio, incapaz de contener su frustración ante aquella frívola trampa que lo había paralizado.
 
-"Estúpidas yeguas. ¿Acaso lo único que saben hacer es perder el tiempo?" maldijo Badwhiz en voz alta mientras pateaba con desprecio los restos de la cápsula de sorpresa de confeti de Pinkie Pie.
+"Estúpidas yeguas. ¿Acaso lo único que saben hacer es perder el tiempo?" masculló en voz alta mientras pateaba con desprecio los restos de la cápsula de confeti de Pinkie Pie.
 
-"Algunas de nosotras sí. Pero suena feo cuando lo dices de esa manera...", respondió una voz entre los arbustos.
+"Algunas de nosotras sí. Pero suena feo cuando lo dices de esa manera...", respondió una voz burlona entre los arbustos.
 
-Badwhiz solo alcanzó a escuchar las tres primeras palabras. Un golpe sordo cayó sobre su cabeza, nublando su vista. El dolor que sintió fue acompañado por una sensación de ingravidez. Por un instintivo reflejo natural, buscó extender las alas, pero no pudo. Una fuerte presión lo sujetaba. Tras aquel breve instante de impacto, su vista se recompuso. Entonces descubrió que estaba en el suelo, amarrado. Sobre él estaba una pegaso de pelaje celeste y melena arcoíris.
+Badwhiz apenas tuvo tiempo de procesar las primeras palabras. Un golpe sordo impactó su cabeza, nublando su visión. El dolor se extendió por su cráneo mientras una sensación de ingravidez lo envolvía. Por puro instinto, intentó extender las alas, pero algo lo mantenía inmovilizado.
 
-"... yo diría más bien que les gusta vivir con estilo. Deberías intentarlo también un día", terminó de responder Rainbow Dash.
+Cuando su vista finalmente se aclaró, descubrió que estaba atado en el suelo. Sobre él, una pegaso de pelaje celeste y melena arcoíris lo miraba con una sonrisa triunfante.
 
-"¡TÚ!", respondió Badwhiz, intentando concentrarse para atacarla con la magia de su cuerno. Sin embargo, nada ocurrió. Confundido, lo intentó de nuevo, pero ocurrió lo mismo.
+"... Yo diría más bien que les gusta vivir con estilo. Deberías intentarlo también algún día", terminó de decir Rainbow Dash, con un tono despreocupado.
 
-"He..." dijo Rainbow mientras lo observaba con una sonrisa. "¿Buscas esto? ¿O esto?" La pegaso extendió uno de sus cascos delanteros, en el extremo tenía la gema Starheart, y con un giro del casco, apareció también la diadema de cuerno de alicornio que era parte de la armadura de Badwhiz.
+"¡TÚ!" exclamó Badwhiz, intentando concentrarse para atacarla con la magia de su cuerno. Pero nada ocurrió. Perplejo, lo intentó de nuevo, con el mismo resultado.
 
-Incrédulo, Badwhiz tardó unos segundos en responder. "¿CÓMO?"
+"He..." dijo Rainbow Dash, levantando un casco con aire de superioridad. "¿Buscas esto? ¿O esto?"
 
-"Te los quité. Un gran truco pirata. ¿Verdad?", respondió con arrogancia Rainbow Dash.
+En su casco sostenía dos objetos importantes: la gema Starheart y la diadema del cuerno de alicornio que formaban parte de la armadura de Badwhiz.
 
-"¡PERO... ESTABAN UNIDOS A MÍ CON MAGIA!" exclamó Badwhiz con ira.
+"¿CÓMO?" preguntó Badwhiz, incrédulo, sin poder apartar la mirada de los objetos.
 
-"JA, JA, ¡por eso te digo que es un gran truco pirata! Pasas toda una temporada con esos tipos en medio del mar y terminas volviéndote uno de ellos. Ja, ja... ¡Qué recuerdos!" dijo la pegaso mirando al horizonte mientras se ponía de pie y daba un gran suspiro. "Por cierto, sobre lo que dijiste de mis amigas hace un momento..."
+"Te los quité. Un gran truco pirata, ¿verdad?" respondió Rainbow Dash con una sonrisa altiva.
 
-Rainbow Dash se volteó hacia Badwhiz. Su buen humor se había ido, y ahora la pegaso tenía una mirada sumamente molesta.
+"¡PERO... ESTABAN UNIDOS A MÍ CON MAGIA!" rugió Badwhiz, lleno de ira.
 
-"NO SOMOS ESTÚPIDAS, NIÑITO", dijo lentamente la pegaso, colocando su casco sobre el mentón de Badwhiz.
+"JA, JA. ¡Por eso te digo que es un gran truco pirata! Pasas toda una temporada con esos tipos en medio del mar y terminas volviéndote uno de ellos. Ja, ja... ¡Qué recuerdos!" comentó la pegaso, dejando escapar un suspiro mientras miraba al horizonte con nostalgia.
+
+Su expresión cambió de repente. Rainbow Dash giró hacia Badwhiz, su buen humor desapareciendo al instante.
+
+"Por cierto, sobre lo que dijiste de mis amigas hace un momento..."
+
+Avanzó hasta quedar justo frente a él. Bajó la cabeza, inclinándose hasta que sus ojos quedaron al nivel de los del poni atado.
+
+"NO SOMOS ESTÚPIDAS, NIÑITO", dijo lentamente, su voz cargada de amenaza, mientras presionaba su casco contra el mentón de Badwhiz.
 
 "No me importa. Eso no cambiará..."
 
