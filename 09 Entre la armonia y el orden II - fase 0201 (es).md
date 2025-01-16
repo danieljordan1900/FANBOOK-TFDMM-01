@@ -1,179 +1,206 @@
-
-"Poof". El grupo de amigas ponis cayó con un golpe sordo, con Pinkie Pie aterrizando sobre ellas. La teletransportación había sido exitosa, pero en el último segundo antes de que el hechizo se completara, Pinkie Pie realizó un salto imprudente que perturbó la teletransportación de Twilight. El resultado de su arriesgada acción y las circunstancias únicas del hechizo provocaron un efecto de rebote, haciendo que todas ellas cayeran desordenadamente una sobre otra.
+"Poof". El grupo de amigas ponis cayó con un golpe sordo, con Pinkie Pie aterrizando sobre ellas. La teletransportación había sido exitosa, pero en el último segundo, antes de que el hechizo se completara, Pinkie Pie realizó un salto imprudente que perturbó la magia de Twilight. El resultado de su acción impulsiva y las circunstancias únicas del hechizo provocaron un efecto de rebote, haciendo que todas cayeran desordenadamente unas sobre otras.
 
 "¡Ay... Pinkie!" exclamó Twilight desde debajo de la pila de ponis, todas enredadas y desorientadas.
 
-"Ups, perdón... ¡Waaaaaa!" respondió Pinkie Pie, tratando de ponerse de pie pero cayendo de costado debido al mareo.
+"Ups, perdón... ¡Waaaaaa!" respondió Pinkie Pie, intentando ponerse de pie, pero cayendo de costado debido al mareo.
 
-"Hagan menos ruido, podrían ..." dijo Applejack molesta ya que había sido derribada de nuevo por la mareada Pinkie. Luego se levantó y miró a su alrededor con sorpresa. "¿Qué está ocurriendo?"
+"Hagan menos ruido, podrían..." gruñó Applejack, molesta, ya que había sido derribada de nuevo por la mareada Pinkie. Finalmente, se levantó y miró a su alrededor con sorpresa. "¿Qué está ocurriendo?"
 
-Aunque todavía estaban resguardadas por la burbuja mágica de Twilight, era evidente que su ubicación había cambiado.
+Aunque seguían resguardadas por la burbuja mágica de Twilight, era evidente que su ubicación había cambiado.
 
-"No te preocupes, Applejack. No nos han descubierto. Esta es mi burbuja anti-espionaje, combinada con el hechizo de teletransportación. Así nadie podrá rastrear nuestro destino", explicó Twilight mientras ayudaba al resto de sus amigas a ponerse de pie con su magia.
+"No te preocupes, Applejack. No nos han descubierto. Esta es mi burbuja antiespionaje combinada con el hechizo de teletransportación. Así nadie podrá rastrear nuestro destino", explicó Twilight mientras ayudaba al resto de sus amigas a ponerse de pie con su magia.
 
-"Eso suena bien, Twilight, pero... ¡Estamos de nuevo en el tren!" exclamó Applejack alarmada. Todas, excepto Twilight, miraron a su alrededor, consternadas, y se dieron cuenta de que, efectivamente, habían vuelto al vagón donde previamente habían conocido a Vainilla.
+"Eso suena bien, Twilight, pero... ¡Estamos de nuevo en el tren!" exclamó Applejack alarmada. Todas, excepto Twilight, miraron a su alrededor consternadas y se dieron cuenta de que, efectivamente, habían vuelto al vagón donde previamente habían conocido a Vainilla.
 
-El lugar estaba tan desordenado como lo habían dejado. Incluso una de las puertas que daba al exterior seguía entreabierta, aunque no lo suficientemente como para que alguien desde afuera notara la repentina aparición de las ponis en el tren.
+El lugar estaba tan desordenado como lo habían dejado. Incluso una de las puertas que daba al exterior seguía entreabierta, aunque no lo suficiente como para que alguien desde afuera notara la repentina aparición de las ponis en el tren.
 
-"No se preocupen, chicas, esto también está dentro del plan... Creo que es hora de que les explique el plan..." comentó Twilight, de inmediato agitó suavemente su cuerno. La cápsula mágica que las protegía comenzó a expandirse, adhiriéndose a las superficies del vagón. Desde afuera, nadie notó ningún cambio.
+"No se preocupen, chicas, esto también está dentro del plan... Creo que es hora de que les explique el plan", comentó Twilight. De inmediato, agitó suavemente su cuerno y la cápsula mágica que las protegía comenzó a expandirse, adhiriéndose a las superficies del vagón. Desde afuera, nadie notó ningún cambio.
 
-// ----------------------------
+[---]
 
-Fuera del tren, el Gallo Dragón Titanicus descansaba tumbado en la pradera. Con su enorme cabeza asomando tímidamente entre sus alas plegadas, entonaba un somnoliento canto de kakareo. A lo lejos, la enorme bestia parecía estar sumida en un profundo sueño diurno.
+Fuera del tren, el Gallo Dragón Titanicus descansaba tumbado en la pradera. Con su enorme cabeza asomando tímidamente entre sus alas plegadas, entonaba un somnoliento canto de cacareo. A lo lejos, la gigantesca criatura parecía sumida en un profundo sueño diurno.
 
 Sin embargo, confiar en esa impresión superficial sería un error catastrófico.
 
-El Gallo Dragón Titanicus no estaba dormido, ni mucho menos adormecido o letárgico. Todo lo contrario, estaba plenamente alerta ante la presencia de un enemigo. Su estado actual era resultado de las órdenes que había recibido: "Quédate inmóvil y vigila", pero la más crucial de todas era: "... escucha, criatura, si encuentras a la princesa Twilight y a sus aliadas, destrúyelas...". Esta última orden fue acompañada de la imagen mental de sus objetivos.
+El Gallo Dragón Titanicus no estaba dormido, ni mucho menos adormilado o letárgico. Todo lo contrario, se encontraba plenamente alerta ante la posible presencia de un enemigo. Contrario a lo que la intuición común podría dictar, aquella postura tan relajada era, en realidad, su forma de mantenerse en guardia, esperando que algún adversario desprevenido se acercara creyendo que podría atacarlo fácilmente, sin imaginar el terrible contraataque que le aguardaba.
 
-El colosal gallo dragón erizó las plumas en su cuello al recordar. No le gustaba recibir órdenes que no vinieran de su amo. Mucho menos que no lo llamaran por su nombre. Él no era una 'bestia'; se llamaba 'Beak'. Hasta hace poco, había sido un gallo dragón ordinario. Sin embargo, los compañeros de su amo habían empleado una extraña magia que lo transformó en la colosal criatura que era ahora. Se sentía incómodo consigo mismo, pero su amo le aseguró que todo estaba bien. Beak también notó que su amo se comportaba de manera extraña. Ya no era amable y cariñoso como solía ser; en cambio, se había vuelto agresivo, hosco y oscuro.
+Ese estado de aparente tranquilidad era pues una trampa. Un engaño previsto como resultado de las órdenes que había recibido de los responsables de la difícil situación que vivían las ponis cautivas en la gran barrera.
 
-¿Por qué había cambiado su amo? ¿Sería por culpa de esas ponis? ¿Le habrían hecho daño?
+"Quédate inmóvil y vigila", le habían ordenado aquellos seres. Y también: "Escucha, criatura. Si encuentras a la princesa Twilight y a sus aliadas... destrúyelas". Esta última orden había sido acompañada de una imagen mental clara de sus objetivos.
 
-Si ese fuera el caso... entonces no dudaría en aplastarlas. Y así, quizás, su amo volvería a sonreírle.
+El colosal gallo dragón erizó las plumas de su cuello al recordarlo. No le gustaba recibir órdenes, y mucho menos cuando no provenían de su verdadero amo. Tampoco soportaba que lo llamaran "bestia". Él tenía un nombre: 'Beak'.
 
-Beak alisó las plumas de sus alas y acomodó su cabeza. La luz a su alrededor le resultaba molesta; después de todo, era una criatura nocturna. Pero esa pálida luminosidad no le impediría atrapar a sus presas y liberar toda su furia sobre ellas.
+Hasta hacía poco tiempo, Beak había sido un gallo dragón ordinario. Sin embargo, los compañeros de su amo habían empleado una magia extraña que lo transformó en la inmensa criatura que era ahora. Aquella transformación lo hacía sentirse incómodo consigo mismo, pero su amo le aseguró que todo estaba bien. Aun así, Beak no estaba convencido, había notado un cambio en su amo. Ya no era el ser amable y cariñoso que recordaba. Se había vuelto agresivo, hosco y oscuro.
 
-// ----------------------------
+¿Por qué había cambiado su amo? ¿Acaso era culpa de esas ponis? ¿Le habrían hecho daño?
 
-En Equestria, existe una amplia variedad de criaturas mágicas de diferentes tipos y tamaños. Una de estas especies es el Gallo Dragón, un depredador nocturno que habita en los bosques oscuros y salvajes del reino, en particular en el Bosque Everfree. Su cuerpo se divide en una parte superior que se asemeja a un ave de corral, mientras que la parte inferior presenta rasgos de un dragón. Tiene la habilidad de petrificar a sus presas antes de llevarlas a sus nidos para alimentarse. Aunque es una criatura sumamente agresiva, rara vez ataca directamente a los ponis fuera de su hábitat, siendo los casos más graves los ocasionales incidentes de petrificación.
+Si ese era el caso... entonces no dudaría en aplastarlas. Y quizás, al hacerlo, su amo volvería a ser el mismo de antes, a sonreírle como solía hacerlo.
 
-No obstante, eso es en el presente. En el pasado, la situación era mucho más peligrosa.
+Beak alisó las plumas de sus alas y acomodó su cabeza. La luz a su alrededor le resultaba molesta; después de todo, era una criatura nocturna. Sin embargo, aquella pálida luminosidad no sería un obstáculo para atrapar a sus presas y desatar toda su furia sobre ellas.
 
-Hace muchas lunas, antes de que Celestia y Luna encerraran a Discord, el Señor del Caos, ambas princesas emprendieron una cruzada para purificar Equestria de los terribles monstruos que acechaban el reino: dragones negros, minotauros codiciosos, hidras gigantes de nueve cabezas y otras criaturas malignas. Las princesas enfrentaron una variedad de amenazas durante su travesía. Sin embargo, uno de los primeros desafíos que enfrentaron cuando aún eran jóvenes fue erradicar la presencia del Gallo Dragón Titanicus. Esta inmensa criatura, de origen desconocido, aterrorizaba las afueras de Canterlot. La bestia había desarrollado un gusto por los ponis y era responsable de numerosas desapariciones de viajeros y soldados. Su influencia en el reino llegó a tal grado que incluso otros Gallos Dragones ordinarios comenzaron a imitarlo, volando impunemente a plena luz del día y sembrando el terror entre campesinos y ciudadanos del reino.
+[---]
 
-Llenas de valentía y acompañadas por cazadores experimentados, las nobles princesas decidieron poner fin a este estado de zozobra cazando a la bestia. Tras un viaje lleno de adversidades que puso a prueba sus habilidades y determinación, finalmente lograron acorralar a la criatura en una cueva, donde fue sellada en un capullo de savia de pino. Permaneció ahí hasta la actualidad.
+En Equestria existe una amplia variedad de criaturas mágicas de diferentes tipos y tamaños. Una de estas especies es el Gallo Dragón, un depredador nocturno que habita en los bosques oscuros y salvajes del reino, con particular presencia en el Bosque Everfree. El cuerpo de esta criatura combina una parte superior que se asemeja a un ave de corral, mientras que la parte inferior presenta rasgos de un dragón. Posee la habilidad de petrificar a sus presas antes de llevarlas a sus nidos para alimentarse. Aunque es una criatura sumamente agresiva, rara vez ataca directamente a los ponis fuera de su hábitat conocido. Siendo de estos ataques, los casos más graves, los ocasionales incidentes de petrificación.
 
-Claro, esta es la versión de la historia que Celestia cuenta con frecuencia cuando le preguntan sobre estos asuntos. Y es cierta. Sin embargo, Luna suele corregirla añadiendo ciertos detalles que Celestia evade o de los que se excusa, alegando que no recuerda bien.
+No obstante, eso ocurre en el presente. En el pasado, la situación había sido mucho más peligrosa.
 
-Una de estas memorias olvidadas involucra a Celestia sirviendo de carnada en una ocasión y pasando un día entero en el buche del ave gigante.
+Hace muchas lunas, antes de que Celestia y Luna encerraran a Discord, el Señor del Caos, ambas princesas emprendieron una cruzada para purificar Equestria de los terribles monstruos que acechaban el reino: dragones negros, minotauros codiciosos, hidras gigantes de nueve cabezas y otras criaturas malignas. Durante su travesía, las princesas enfrentaron numerosas amenazas. Sin embargo, uno de los primeros desafíos que tuvieron que superar cuando aún eran jóvenes fue erradicar la presencia del Gallo Dragón Titanicus del reino. Esta inmensa criatura, de origen desconocido, aterrorizaba las afueras de Canterlot. Había desarrollado un gusto por los ponis y era responsable de numerosas desapariciones de viajeros y soldados. Su influencia en el reino llegó a tal grado que incluso otros Gallos Dragones ordinarios comenzaron a imitarlo, volando impunemente a plena luz del día y sembrando el terror entre campesinos y ciudadanos.
 
-Había muchos más detalles como estos que Twilight había llegado a conocer y deseaba compartir con sus amigas, pero el tiempo apremiaba y tendría que ir directo al grano.
+Llenas de valentía y acompañadas por cazadores experimentados, las nobles princesas decidieron poner fin a este estado de zozobra cazando a la bestia. Tras un viaje lleno de adversidades que puso a prueba sus habilidades y determinación, finalmente lograron acorralar a la criatura en una cueva, donde la sellaron en un capullo de savia de pino, permaneciendo ahí hasta la actualidad.
 
-"... a finales del año pasado, asistí a una exposición de Ocellus en la Escuela de la Amistad sobre 'El impacto del Gallo Dragón en el Bosque Everfree'. Su investigación abarcó una amplia gama de temas relacionados con los Gallos Dragones, como su alimentación, hábitos migratorios, rol en el ecosistema, entre otros. Pero uno de los descubrimientos más notables fue acerca de su inusual anatomía. Además de confirmar que su especie tiene un origen artificial causado por la magia, descubrió anomalías en el cuerpo del Gallo Dragón que los hacen vulnerables a ciertas condiciones. Una de estas anomalías es la existencia de un nódulo nervioso bajo la faringe, que sobresale en la piel y, cuando es presionado externamente, puede paralizar todo su cuerpo. Este es su punto débil y es precisamente el que debemos atacar para derrotar al Gallo Dragón Titanicus. Aunque es mucho más grande y fuerte que cualquier otro de sus parientes, estoy segura de que comparte las mismas debilidades que un Gallo Dragón común."
+Claro, esta es la versión de la historia que Celestia cuenta con frecuencia cuando le preguntan sobre estos asuntos. Y es cierta. Sin embargo, Luna suele corregirla añadiendo ciertos detalles que Celestia evade o sobre los que se excusa, alegando que no los recuerda bien.
 
-Al terminar, las ponis que escuchaban atentamente a Twilight guardaron silencio. A pesar de las imágenes holográficas que acompañaron la explicación, el ambiente dentro del vagón estaba cargado de duda y desconcierto. Applejack se rascaba la nuca y el resto de las amigas tenía expresiones que reflejaban alguna especie de desconcierto mental.
+Uno de estos detalles "olvidados" involucra a Celestia sirviendo de carnada en una ocasión y pasando un día entero en el buche del ave gigante.
 
-"Así que... ¿solamente debemos golpearlo en el cuello?" dijo finalmente Applejack con un tono de escepticismo.
+Así como esta, había muchas más historias que Twilight había llegado a conocer de sus mentoras. Y aunque sentía un gran deseo de compartirlas con sus amigas, la situación apremiante en la que se encontraban la obligaba a dejar esos relatos de lado y enfocarse en ir directo al grano.
 
-"Sería más como un masaje debajo de su barbilla," dijo Twilight.
+"... A finales del año pasado, asistí a una exposición de Ocellus en la Escuela de la Amistad sobre 'El impacto del Gallo Dragón en el Bosque Everfree'. Su investigación abarcó una amplia gama de temas relacionados con los Gallos Dragones, como su alimentación, hábitos migratorios, rol en el ecosistema, entre otros. Pero uno de los descubrimientos más notables fue acerca de su inusual anatomía. Además de confirmar que su especie tiene un origen artificial causado por la magia, descubrió anomalías en el cuerpo del Gallo Dragón que los hacen vulnerables a ciertas condiciones.
 
-"¡Debajo de sus cachetes!" replicó Pinkie Pie con un brinco en su asiento.
+Una de estas anomalías es la existencia de un nódulo nervioso bajo la faringe, que sobresale en la piel y, cuando se presiona externamente, puede paralizar todo su cuerpo. Este es su punto débil y es precisamente el que debemos atacar para derrotar al Gallo Dragón Titanicus. Aunque es mucho más grande y fuerte que cualquier otro de sus parientes, estoy segura de que comparte las mismas debilidades que un Gallo Dragón común."
 
-"¡Exacto, Pinkie!" respondió Twilight emocionada como una profesora con su alumna estrella, aunque fingía su entusiasmo. Dentro de sí empezaba a preocuparse por la falta de ánimo en sus amigas.
+Al terminar, las ponis que escuchaban atentamente a Twilight guardaron silencio. A pesar de las imágenes holográficas que acompañaron la explicación, el ambiente dentro del vagón estaba cargado de duda y desconcierto. Applejack se rascaba la nuca, mientras el resto de sus amigas mostraban expresiones de confusión.
+
+"Así que... ¿solamente debemos golpearlo en el cuello?" preguntó finalmente Applejack con tono escéptico.
+
+"Sería más como un masaje debajo de su barbilla," corrigió Twilight.
+
+"¡Debajo de sus cachetes!" exclamó Pinkie Pie, dando un brinco en su asiento.
+
+"¡Exacto, Pinkie!" respondió Twilight emocionada, como una profesora con su alumna estrella. Sin embargo, detrás de su entusiasmo fingido, comenzaba a preocuparse por la falta de ánimo en sus amigas.
 
 "Uhhhh," murmuró Applejack, mientras Fluttershy se movía inquieta en su asiento.
 
-Pasaron varios segundos más de silencio incómodo.
+Pasaron varios segundos de silencio incómodo.
 
-"Entonces... ¿una de nosotras tendrá que darle un masaje en los cachetes a ese ave sobre alimentada?" preguntó Applejack, claramente preocupada.
+"Entonces... ¿una de nosotras tendrá que darle un masaje en los cachetes a ese ave sobrealimentada?" preguntó Applejack, claramente preocupada.
 
-"Barbilla sería el término correcto, Applejack," interrumpió Rarity, que había estado callada hasta entonces. "Y lo siento, Twilight querida, pero... ¡Ninguna de nosotras puede hacer algo así!"
+"Barbilla sería el término correcto, Applejack," intervino Rarity, que hasta entonces había estado callada. "Y lo siento, Twilight querida, pero... ¡Ninguna de nosotras puede hacer algo así!"
 
-Sí, esa era la reacción más lógica. Ningún poni común y corriente en su sano juicio intentaría algo semejante contra un depredador de esa magnitud. Sin embargo, Twilight confiaba. Tenía amigas que podían ser muchas cosas, pero definitivamente nunca serían ordinarias.
+Sí, esa era la reacción más lógica. Ningún poni común y corriente en su sano juicio intentaría algo semejante contra un depredador de esa magnitud. Sin embargo, Twilight confiaba. Sus amigas podían ser muchas cosas, pero definitivamente no eran ordinarias.
 
-"Una de ustedes sí puede hacerlo," dijo Twilight con seguridad, mirando a la poni que estaba rezagada detrás de sus compañeras.
+"Una de ustedes sí puede hacerlo," afirmó Twilight con seguridad, dirigiendo su mirada a la poni rezagada detrás de sus compañeras.
 
-Todas las miradas se posaron en la poni a la que se refería Twilight. Allí estaba Fluttershy, acurrucada en un asiento. Con la mirada de todas sus amigas sobre ella, la tímida pegaso pareció encogerse aún más, pero después de tragar saliva, dijo: "Está bien, Twilight, lo haré."
+Todas las miradas se posaron en la poni a la que se refería Twilight. Allí estaba Fluttershy, acurrucada en un asiento. Con la atención de todas sobre ella, la tímida pegaso pareció encogerse aún más, pero tras tragar saliva, dijo: "Está bien, Twilight, lo haré."
 
-"Fluttershy, entiendo que tengas dudas y no estés dispuesta a... ¿Espera? ¿Estás de acuerdo?" preguntó Twilight, sorprendida por la respuesta asertiva de su amiga. Había esperado que Fluttershy mostrara menos cooperación.
+"Fluttershy, entiendo que tengas dudas y que no estés dispuesta a... ¿Espera? ¿Estás de acuerdo?" preguntó Twilight, sorprendida por la respuesta asertiva de su amiga. Había esperado que Fluttershy mostrara mucha más resistencia.
 
-"¡Hola! ¿Eres Fluttershy?" preguntó Pinkie a la pegaso de melena rosa, con su característico entusiasmo.
+"¡Hola! ¿Eres Fluttershy?" intervino Pinkie Pie, con su característico entusiasmo, mientras miraba a la pegaso de melena rosa.
 
 Fluttershy asintió tímidamente. "Sí, soy yo".
 
-"¿Segura? Porque la Fluttershy que conocemos estaría un poco más asustada de hacer una misión tan peligrosa como esta", dijo Pinkie Pie, con una ceja levantada y una mirada escéptica dirigida hacia Fluttershy.
+"¿Segura? Porque la Fluttershy que conocemos estaría un poco más asustada de hacer una misión tan peligrosa como esta", dijo Pinkie Pie, arqueando una ceja y observándola con escepticismo.
 
-Fluttershy bajó la mirada, sintiéndose un poco acorralada por la atención que estaba recibiendo. Pero luego, levantó la cabeza con determinación. "Realmente todas ustedes me conocen muy bien. Y sí, es verdad que debería estar muy asustada, y lo estoy. Tengo miedo de lo que puede estarle pasando a Rainbow Dash. Tengo miedo de lo que podría estar pasando a los otros ponis que dejaron el tren. Tengo miedo de cómo podrían estar mis amigos del bosque y todos los demás en Ponyville. Pero en este momento, Rainbow Dash está concentrada dando todo de sí para protegernos de Vainilla. Sería injusto que no diera lo mejor de mí de la misma forma. Es por eso que quiero hacer esto. Para que podamos salir todas juntas de este lugar y volver a casa", dijo Fluttershy con algunas lágrimas asomando de sus ojos mientras se mordía el labio inferior. Estos eran los sinceros sentimientos que había estado ocultando de sus amigas, hasta ahora.
+Fluttershy bajó la mirada, sintiéndose un poco acorralada por la atención que estaba recibiendo. Sin embargo, tras un momento, levantó la cabeza con determinación. "Realmente todas ustedes me conocen muy bien. Y sí, es verdad que debería estar muy asustada, y lo estoy. Tengo miedo de lo que puede estarle pasando a Rainbow Dash. Tengo miedo de lo que podría estar pasando con los otros ponis que dejaron el tren. Tengo miedo por mis amigos del bosque y por todos en Ponyville. Pero en este momento, Rainbow Dash está concentrada, dando todo de sí para protegernos de Vainilla. Sería injusto que yo no diera lo mejor de mí de la misma forma. Por eso quiero hacer esto, para que podamos salir todas juntas de este lugar y volver a casa".
 
-Todas guardaron silencio ante esas sinceras palabras, excepto Pinkie Pie, cuya expresión se tornó de preocupación.
+Mientras hablaba, pequeñas lágrimas comenzaron a asomarse en los ojos de Fluttershy. Mordió su labio inferior, dejando entrever los sinceros sentimientos que había estado guardando hasta ese instante.
 
-"¡Lo siento, Fluttershy! ¡Realmente lo siento! ¡No debí haberte bromeado así! ¡Perdóname, Fluttershy! ¡Perdónameeeeeeeeeeee!" exclamó Pinkie Pie entrando en pánico ante la reacción de Fluttershy y al ver caer las diminutas lágrimas de su amiga pegaso, ella también empezó a llorar a su lado.
+Todas guardaron silencio ante sus palabras, salvo Pinkie Pie, cuya expresión cambió de entusiasmo a preocupación.
 
-A sus lados, Applejack y Rarity se acercaron, apoyándose en ella para consolarla. Los sentimientos que ellas tenían eran los mismos.
+"¡Lo siento, Fluttershy! ¡De verdad lo siento! ¡No debí bromear así! ¡Perdóname, Fluttershy! ¡Perdónameeeeeeeeeeee!" exclamó Pinkie Pie, entrando en pánico al ver caer las lágrimas de su amiga. Entre sollozos, también comenzó a llorar a su lado.
 
-Twilight, por su lado, intentó acercarse, pero dudó. Una amargura pasó por su rostro. Ella era consciente mejor que nadie del peligro que corría Rainbow Dash. Ella había visto ese escenario antes. El enemigo había previsto que trabajarían juntas, pero también que si actuaban por separado... Entonces, Twilight apartó su propia angustia y se unió a sus amigas.
+Applejack y Rarity se acercaron, colocando sus patas sobre Fluttershy para consolarla. Ambas compartían los mismos sentimientos.
 
-"No estás sola, Fluttershy. Daremos lo mejor de nosotras, todas saldremos de aquí... juntas", dijo Twilight extendiendo sus alas para cubrir a sus amigas.
+Twilight, por su parte, intentó acercarse, pero vaciló. Su rostro reflejaba amargura. Era consciente, mejor que nadie, del peligro que corría Rainbow Dash. Había visto un escenario similar antes. El enemigo sabía que trabajarían juntas, pero también que si se separaban...
 
-"Lo sé, Twilight. Yo lo siento, creo que aún no me acostumbro a ser valiente a pesar de las tantas veces que hemos pasado por esto... aún sigo actuando así", dijo Fluttershy apenada.
+Sacudiendo sus pensamientos, Twilight apartó su angustia y se unió a sus amigas.
 
-"No tienes nada de qué avergonzarte, Fluttershy. Eres una gran amiga, y siempre nos recuerdas lo sensibles que debemos ser con los demás", respondió Rarity.
+"No estás sola, Fluttershy. Daremos lo mejor de nosotras. Todas saldremos de aquí... juntas", dijo Twilight, extendiendo sus alas para cubrir a sus amigas en un gesto protector.
 
-"Eso es verdad. Y no lo cambiaríamos ni por un millón de Fluttershy valientes", añadió Applejack.
+"Lo sé, Twilight. Yo lo siento. Creo que aún no me acostumbro a ser valiente, a pesar de todas las veces que hemos pasado por esto... sigo actuando así", respondió Fluttershy, apenada.
 
-El abrazo grupal continuó por unos segundos más hasta que finalmente se separaron. Sin embargo, una apenada Pinkie Pie quedó al lado de Fluttershy con una mirada que suplicaba perdón.
+"No tienes nada de qué avergonzarte, Fluttershy. Eres una gran amiga, y siempre nos recuerdas lo sensibles que debemos ser con los demás", añadió Rarity con un tono reconfortante.
 
-"Está bien, Pinkie Pie, te perdono", dijo Fluttershy. En ese momento, su amiga rosa la abrazó con alegría, haciendo estallar una de sus bombas de confeti.
+"Eso es verdad. Y no lo cambiaríamos ni por un millón de Fluttershy valientes", afirmó Applejack con una sonrisa cálida.
 
-El momento especial había pasado y todas volvieron a sus asientos.
+El abrazo grupal continuó unos segundos más antes de que finalmente se separaran. Sin embargo, Pinkie Pie se quedó al lado de Fluttershy con una mirada suplicante.
 
-"¿Y ahora qué?" preguntó Applejack, mirando hacia Twilight.
+"Está bien, Pinkie Pie, te perdono", dijo Fluttershy con ternura.
+
+En ese instante, Pinkie la abrazó con alegría, haciendo estallar una de sus bombas de confeti, llenando el vagón de diminutos pedazos de papel de colores.
+
+El momento especial había pasado, y todas volvieron a sus asientos.
+
+"¿Y ahora qué?" preguntó Applejack, dirigiendo su atención a Twilight.
 
 "Bien... Rarity, ¿traíste en tu equipaje tus herramientas de confección de moda de emergencia?"
 
-"Siempre, Twilight", respondió Rarity asertiva, abriendo su maleta y haciendo aparecer toda una gama de equipos de confección perfectamente ordenados por tamaño y brillo.
+"Siempre, Twilight", respondió Rarity con firmeza, abriendo su maleta. De ella emergió una impecable colección de herramientas de confección, perfectamente organizadas por tamaño y brillo.
 
-"Entonces, empecemos", anunció Twilight.
+"Entonces, empecemos", anunció Twilight, mientras la determinación comenzaba a brillar en los ojos de sus amigas.
 
-El plan de Twilight consistía en utilizar todos los recursos dentro del vagón del tren para confeccionar ropa y preparar equipos que usarían para enfrentar al Gallo Dragón Titanicus. Por supuesto, este enfrentamiento sería más una distracción, ya que la verdadera tarea recaería en Fluttershy. Ella tendría que volar hasta llegar al cuello de la bestia y, una vez allí, presionar su punto débil hasta derrotarlo. Una misión como esa podría llevar días de planificación y preparación, pero para aquellas ponis que habían pasado por situaciones mucho peores en el pasado, este era otro día más de salvar Equestria.
+[---]
 
-Siguiendo las instrucciones de Twilight, Applejack y Pinkie Pie procedieron a desmantelar los asientos y el suelo del vagón del tren. Fluttershy y Twilight clasificaban los materiales resultantes, mientras Rarity los pulía y, con su magia, les daba una nueva forma, siguiendo los diseños que había improvisado.
+Parte del plan de Twilight consistía en utilizar todos los recursos disponibles en el vagón del tren para confeccionar ropa y preparar equipos que usarían en el enfrentamiento contra el Gallo Dragón Titanicus. Por supuesto, este enfrentamiento sería principalmente una distracción, ya que la tarea principal recaería en Fluttershy. Ella tendría que volar hasta alcanzar el cuello de la bestia y, una vez allí, presionar su punto débil para derrotarla. Una misión de tal magnitud podría requerir días de planificación y preparación, pero para estas ponis, que ya habían enfrentado desafíos mayores en el pasado, este era simplemente otro día más salvando Equestria.
 
-Tan solo diez minutos después de haber empezado, más de la mitad del vagón había desaparecido. Sin embargo, todos los diseños preparados por Rarity y Twilight habían pasado del papel a la realidad.
+Siguiendo las instrucciones de Twilight, Applejack y Pinkie Pie comenzaron a desmantelar los asientos y parte del suelo del vagón del tren. Mientras tanto, Fluttershy y Twilight clasificaban los materiales resultantes, y Rarity los pulía y les daba nueva forma con su magia, siguiendo los diseños improvisados que había elaborado.
 
-"Buen trabajo, chicas", dijo Twilight, abriendo una botella y sirviendo a cada una de sus amigas un vaso de refresco.
+En tan solo diez minutos, más de la mitad del vagón había desaparecido, pero todos los diseños ideados por Rarity y Twilight habían pasado del papel a la realidad.
 
-"¡Yeehaw! ¡Fue más rápido que levantar un granero!" exclamó Applejack, que de un solo trago terminó todo su refresco. Mientras tanto, el resto de las ponis se daban un respiro, bebiendo tranquilamente en los restos de los asientos del tren.
+Había sido una labor extraordinaria.
 
-"No es mi mejor trabajo bajo presión, pero... definitivamente impresionará a ¡mi público!" declaró Rarity orgullosa, limpiándose delicadamente el sudor de su frente con un pañuelo. Detrás de ella, estaban apilados todos los equipos que había creado. No era una exageración decir que era un trabajo impresionante. En muy poco tiempo, había creado una línea completa de trajes ligeros, resistentes al fuego y con un diseño personalizado para cada una de sus amigas.
+"Buen trabajo, chicas", dijo Twilight, con gotas de sudor en la frente, mientras abría una botella y servía un vaso de refresco para cada una de sus amigas.
 
-Por supuesto, las chicas entendían esto muy bien, así que solo podían asentir alegres ante las palabras de Rarity.
+"¡Yeehaw! ¡Fue más rápido que levantar un granero!" exclamó Applejack, terminándose su bebida de un solo trago. Mientras tanto, el resto de las ponis bebían tranquilamente, recuperando el aliento entre los restos de los asientos del tren.
 
-"Bueno, si con 'tu público' te refieres al enorme gallo dragón come ponis que está afuera, uhmm... podría decir que ya está algo impaciente", señaló Pinkie Pie mirando por la ventana.
+"No es mi mejor trabajo bajo presión, pero... definitivamente impresionará a ¡mi público!" declaró Rarity, orgullosa, limpiándose delicadamente el sudor de la frente con un pañuelo. Detrás de ella, se apilaban los equipos que había confeccionado. No era exagerado decir que había sido un trabajo impresionante. En tan poco tiempo, había creado una línea completa de trajes ligeros, resistentes al fuego y diseñados a medida para cada una de sus amigas.
 
-Afuera, el Gallo Dragón Titanicus había levantado la cabeza, pero no las estaba observando a ellas, sino a algún lugar en el horizonte.
+Las chicas entendían esto muy bien y no pudieron hacer más que asentir con alegría ante las palabras de Rarity.
 
-Al observar esto, Twilight entendió de inmediato lo que estaba ocurriendo. El momento de actuar había llegado.
+"Bueno, si con 'tu público' te refieres al enorme gallo dragón come ponis que está afuera, uhm... diría que ya está algo impaciente", señaló Pinkie Pie, mirando por la ventana.
 
-"Prepárense, ponis, la operación 'Pasarela' comienza ahora", exclamó Twilight a las demás, que de inmediato se pusieron de pie. Usando su magia, comenzó a repartir todos los equipos que habían preparado. Applejack, Rarity y Pinkie Pie se equiparon con una visera transparente que combinaba con el color de su pelaje, acompañada de unas botas aislantes, una capa blanca a juego y otros artículos diseñados para la batalla. Twilight también se equipó de la misma manera, aunque su vestimenta tenía un diseño más elaborado. Fluttershy, en cambio, tenía la ropa más sencilla de todas, con excepción de un pendiente similar al que Twilight había dado a Rainbow Dash.
+Afuera, el Gallo Dragón Titanicus había levantado la cabeza, pero no parecía estar observándolas a ellas, sino a algún lugar en el horizonte.
 
-Con todas las ponis en sus posiciones y el resto de los equipos en su lugar, sin más demora, Twilight disipó la protección mágica alrededor del vagón y dio la señal para avanzar.
+Al ver esto, Twilight comprendió de inmediato lo que estaba ocurriendo. El momento de actuar había llegado.
 
-// ------------------------
+"Prepárense, ponis. La operación 'Pasarela' comienza ahora", exclamó Twilight con determinación.
 
-Beak estaba inquieto. Había empezado a sentir una presencia dentro de uno de los vagones del tren, lo cual era inusual ya que no había sentido ninguna desde que había comenzado a vigilar. Si sus sentidos eran correctos, la presencia no parecía ser algo grande, sino más bien algo más pequeño, quizás un ratón.
+De inmediato, todas se pusieron de pie. Usando su magia, Twilight comenzó a repartir los equipos que habían preparado. Applejack, Rarity y Pinkie Pie se equiparon con viseras transparentes que combinaban con el color de su pelaje, botas aislantes, capas blancas a juego y otros artículos diseñados para la batalla. Twilight también se vistió con un equipo similar, aunque su atuendo era más elaborado. Fluttershy, por su parte, llevaba el conjunto más sencillo de todos, salvo por un pendiente especial, idéntico al que Twilight le había dado anteriormente a Rainbow Dash.
 
-En ese momento, una sensación llegó desde el otro extremo dentro de la barrera. Era una sensación de angustia. De inmediato, Beak extendió el cuello, mirando en aquella dirección. Sus plumas se crisparon; no tenía dudas, su amo estaba siendo atacado. Impulsado por una apremiante necesidad de proteger a su verdadero dueño, el enorme gallo dragón se puso de pie.
+Con todas las ponis en sus posiciones y el resto de los equipos en su lugar, Twilight disipó la protección mágica alrededor del vagón y, sin más demora, dio la señal para avanzar.
 
-"PUFFFFFF" se escuchó repentinamente.
+[---]
 
-Fue inesperado. No fue una explosión, sino más bien un sobresalto, una revelación.
+Beak estaba inquieto. Había empezado a percibir una presencia dentro de uno de los vagones del tren, lo cual era inusual, ya que no había sentido nada desde que comenzó a vigilar. Si sus sentidos no lo engañaban, la presencia no parecía ser algo grande, sino más bien algo pequeño... ¿quizás un ratón?
 
-Beak giró su cabeza. El vagón que estaba prácticamente a su lado se abrió; literalmente, todas las paredes del vagón cayeron como escombros a sus costados, revelando un interior hueco y desmantelado.
+De pronto, una sensación diferente lo invadió desde el otro extremo de la barrera. Era una emoción intensa, cargada de angustia. Beak extendió el cuello, mirando hacia esa dirección. Sus plumas se crisparon; no tenía dudas, su amo estaba siendo atacado. Impulsado por una necesidad urgente de proteger a su verdadero dueño, el enorme gallo dragón se puso de pie, listo para acudir en su auxilio.
 
-Pero el vagón no estaba totalmente vacío. Una poni púrpura con alas y cuerno lo observaba fríamente desde los restos del vagón. De inmediato, la reconoció. Era la poni de la que le habían advertido. Esa poni era la responsable de que todas las cosas malas estuvieran sucediendo.
+"PUFFFFFF", se escuchó de repente.
 
-La ira de Beak comenzó a acumularse en su interior hasta que finalmente se liberó como un torrente de llamas.
+El sonido no era una explosión, sino más bien un sobresalto inesperado, una revelación.
 
-El disparo de fuego se mantuvo continuo por varios segundos, hasta que finalmente se calmó. Beak observó satisfecho los restos calcinados del vagón, donde su objetivo debería haberse consumido por completo. Sin embargo, de las cenizas y el humo, una misteriosa luz púrpura comenzó a divisarse. Beak, sorprendido, observó a la poni púrpura completamente intacta, protegida dentro de una burbuja de magia.
+Beak giró la cabeza. El vagón que tenía a su lado literalmente colapsó: todas las paredes cayeron como escombros a los costados, dejando al descubierto un interior desmantelado.
 
-Entonces, la burbuja se disipó y la poni púrpura se elevó por encima de él en un destello de magia.
+Sin embargo, el vagón no estaba completamente vacío. Una poni púrpura con alas y un cuerno lo observaba fríamente desde los restos. Beak la reconoció al instante. Era la poni de la que le habían advertido. La responsable de todo el caos que estaba ocurriendo.
 
-A Beak no le gustaba esto. Aquella pequeña poni era molesta. Su fuego no le había hecho daño y ahora lo observaba sin miedo alguno desde arriba, con un aire de superioridad. Era insolente, casi parecía tener una expresión de felicidad. A Beak esto le causaba aún más rabia; si su fuego no podía lastimarla, entonces la aplastaría con sus garras.
+La ira de Beak comenzó a acumularse como un torrente que finalmente se liberó en forma de llamas abrasadoras.
 
-Las alas del poderoso gallo dragón se extendieron, listas para elevar a Beak hacia el cielo. Con toda su atención concentrada en la poni encima suyo, no notó unos pequeños barriles que habían rodado debajo de él.
+El disparo de fuego fue continuo durante varios segundos, hasta que finalmente se calmó. Beak miró satisfecho los restos calcinados del vagón, seguro de que su objetivo había sido reducido a cenizas. Pero entonces, a través del humo y las cenizas, una luz púrpura comenzó a brillar. Para su sorpresa, la poni seguía allí, completamente ilesa dentro de una burbuja de magia.
 
-Entonces, unas explosiones estallaron debajo del poderoso Gallo Dragón Titanicus, sorprendiéndolo y paralizándolo por unos segundos. Aquellos estallidos no le causaron ningún daño, sino que más bien llenaron todo el ambiente de un brillante confeti blanco. Beak agitó las alas buscando alejarse de ahí, pero no se elevó. Sorprendido, Beak descubrió entonces que las plumas de sus alas se encontraban embarradas por pegajosas cintas blancas que entorpecían sus movimientos. Abajo de él, unas figuras blancas semejantes a ratones corrían en todas direcciones, esparciendo más de esas cintas pegajosas a su alrededor.
+La burbuja se disipó, y la poni púrpura se elevó por encima de él en un destello de magia.
 
-Beak estaba furioso, entonces la bestia hizo estallar en fuego todo a su alrededor, quemando el prado y parte del tren que estaba cerca de él. Los ratones blancos desaparecieron, pero fueron reemplazados por ponis de distintos colores. Beak los reconoció, eran los cómplices de aquella princesa. Ellos también tenían que ser destruidos. Un desenfrenado ataque de fuego comenzó a desatarse, mientras Beak perseguía a cada uno de los ponis buscando aplastarlos con sus garras. Desde arriba, la princesa poni lo atacaba con rayos de magia, haciéndolo fallar cada vez que estaba cerca de atrapar alguno de ellos.
+Beak no estaba acostumbrado a esto. Aquella pequeña poni era irritante. Su fuego no había logrado dañarla, y ahora lo miraba desde arriba con una expresión que casi parecía de felicidad. Insolente. La furia de Beak creció aún más. Si su fuego no podía destruirla, entonces la aplastaría con sus garras.
 
-La frenética batalla continuó con los ponis lanzándole todo tipo de proyectiles desde el suelo y con la princesa poni frenándolo desde arriba.
+El poderoso gallo dragón extendió sus enormes alas, preparándose para alzar el vuelo. Con toda su atención centrada en la poni, no notó los pequeños barriles que habían rodado debajo de él.
 
-Pero los esfuerzos de todos esos ponis eran inútiles. Beak era fuerte, aquellos ataques apenas le causaban alguna molestia. Él tenía una gran resistencia y los ponis no. Pronto se cansarían y Beak acabaría con ellos uno por uno. Pero entonces, Beak empezó a sentir que algo no estaba bien. Un mareo lo hizo tambalearse y luego sintió una extraña presión en su garganta. Intentó alcanzar su cuello, pero una parálisis llegó a sus extremidades, inmovilizándolo. Todo empezaba a darle vueltas. Miedo, Beak sentía miedo, no entendía lo que estaba pasando. Sin embargo, esa emoción no perduró, fue reemplazada poco a poco por una sensación de calidez que empezaba a invadirlo.
+De pronto, varias explosiones resonaron bajo sus patas, acompañadas por una lluvia de confeti brillante. Beak retrocedió, sorprendido, pero no lastimado. Al intentar desplegar sus alas, descubrió que estaban cubiertas de pegajosas cintas blancas que impedían sus movimientos. Abajo, pequeñas figuras blancas, parecidas a ratones, corrían de un lado a otro, esparciendo más cintas a su alrededor.
 
-Beak extendió sus alas intentando alcanzar una misteriosa luz en el cielo, mientras todo a su alrededor se oscurecía. En aquella luz estaba la imagen de su amo, la única persona que había cuidado de él, tan remota como una visión lejana. La sonrisa de aquel poni de melena rosada fue lo último que vio.
+La furia de Beak alcanzó su punto máximo. Lanzó un torrente de fuego que quemó el prado y parte del tren cercano, destruyendo a los ratones blancos. Pero estos fueron rápidamente reemplazados por ponis de colores. Beak los reconoció: eran los cómplices de la princesa. También tenían que ser eliminados.
 
-// ----------------------
+El dragón inició un ataque desenfrenado, lanzando fuego y persiguiéndolos con sus garras. Desde el cielo, la princesa lo atacaba con rayos mágicos, interrumpiendo cada intento de capturar a sus aliados.
+
+La frenética batalla continuó. Los ponis le lanzaban proyectiles desde el suelo mientras la princesa lo mantenía ocupado desde arriba.
+
+Pero los esfuerzos de los ponis parecían inútiles. Beak era demasiado fuerte, y aquellos ataques apenas lo afectaban. Su resistencia era enorme, mientras que las ponis comenzaban a cansarse. Pronto, él terminaría con todos ellos.
+
+Entonces, algo cambió. Beak comenzó a sentirse extraño. Un mareo lo obligó a tambalearse, y una extraña presión apareció en su garganta. Intentó alcanzar su cuello, pero una parálisis se extendió por sus extremidades, inmovilizándolo. Todo a su alrededor comenzó a girar.
+
+El miedo lo invadió. Beak no entendía lo que estaba sucediendo, pero esa emoción pronto fue reemplazada por una sensación de calidez que lo envolvía lentamente.
+
+En medio de su inevitable desmayo. Extendió sus alas en un último intento por alcanzar una misteriosa luz en el cielo. En ella, apareció la imagen de su amo, el único que había cuidado de él. Remota como un sueño, la sonrisa de aquel poni de melena rosada fue lo último que Beak vio antes de sumirse en la oscuridad.
+
+[---]
+
+En otro lurgar ...
 
 En el interior de una habitación ovalada, bañada en la cálida luminiscencia emitida por un imponente orbe dorado, cuatro figuras permanecían inmersas en un estado de contemplación. Sus miradas estaban fijas en las imágenes que se reflejaban en un estanque encantado.
 
@@ -187,7 +214,7 @@ Sin embargo, la situación en la que se encontraban en ese momento desafiaba aqu
 
 Su opinión era compartida por todos los demás caballeros presentes que observaban la escena en el gran estanque de agua en el centro de la habitación. Este estanque funcionaba como un espejo que mostraba un lugar específico dentro de la gran barrera y había sido usado por los caballeros para espiar a Twilight y sus amigas desde el primer momento en que habían sido encerradas.
 
-Ahora, ese espejo de agua mostraba cómo el último de sus peones destinados a derrotar a la princesa y sus aliadas sucumbía a un masaje en el cuello.
+Ahora, ese espejo de agua mostraba cómo el último y mas grande de sus peones destinados a derrotar a la princesa y sus aliadas sucumbía a un masaje en el cuello.
 
 Aunque nadie lo mencionó en voz alta, el pensamiento era compartido. Habían subestimado a las ponis.
 
