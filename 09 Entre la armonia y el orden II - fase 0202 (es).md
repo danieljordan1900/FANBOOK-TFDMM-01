@@ -54,31 +54,31 @@ Las lágrimas de Dash cayeron al suelo. Con ellas se desvaneció lo que quedaba 
 
 [---]
 
-Morrigan, portadora del elemento de la fe, terminó de colocar la diadema de cuerno de alicornio en la cabeza del poni que ahora poseía. El cuerpo le resultaba familiar; ya en ocasiones anteriores había tomado el control de Badwhiz con el objetivo de encontrar los mejores métodos para causar sufrimiento y dolor a un poni. A pesar de las advertencias de Balor sobre los posibles efectos secundarios de abusar de su juguete, Morrigan nunca se preocupó por el daño que pudiera causar. De hecho, estaba bastante segura de que el niño había desarrollado una gran resistencia al estrés y la parálisis, lo cual, hasta cierto punto, le resultaba molesto.
+Morrigan, portadora del elemento de la Fe, ajustó cuidadosamente la diadema de cuerno de alicornio en la cabeza del poni que ahora poseía. El cuerpo le resultaba familiar; en ocasiones anteriores había tomado el control de Badwhiz con el propósito de perfeccionar sus métodos para infligir sufrimiento y dolor a un poni. A pesar de las advertencias de Balor sobre los posibles efectos secundarios de abusar de su "juguete", Morrigan nunca se preocupó por el daño que pudiera causarle. De hecho, estaba convencida de que el niño había desarrollado una notable resistencia al estrés y la parálisis, lo cual, hasta cierto punto, le resultaba molesto.
 
-"Tu sirviente se disculpa, Lady Morrigan. Debido a mi incompetencia, yo..." dijo Badwhiz, cuya figura se proyectaba como un poni de sombras junto a su propio cuerpo. Esta nueva figura de Badwhiz tenia la misma forma que su yo verdadero, pero era carente de un fisico estable.
+"Tu sirviente se disculpa, Lady Morrigan. Debido a mi incompetencia, yo..." dijo Badwhiz, cuya figura se proyectaba como un poni de sombras junto a su propio cuerpo. Esta forma etérea de Badwhiz tenía la misma apariencia que su yo físico, pero carecía de consistencia estable.
 
-"No es a mí a quien debes disculparte, niño, sino a nuestro sub-líder", respondió Morrigan con tono altivo y cortante.
+"No es a mí a quien debes disculparte, niño, sino a nuestro sub-líder", respondió Morrigan con un tono altivo y cortante.
 
-Un apesadumbrado Badwhiz bajó la cabeza, incapaz de decir más.
+Un apesadumbrado Badwhiz bajó la cabeza, incapaz de replicar.
 
-"Umph... no importa. Ahora nosotros tomaremos parte activa en la batalla. ¿Tienes algo más que reportar?" dijo Morrigan mientras observaba el cuerpo inmovilizado de Rainbow Dash. La pegaso estaba de pie firmemente, con los ojos totalmente oscurecidos por la magia de control mental.
+"Umph... no importa. Ahora nosotros tomaremos parte activa en la batalla. ¿Tienes algo más que reportar?" preguntó Morrigan mientras dirigía su mirada al cuerpo inmovilizado de Rainbow Dash.
 
-Sí, este era el aterrador poder de Morrigan, capaz de doblegar la voluntad de los más fuertes con solo su pensamiento. Tal era su dominación que incluso podría llegar a someter a sus otros compañeros caballeros si se lo propusiera. Los únicos capaces de resistirle serían Balor y Taranis, quienes habían tenido un duro entrenamiento para fortalecer sus mentes contra tales artes mágicas.
+La pegaso permanecía de pie, rígida, con los ojos completamente oscurecidos por la magia de control mental. Este era el aterrador poder de Morrigan, capaz de someter la voluntad de los más fuertes con solo un pensamiento. Su dominio era tal que incluso podría doblegar a sus compañeros caballeros si lo deseara. Los únicos capaces de resistirle eran Balor y Taranis, quienes habían pasado por un arduo entrenamiento para fortalecer sus mentes contra tales artes mágicas.
 
-Rainbow Dash, que no contaba con semejante entrenamiento, cayó fácilmente bajo su control en el primer segundo en que Morrigan se manifestó.
+Rainbow Dash, carente de semejante preparación, había caído fácilmente bajo su control en cuanto Morrigan se manifestó.
 
-"Noté que aquella poni tenía un cristal mágico en su melena. Puede que lo usara para hacerse invisible", respondió Badwhiz rápidamente.
+"Noté que esa poni tenía un cristal mágico en su melena. Podría haberlo usado para volverse invisible", informó Badwhiz rápidamente.
 
-Morrigan, utilizando su magia de control mental, ordenó a Rainbow Dash que le entregara todo lo que estuviera ocultando. Poco después, Rainbow Dash dejó caer la última de sus pertenencias delante de ella.
+Sin demora, Morrigan utilizó su magia de control mental para ordenar a Rainbow Dash que entregara cualquier cosa que estuviera ocultando. Poco después, la pegaso dejó caer todas sus pertenencias frente a ella.
 
-"Basura...", pensó molesta la gran ave 'Urutaú', revisando la pila de objetos que Dash había dejado. Entonces se percató de un brillante cristal celeste que parecía irradiar una luz única.
+"Basura...", pensó Morrigan, visiblemente molesta, mientras revisaba la pila de objetos. Sin embargo, algo llamó su atención: un cristal celeste que brillaba con una luz única.
 
-Aquel cristal tenía magia, pero una magia... que le resultaba muy familiar.
+Aquel cristal contenía magia, pero una magia... que le resultaba inconfundiblemente familiar.
 
-"Ceridwen tiene que ver esto...", pensó Morrigan mientras daba unos pasos hacia adelante, sin prestar atención a Badwhiz.
+"Ceridwen tiene que ver esto...", pensó Morrigan mientras avanzaba unos pasos hacia adelante, ignorando por completo la presencia de Badwhiz.
 
-Entonces, la atención de Morrigan regresó al lugar donde se encontraban reunidos sus otros camaradas.
+Entonces, su atención regresó al lugar donde se encontraban reunidos sus otros camaradas.
 
 [---]
 
@@ -172,7 +172,7 @@ Por su parte, la aparentemente derrotada Morrigan levantó la mirada hacia el te
 
 Este fue el modo en que el caballero del orden, portador del elemento de la fe, pagó su deuda. Para Morrigan, el perdón no era un regalo divino, sino un desahogo de lástima que se prestaba y que maldecía el alma si no se retribuía prontamente. El perdón otorgado por Balor la noche anterior era algo que no permitiría pasar ni por un día.
 
-------------
+[---]
 
 Nuevamente, la atención de Morrigan regresó a la cima de la colina, donde un leal Badwhiz hecho de sombras la esperaba de pie detrás de su propio cuerpo vacío de conciencia.
 
