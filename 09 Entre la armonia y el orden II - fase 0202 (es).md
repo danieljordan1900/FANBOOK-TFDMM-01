@@ -1,55 +1,59 @@
 
-Rainbow Dash terminó de ajustar el nudo de la cuerda atada a su cintura. En el otro extremo de la cuerda se encontraba Badwhiz, amarrado y listo para ser llevado junto al resto de sus amigas. Ya lo había levantado antes, así que estaba segura de que no sería ningún problema trasladarlo de este modo hasta allá.
+Rainbow Dash terminó de ajustar el nudo de la cuerda atada a su cintura. En el otro extremo de la cuerda estaba Badwhiz, amarrado y listo para ser llevado junto al resto de sus amigas. Ya lo había levantado antes, así que estaba segura de que no sería ningún problema trasladarlo de este modo hasta allá.
 
-"¡Perfecto! Disculpa si no he sido lo suficientemente delicada contigo, niño, pero tengo prisa por terminar este espectáculo de tu supuesta revancha e ir a Canterlot con mis amigas para preparar una auténtica fiesta", dijo la despreocupada pegaso, estirando sus alas listas para partir.
+"¡Perfecto! Disculpa si no he sido lo suficientemente delicada contigo, niño, pero tengo prisa por terminar este teatro de tu supuesta revancha e ir a Canterlot con mis amigas para preparar un verdadero espectáculo para todos", dijo despreocupada la pegaso, mientras estiraba sus alas, listas para partir.
 
-En el suelo yacía boca abajo su enemigo, "Vainilla". Había estado inmóvil desde el sometimiento del Gallo Dragón Titanicus, así que la pegaso arcoíris imaginó que finalmente había aceptado la derrota y no intentaría nada más.
+En el suelo yacía boca abajo su enemigo, "Vainilla". Había permanecido inmóvil desde la derrota del Gallo Dragón Titanicus, por lo que Rainbow Dash asumió que finalmente había aceptado su derrota y no intentaría nada más.
 
-"¡Bien, Vainilla o quien seas, en marcha...!" exclamó Rainbow Dash alegre.
+"¡Bien, Vainilla, o quien seas, en marcha...!" exclamó Rainbow Dash alegremente.
 
-"Se llama Badwhiz, niña ...", interrumpió una voz desconocida.
+"Se llama Badwhiz, niña...", interrumpió una voz desconocida.
 
-De inmediato, Rainbow Dash se puso en alerta. La pegaso se volteó y miró a su alrededor, agudizando sus sentidos. Pero aparte del niño amarrado, no había nadie más. Entonces, aquella voz venía de...
+De inmediato, Rainbow Dash se puso en alerta. Se giró rápidamente y escudriñó los alrededores, agudizando sus sentidos. Pero, aparte del niño atado, no había nadie más. Entonces, aquella voz provenía de...
 
-"...harias bien en recordarlo", concluyó la misteriosa voz que provenía de Badwhiz. Abajo, el poni atado levantó la cabeza y cruzó miradas con Rainbow Dash. 
+"...harías bien en recordarlo", concluyó la misteriosa voz, que salía de Badwhiz. En el suelo, el poni atado levantó la cabeza y cruzó miradas con Rainbow Dash.
 
-Rainbow Dash se sobresalto ante aquella mirada.
+Rainbow Dash se sobresaltó ante aquella mirada.
 
-Los ojos de Badwhiz ya no eran los mismos; ahora estaban tan oscuros que casi parecían huecos. Solo eran visibles sus pupilas, que parecían luces fatuas en la noche. Todo esto daba a su mirada un aspecto siniestro.
+Los ojos de Badwhiz ya no eran los mismos. Ahora estaban tan oscuros que parecían huecos, con las pupilas brillando como luces fatuas en la noche. Su expresión siniestra le heló la sangre.
 
-"¿Espera qué?" exclamó sorprendida Dash. Pero la conmoción no terminó ahí. Una magia oscura pareció envolver el cuerpo de Badwhiz, tomando la forma de unas afiladas púas negras. Estas comenzaron a recorrer todo su cuerpo cortando sus ataduras. Pronto se puso de pie, desplegando sus oscuras alas; entonces su armadura de alicornio cambió de un tono negro a uno de brillante rosa claro.
+"¿Espera, qué?" exclamó Dash, confundida. Pero la conmoción no terminó ahí. Una magia oscura comenzó a envolver el cuerpo de Badwhiz, formando afiladas púas negras que recorrieron su cuerpo y cortaron sus ataduras. Pronto se puso de pie, desplegando sus alas oscuras, mientras su armadura de alicornio cambiaba de un tono negro a un brillante rosa claro.
 
 Badwhiz Starheart era libre, pero solo su cuerpo físico lo era...
 
-"Veo que no me reconoces. Es tan lamentable... una pobre poni salvaje obligada a librar las batallas que su princesa no puede", dijo la misteriosa voz con un desconcertante tono compasivo. "Déjame ayudarte a liberarte de este injusto peso".
+"Veo que no me reconoces. Qué lamentable... Una pobre poni salvaje, obligada a librar las batallas que su princesa no puede", dijo la misteriosa voz con un desconcertante tono compasivo. "Déjame ayudarte a liberarte de este injusto peso".
 
 Una espiral oscura surgió del cuerpo de Badwhiz y, como un remolino empujado por el viento, se dirigió hacia Rainbow Dash.
 
-La pegaso no tenía idea de lo que estaba pasando. La extraña voz que ahora surgía de 'Vainilla' le resultaba familiar, pero no podía recordar de dónde. Lo que sí intuyó de inmediato fue que aquel remolino de magia oscura que se dirigía hacia ella definitivamente no era algo bueno.
+La pegaso no sabía qué estaba pasando. Aquella voz que ahora emergía de "Vainilla" le resultaba vagamente familiar, pero no lograba recordar de dónde. Lo único que entendía era que ese remolino de magia oscura que se dirigía hacia ella no auguraba nada bueno.
 
-De un aleteo, Rainbow Dash alzó vuelo para alejarse de la misteriosa entidad que había tomado el control de Vainilla. Atrás quedó el remolino, que se disolvió en el aire.
+De un poderoso aleteo, Rainbow Dash alzó el vuelo para escapar de la misteriosa entidad que había poseído a Badwhiz. Atrás quedó el remolino, que se desvaneció en el aire.
 
-"¡Baja, por favor! ¡La carga que llevas encima es demasiado grande! ¡Te lastimarás!" exclamó angustiada la misteriosa entidad.
+"¡Baja, por favor! ¡La carga que llevas encima es demasiado grande! ¡Te lastimarás!" exclamó angustiada la entidad.
 
-"No sé de qué hablas, ¿Badwhiz?... ¿señora? ¿Quién rayos eres?" preguntó Dash, confundida por la identidad de quien estaba hablando con ella. Ya había entendido que el nombre real de Vainilla era Badwhiz, pero no era él con quien hablaba ahora, sino que estaba siendo poseído por alguien más.
+"No sé de qué hablas, ¿Badwhiz?... ¿Señora? ¿Quién rayos eres?" preguntó Dash, confundida. Ya había entendido que el nombre real de "Vainilla" era Badwhiz, pero sabía que no era él quien hablaba ahora; alguien más lo controlaba.
 
-"¡Oh, pobre niña! Parece que es demasiado tarde. Tu orgullo ya te está consumiendo..." lamentó la voz.
+"¡Oh, pobre niña! Parece que es demasiado tarde. Tu orgullo ya te está consumiendo...", lamentó la voz.
 
-Rainbow Dash parpadeó por un momento, intentando entender esas palabras. Entonces, notó con horror que en sus cascos comenzaban a brotar manchas oscuras de su piel. La pegaso, aterrada, agitó sus cascos intentando desprenderse de aquellas marcas, pero solo logró que se hicieran más grandes y se extendieran a otras partes de su cuerpo. Desesperada, emprendió el vuelo a toda velocidad hacia donde estaban sus amigas, pero ya era demasiado tarde.
+Rainbow Dash parpadeó, intentando entender esas palabras. Fue entonces cuando notó con horror que manchas oscuras comenzaban a brotar en sus cascos. La pegaso, aterrada, agitó sus cascos tratando de desprenderse de aquellas marcas, pero solo logró que se extendieran más rápido por su cuerpo.
 
-"¡No! ¡No!" gritó Dash al ver cómo las plumas de sus alas se desprendían, consumidas por la negrura que se apoderaba de su cuerpo. Cayó al suelo no muy lejos de donde estaban Twilight y las demás.
+Desesperada, emprendió el vuelo a toda velocidad hacia donde estaban sus amigas, pero ya era demasiado tarde.
 
-Juntando toda su fuerza de voluntad, corrió lo más lejos que pudo para alcanzar a sus amigas, pero con cada paso que daba, sentía que una parte de ella se desprendía de su cuerpo acompañada de un inmenso dolor.
+"¡No! ¡No!" gritó Dash, viendo cómo las plumas de sus alas se desprendían, consumidas por la negrura que avanzaba sin piedad. Cayó al suelo, no muy lejos del lugar donde había visto por última vez a Twilight y las demás.
 
-"¡No mires atrás! ¡No mires atrás!" se reprendía a sí misma la pegaso, casi arrastrándose, aguantando las ganas de gritar. A unos pasos de ella estaba la silueta de Twilight; la alcanzaría y entonces ella podría...
+Con las pocas fuerzas que le quedaban, corrió hacia las figuras de sus amigas. Pero con cada paso que daba, sentía que partes de su cuerpo se desmoronaban, acompañadas de un dolor insoportable.
 
-"¡Twilight, Twilight! ... ¿Twilight?" no pudo decir más. La pegaso conmocionada descubrió que las figuras de sus amigas que había visto eran, en realidad, estatuas de piedra derruidas por el tiempo, frías y carentes de brillo, con expresiones de dolor y angustia.
+"¡No mires atrás! ¡No mires atrás!" se repetía, arrastrándose y luchando contra el pánico. Finalmente, distinguió la silueta de Twilight a lo lejos. La alcanzaría. Ella podría...
 
-Solo la figura de Twilight se mantenía intacta, pero con una mirada que reflejaba una gran lástima y decepción.
+"¡Twilight, Twilight!... ¿Twilight?"
 
-Las lágrimas de Dash cayeron al suelo y con ellas lo que restaba de su conciencia.
+Rainbow Dash se detuvo, conmocionada. Las figuras que había visto no eran sus amigas, sino estatuas de piedra, desgastadas por el tiempo. Frías, inertes, y marcadas con expresiones de dolor y desesperación.
 
------------------------------------------
+Solo la figura de Twilight permanecía intacta, pero su mirada reflejaba una profunda lástima y decepción.
+
+Las lágrimas de Dash cayeron al suelo. Con ellas se desvaneció lo que quedaba de su conciencia.
+
+[---]
 
 Morrigan, portadora del elemento de la fe, terminó de colocar la diadema de cuerno de alicornio en la cabeza del poni que ahora poseía. El cuerpo le resultaba familiar; ya en ocasiones anteriores había tomado el control de Badwhiz con el objetivo de encontrar los mejores métodos para causar sufrimiento y dolor a un poni. A pesar de las advertencias de Balor sobre los posibles efectos secundarios de abusar de su juguete, Morrigan nunca se preocupó por el daño que pudiera causar. De hecho, estaba bastante segura de que el niño había desarrollado una gran resistencia al estrés y la parálisis, lo cual, hasta cierto punto, le resultaba molesto.
 
@@ -77,13 +81,13 @@ Aquel cristal tenía magia, pero una magia... que le resultaba muy familiar.
 
 Entonces, la atención de Morrigan regresó al lugar donde se encontraban reunidos sus otros camaradas.
 
--------------
+[---]
 
 En la sala de guerra de los caballeros del orden.
 
-"¿Qué ocurre, Morrigan?" preguntó Mannah, quien había percibido cómo el pensamiento de su compañera regresaba a su cuerpo real. Junto a él, los otros caballeros habían visto todo lo que había sucedido en la colina a través del estanque encantado, el cual se había dividido para mostrar también lo que estaba haciendo la princesa.
+"¿Qué ocurre, Morrigan?" preguntó Mannah, quien había percibido cómo el pensamiento de su compañera regresaba a su cuerpo real. Junto a él, los otros caballeros habían visto todo lo que había sucedido en la cima de la colina a través del estanque encantado, el cual se había dividido para mostrar también lo que estaba haciendo la princesa y las otras ponis cerca del tren.
 
-"Mis disculpas, Gran Sub-líder. Pero requiero verificar un cierto hallazgo con mi compañera Ceridwen", dijo Morrigan casi sin prestar atención a la dura mirada de Mannah.
+"Mis disculpas, Gran Sub-líder. Pero requiero verificar un cierto hallazgo con mi compañera Ceridwen", dijo Morrigan sin prestar atención a la dura mirada de Mannah.
 
 "¿De qué se trata?" preguntó Ceridwen intrigada.
 
@@ -119,11 +123,11 @@ Morriga y Ceridwen, ambos caballeros del orden se observaron fríamente por unos
 
 "Uhmp...", Ceridwen medito sus palabras "Vea, Sub-líder Mannah, el cristal recientemente hallado por la compañera Morrigan es un cristal de transmutación de magia arcana de gama completa. Dada la pureza de su forma y la radiación de su esencia mágica, me llevan a concluir que es muy cercano en calidad a nuestros propios cristales forjados en el Templo de la Armonía de Cunabula. Esto a su vez implica que nuestros enemigos conocen la manipulación de la magia de la armonía en un nivel cercano al nuestro. La presente operación de captura que llevamos a cabo implica el uso de un artefacto que absorbe esta misma magia, y de ser empleado, es muy posible que nuestros enemigos presenten una gran resistencia al proceso de absorción mágica, frustrando así el éxito de la operación."
 
-Mannah no era un ignorante; conocía los conceptos mágicos básicos. Sin embargo, había algo en los tecnicismos arcanos que siempre lo confundía. No deseaba compartir sus dudas con sus compañeros, ya que lo harían ver como alguien incapaz de comprender estos importantes temas. Así que lo más prudente era delegar esa tarea a alguien más.
+Mannah no era un ignorante; conocía los conceptos mágicos básicos. Sin embargo, había algo en los tecnicismos arcanos que siempre lo confundía. No deseando compartir sus dudas con sus compañeros, ya que si lo hacia podria verse como alguien incapaz de comprender estos importantes temas. Descidio que lo más prudente era delegar esa tarea a alguien más.
 
-"Compañero Taranis comparte la misma preocupación que la compañera Ceridwen", señaló Mannah, esperando una respuesta más detallada por parte de Taranis.
+"Compañero Taranis comparte la misma preocupación que la compañera Ceridwen", señaló Mannah, esperando obtener una respuesta más detallada por parte de su subordinado.
 
-Taranis, que se encontraba a su lado, dijo "Sí" casi sin pensarlo, pero la mirada de Mannah se volvió más dura. Tras unos incómodos segundos, el Ofiotauro por fin comprendió que su sub-líder esperaba algo más que un simple "Sí". Entonces se aclaró la garganta y agitó su báculo, llamando la atención de todos.
+Taranis, que se encontraba a su lado, dijo "Sí" con marcialidad pero nada mas, a lo que la mirada de Mannah se volvió más dura. Tras unos incómodos segundos de esta escena, el Ofiotauro por fin comprendió que su sub-líder esperaba algo más que un simple "Sí". Entonces se aclaró la garganta y agitó su báculo, llamando la atención de todos.
 
 "Ya que el oponente utiliza el mismo tipo de herramientas mágicas que nosotros, hemos perdido la principal ventaja que teníamos sobre ellos. Continuar ahora sería bajo un escenario donde el enfrentamiento se daría en igualdad de condiciones, lo cual debilita considerablemente nuestra estrategia inicial de capturar a la princesa poni y sus aliadas desde una posición ventajosa", declaró Taranis con un aire ominoso.
 
@@ -147,7 +151,7 @@ Ahora todos en la habitación entendían lo que pasaba. Mannah levantó uno de s
 
 "Existe otra posibilidad de que el cristal haya sido construido a partir de otro. Sin embargo, dado el escaso tiempo que ha pasado desde su transmutación, no nos cabe duda de que fue elaborado poco después de que se levantara la gran barrera. La única persona que podría haberlo hecho en ese intervalo de tiempo es la odiosa princesa que porta el elemento de la magia. ¿No es así, compañera Ceridwen?" respondió Morrigan en lugar de su compañera, manteniendo una mirada firme sobre Mannah.
 
-"Sí, así es", confirmó Ceridwen.
+"Sí, así es", confirmó Ceridwen reprimiendo su amargura.
 
 No era sorprendente el amplio conocimiento de Morrigan en estos temas. Ella contaba con muchos contactos dentro de la cofradía del Templo de Cunabula. Incluso había participado en numerosas ocasiones en las ceremonias de purificación, a pesar de ser miembro de la hermandad de caballeros. Tal era su influencia que podría convertirse en la próxima líder de los caballeros del orden si se diera algún impase con el líder actual.
 
