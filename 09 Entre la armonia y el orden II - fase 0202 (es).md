@@ -174,20 +174,30 @@ Este fue el modo en que el caballero del orden, portador del elemento de la fe, 
 
 [---]
 
-Nuevamente, la atención de Morrigan regresó a la cima de la colina, donde un leal Badwhiz hecho de sombras la esperaba de pie detrás de su propio cuerpo vacío de conciencia.
+Nuevamente, la atención de Morrigan regresó a la cima de la colina, donde un leal Badwhiz hecho de sombras la esperaba de pie, detrás de su propio cuerpo vacío de conciencia.
 
-"Bueno, niño, nuestro Gran sub-líder me relevará en el control mental de este cuerpo. No te preocupes por esa pegaso. Mi dominio sobre ella se mantendrá aunque no esté, además compartiré mi control mental contigo". Al decir esto, un halo de luz negra iluminó brevemente el cuerpo de sombra de Badwhiz. "Por favor, sé comprensivo con las limitadas virtudes de nuestro sub-líder. Él no está tan familiarizado con la posesión de cuerpos como yo, ni tampoco dispone de mi gran paciencia... así que, por tu propio bien, procura que no se repita lo de hace un momento".
+Sin voltearse, Morrigan comenzó a hablar:
 
-"Por supuesto, Lady Morrigan", respondió Badwhiz seriamente.
+"Bueno, niño, nuestro gran sub-líder me relevará en el control mental de este cuerpo. No te preocupes por esa pegaso. Mi dominio sobre ella se mantendrá aunque no esté presente. Además, compartiré mi control mental contigo".
 
-"Bien. Entonces, adiós, mini-danu. Ju ju". Al terminar su burla, la conciencia de Morrigan abandonó el cuerpo real de Badwhiz y fue reemplazada de inmediato por otra. Badwhiz sabía bien quién era al ver la nueva tonalidad azul de su armadura de alicornio.
+Mientras decía esto, un halo de luz negra iluminó brevemente el cuerpo sombrío de Badwhiz.
 
-"Lord Mannah, sea bienvenido. Su sirviente espera sus órdenes", dijo el poni de sombras Badwhiz inclinándose.
+"Por favor, sé comprensivo con las limitadas virtudes de nuestro sub-líder. Él no está tan familiarizado con la posesión de cuerpos como yo, ni tampoco dispone de mi gran paciencia... así que, por tu propio bien, procura que no se repita lo de hace un momento".
 
-"Excelente, para empezar, olvida lo que dijo esa vieja bruja. Mis habilidades elementales son muy superiores a las suyas, y tengo una gran paciencia para aquellos que me obedecen. ¿Está claro, escudero Badwhiz?"
+"Por supuesto, Lady Morrigan", respondió Badwhiz con seriedad.
 
-"Entiendo perfectamente, mi lord", respondió Badwhiz con marcialidad. Aunque en el fondo, el joven poni tenía dudas sobre si era verdad lo que había dicho Mannah.
+"Bien. Entonces, adiós, mini-Danu. Ju ju".
 
-"Ahora, entonces, escucha atentamente mis palabras...", dijo Mannah volteándose para ver el horizonte en dirección a donde se encontraban Twilight y sus amigas.
+Al terminar su burla, la conciencia de Morrigan abandonó el cuerpo real de Badwhiz, siendo reemplazada de inmediato por otra. Badwhiz no necesitó más pistas: reconoció a la nueva presencia al instante al notar la tonalidad azul que ahora teñía la armadura de alicornio.
+
+La nueva presencia se dirigió hacia él.
+
+"Lord Mannah, sea bienvenido. Su sirviente espera sus órdenes", dijo el poni de sombras Badwhiz, inclinándose respetuosamente.
+
+"Excelente. Para empezar, olvida lo que dijo esa vieja bruja. Mis habilidades elementales son muy superiores a las suyas, y tengo una gran paciencia con aquellos que me obedecen. ¿Está claro, escudero Badwhiz?"
+
+"Entiendo perfectamente, mi lord", respondió Badwhiz con marcialidad, aunque en el fondo albergaba dudas sobre la veracidad de las palabras de Mannah.
+
+"Ahora, escucha atentamente mis instrucciones...", dijo Mannah, mientras se giraba para observar el horizonte en dirección a donde se encontraban Twilight y sus amigas.
 
 
