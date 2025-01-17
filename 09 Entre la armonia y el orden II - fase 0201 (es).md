@@ -200,35 +200,37 @@ En medio de su inevitable desmayo. Extendió sus alas en un último intento por 
 
 [---]
 
-En otro lurgar ...
+En otro lugar...
 
-En el interior de una habitación ovalada, bañada en la cálida luminiscencia emitida por un imponente orbe dorado, cuatro figuras permanecían inmersas en un estado de contemplación. Sus miradas estaban fijas en las imágenes que se reflejaban en un estanque encantado.
+En el interior de una habitación ovalada, bañada por la cálida luminiscencia de un imponente orbe dorado, cuatro figuras permanecían inmersas en un estado de contemplación. Sus miradas estaban fijas en las imágenes reflejadas en el estanque encantado a sus pies.
 
-Estos eran los miembros destacados de los Caballeros del Orden, individuos considerados las máximas eminencias entre las seis razas influyentes en el bendito reino de Cunabula. Taranis (Ofiotauro), cuya forma combinaba la majestuosidad de un toro con la agilidad de una serpiente, irradiaba una sensación de serena fortaleza. Morrigan (Urutaú), una imponente ave de ojos oscuros y plumaje blanco, destilaba una presencia magnética. Ceridwen (Quetzalkan), con sus plumas vibrantes en tonos rojos y verdes, presentaba rasgos avianos en la parte superior y una silueta de serpiente elegantemente esculpida en la inferior. Y por encima de todos ellos se alzaba Mannah (Akhtubut Qirshin), con su pequeño cuerpo gelatinoso y sus tentáculos pulposos que contrastaban con las oscuras extremidades inferiores de tiburón que lo sostenían en su elevado trono, siempre engalanado con su distintivo sombrero turbante.
+Ellos eran los miembros destacados de los Caballeros del Orden, considerados las máximas eminencias de las seis razas influyentes del bendito reino de Cunabula.
 
-Todos ellos habían sido seleccionados por las estrellas, siguiendo una ancestral tradición, para representar el poder inherente a sus respectivas razas y para velar por la prosperidad de su nación.
+Taranis (Ofiotauro), cuya forma combinaba la majestuosidad de un toro con la agilidad de una serpiente, irradiaba una sensación de serena fortaleza. Morrigan (Urutaú), una imponente ave de ojos oscuros y plumaje blanco, proyectaba una presencia magnética. Ceridwen (Quetzalkan), con plumas vibrantes en tonos rojos y verdes, poseía rasgos avianos en su parte superior, mientras que la parte inferior mostraba la elegante silueta de una serpiente. Por encima de todos ellos se alzaba Mannah (Akhtubut Qirshin), con su pequeño cuerpo gelatinoso y tentáculos pulposos que contrastaban con las oscuras extremidades inferiores de tiburón que lo sostenían en su elevado trono, siempre engalanado con su distintivo sombrero turbante.
 
-Sin embargo, la situación en la que se encontraban en ese momento desafiaba aquel ideal sostenido con firmeza a lo largo del tiempo.
+Todos ellos habían sido seleccionados por las estrellas, siguiendo una ancestral tradición, para representar el poder inherente a sus respectivas razas y velar por la prosperidad de su nación.
+
+Sin embargo, la situación en la que se encontraban en ese momento desafiaba ese ideal sostenido con firmeza a lo largo del tiempo.
 
 "No augura nada bueno", declaró Taranis con sencillez.
 
-Su opinión era compartida por todos los demás caballeros presentes que observaban la escena en el gran estanque de agua en el centro de la habitación. Este estanque funcionaba como un espejo que mostraba un lugar específico dentro de la gran barrera y había sido usado por los caballeros para espiar a Twilight y sus amigas desde el primer momento en que habían sido encerradas.
+Su opinión era compartida por todos los caballeros presentes, que observaban la escena proyectada en el estanque encantado en el centro de la habitación. Este espejo de agua, que mostraba lugares específicos dentro de la gran barrera, había sido usado por los caballeros para vigilar a Twilight y sus amigas desde el momento en que fueron encerradas.
 
-Ahora, ese espejo de agua mostraba cómo el último y mas grande de sus peones destinados a derrotar a la princesa y sus aliadas sucumbía a un masaje en el cuello.
+Ahora, el estanque mostraba cómo el último y más grande de sus peones, destinado a derrotar a la princesa y sus aliadas, sucumbía... a un masaje en el cuello.
 
-Aunque nadie lo mencionó en voz alta, el pensamiento era compartido. Habían subestimado a las ponis.
+Aunque nadie lo mencionó en voz alta, todos compartían el mismo pensamiento: habían subestimado a las ponis.
 
-Este silencio no podía perdurar. Entonces, la menos preocupada de los Caballeros del Orden habló.
+El silencio no podía prolongarse. Fue entonces cuando la menos preocupada de los Caballeros del Orden habló.
 
-"¡Oh! Gran sub-líder, me temo que su intento de tomar la iniciativa ha tomado un giro desafortunado. ¿Qué tiene pensado hacer al respecto?" anunció Morrigan con un aire de burla.
+"¡Oh, gran sub-líder! Me temo que su intento de tomar la iniciativa ha dado un giro desafortunado. ¿Qué tiene pensado hacer al respecto?" anunció Morrigan con un aire burlón.
 
-Mannah, que estaba sentado en el extremo opuesto de la habitación, guardó silencio durante unos segundos. Luego, se alzó sobre sus extremidades cartilaginosas y dijo: "Dadas las recientes circunstancias, es necesario tomar medidas de control inmediatas... debo emplear el cristal de posesión directa".
+Mannah, sentado en el extremo opuesto de la habitación, guardó silencio por unos segundos antes de alzarse sobre sus extremidades cartilaginosas. Con voz solemne, declaró: "Dadas las recientes circunstancias, es necesario tomar medidas de control inmediatas... debo emplear el cristal de posesión directa".
 
-Esas últimas palabras no estaban dirigidas a Morrigan ni a Taranis, sino al otro miembro de los Caballeros del Orden que se encontraba a su izquierda y que había mantenido silencio hasta ese momento.
+Esas últimas palabras no estaban dirigidas a Morrigan ni a Taranis, sino al otro miembro de los Caballeros del Orden que permanecía a su izquierda, en silencio hasta ese momento.
 
-Ceridwen, portadora del elemento de la Equidad, no tenía un alto concepto de Mannah. Mejor que nadie sabía que detrás de la fachada diplomática se escondía un individuo de actitudes mezquinas y poca integridad. En resumen, un político.
+Ceridwen, portadora del elemento de la Equidad, no tenía una alta opinión de Mannah. Mejor que nadie sabía que, detrás de su fachada diplomática, se ocultaba un individuo mezquino y carente de integridad. En resumen, un político.
 
-"Debido a la posición que ostenta, estoy obligada a obedecer sus órdenes. Sin embargo, como miembro de nuestra ilustre orden, me permito sugerir que sea la compañera Morrigan quien utilice el cristal. Ella cuenta con una mayor experiencia en el dominio de la mente y el espíritu", respondió Ceridwen con firmeza y un desafío velado.
+"Debido a la posición que ostenta, estoy obligada a obedecer sus órdenes. Sin embargo, como miembro de nuestra ilustre orden, me permito sugerir que sea la compañera Morrigan quien utilice el cristal. Ella cuenta con mayor experiencia en el dominio de la mente y el espíritu", respondió Ceridwen con firmeza, dejando entrever un desafío velado.
 
 Este desplante se reflejó como una sombra en la piel gelatinosa de Mannah. Hacía poco, había prometido al resto de sus compañeros que, a diferencia de la anterior dirección de Danu, él consideraría más las opiniones de los demás. Si impusiera su voluntad en ese momento, podría perder la confianza de sus compañeros, y eso no era conveniente en la situación en la que se encontraban. Sin más opciones, tendría que dejar de lado la rebeldía de Ceridwen por el momento.
 
