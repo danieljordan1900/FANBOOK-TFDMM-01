@@ -1,4 +1,3 @@
-
 Rainbow Dash terminó de ajustar el nudo de la cuerda atada a su cintura. En el otro extremo de la cuerda estaba Badwhiz, amarrado y listo para ser llevado junto al resto de sus amigas. Ya lo había levantado antes, así que estaba segura de que no sería ningún problema trasladarlo de este modo hasta allá.
 
 "¡Perfecto! Disculpa si no he sido lo suficientemente delicada contigo, niño, pero tengo prisa por terminar este teatro de tu supuesta revancha e ir a Canterlot con mis amigas para preparar un verdadero espectáculo para todos", dijo despreocupada la pegaso, mientras estiraba sus alas, listas para partir.
