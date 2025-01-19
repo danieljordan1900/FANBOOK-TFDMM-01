@@ -211,7 +211,7 @@ Entonces, una fuerza irresistible la jala hacia afuera, alejándola de todo lo q
 
 ...
 
-Dentro de uno de los vagones médicos del tren, en una cama, una desorientada Applejack miró a su alrededor. Allí estaban Pinkie Pie, Rarity y Fluttershy, totalmente sanas e íntegras, con expresiones de felicidad.
+Dentro de uno de los vagones médicos del tren, en una blanca cama, una desorientada Applejack miró a su alrededor. Allí estaban Pinkie Pie, Rarity y Fluttershy, totalmente sanas e íntegras, con expresiones de felicidad.
 
 "¿Eh? ¿Qué?" balbuceó la poni granjera.
 
