@@ -556,7 +556,7 @@ Magi estaba exultante. Aunque había enfrentado un contratiempo considerable, ah
 
 En sus pezuñas estaba el legado de la princesa: un poderoso amuleto mágico que sin duda le otorgaría el poder necesario para escapar de aquella "jaula de perdición". Si todo fallaba, siempre podría usar la magia del amuleto para fingir su propia muerte y ocultarse hasta que el peligro pasara.
 
-Inicialmente, su plan había sido mantenerse oculta y evitar llamar la atención desde que fueron interceptadas por Badwhiz. Pero cuando la Gran Barrera se levantó, todo cambió. Un presentimiento aterrador la invadió, y decidió consultar los amuletos mágicos más poderosos que poseía.
+Inicialmente, su plan había sido mantenerse oculta y evitar llamar la atención desde que fueron interceptadas por Badwhiz. Pero cuando la Gran Barrera se levantó, todo cambió. Un muy mal presentimiento la invadió, y decidió consultar los amuletos mágicos más poderosos que poseía.
 
 Estos eran:
 
