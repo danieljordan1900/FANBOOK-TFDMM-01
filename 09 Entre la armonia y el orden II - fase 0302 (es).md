@@ -1,29 +1,32 @@
-
-"¡¿QUÉ CLASE DE BESTIA SALVAJE ES ESTA?!" exclamó Morrigan indignada.
+"¡¿QUÉ CLASE DE BESTIA SALVAJE ES ESTA?!" exclamó Morrigan, indignada.
 
 "Un adorable pequeño poni arcoíris te está causando problemas, mi querida amiga", respondió Balor desde un rincón de la sala de guerra.
 
-Morrigan fulminó a Balor con la mirada. El comentario del draco-dragón era claramente una burla hacia la forma peculiar de hablar de Morrigan, y definitivamente no era el momento para ello. Unos minutos antes, había recibido un mensaje de Badwhiz informándole que no podía controlar directamente a Rainbow Dash. Morrigan argumentó ante los demás que el niño no estaba lo suficientemente concentrado y decidió tomar el control de la pegaso ella misma. Para sorpresa de todos los presentes y diversión de Balor, después de varios intentos fallidos, Morrigan tampoco pudo controlar la mente de Rainbow Dash. Parecía estar en un estado mental mecánico, cumpliendo las órdenes iniciales de derrotar a Twilight y rechazando obstinadamente las nuevas órdenes mientras seguía cumpliendo las primeras.
+Morrigan fulminó a Balor con la mirada. El comentario del draco-dragón era claramente una burla hacia la forma peculiar de hablar de Morrigan, y definitivamente no era el momento para ello. Unos minutos antes, había recibido un mensaje de Badwhiz informándole que no podía controlar directamente a Rainbow Dash. Morrigan había argumentado ante los demás que el chico no estaba lo suficientemente concentrado y decidió tomar el control de la pegaso ella misma.
 
-Finalmente, la hipnotizada Rainbow Dash fue engañada por un truco de Twilight y liberada del control mental de Morrigan.
+Para sorpresa de todos los presentes, y diversión de Balor, después de varios intentos fallidos Morrigan tampoco pudo controlar la mente de Rainbow Dash. La pegaso parecía estar en un estado mental mecánico, cumpliendo las órdenes iniciales de derrotar a Twilight y rechazando obstinadamente cualquier nueva instrucción hasta completar su objetivo original.
 
-Otro enfrentamiento de miradas estalló en la sala, pero antes de que Mannah pudiera decir algo, Balor y Morrigan comenzaron a reír juntas, dejando a sus otros compañeros perplejos.
+Así, en medio de ese estado, la hipnotizada Rainbow Dash fue fácilmente engañada por un truco de Twilight y liberada del control mental de Morrigan.
 
-"Vaya, así que así están las cosas, jaja... Al final, resultó que la cabeza de esa poni es tan dura como la de Taranis... Qué fastidio", dijo Morrigan, recostándose en su asiento.
+En la sala de guerra, otro enfrentamiento de miradas estalló. Pero antes de que el sub-líder Mannah pudiera intervenir, Balor y Morrigan comenzaron a reír juntas, dejando perplejos a los demás presentes.
+
+"Vaya, así que así están las cosas, jaja... Al final, resultó que la cabeza de esa poni es tan dura como la de Taranis. Qué fastidio", dijo Morrigan, recostándose en su asiento.
 
 "No te preocupes tanto. Conozco tus habilidades, sé que no habrías perdido el control sobre alguien si estuvieras lo suficientemente cerca y sin tantas restricciones. Si hubieras estado presente, esto no habría pasado", comentó Balor con seriedad.
 
-"No necesito tu consuelo, Balor, pero gracias... espero con ansias tu turno", respondió Morrigan, con un toque de sarcasmo.
+"No necesito tu consuelo, Balor, pero gracias... Espero con ansias tu turno", respondió Morrigan con un toque de sarcasmo.
 
-"Ju ju, tendrás que esperar entonces. Ceridwen ha encontrado algo interesante..." dijo Balor, fijando su mirada en el estanque mágico donde se veía a Ceridwen en el cuerpo de Badwhiz adentrándose en un vagón en medio del lago.
+"Ju ju, tendrás que esperar entonces. Ceridwen ha encontrado algo interesante...", mencionó Balor, fijando su mirada en el estanque mágico donde se veía a Ceridwen, en el cuerpo de Badwhiz, adentrándose en un vagón sumergido en el lago.
 
-"¡Miren! ¡El chico finalmente alcanzó a las ponis! ¡Jaja! ¡Parece muy emocionado!" exclamó alegremente Taranis, señalando con su dedo la imagen del Badwhiz de sombras en el estanque.
+"¡Miren! ¡El chico finalmente alcanzó a las ponis! ¡Jaja! ¡Parece muy emocionado!" exclamó alegremente Taranis, señalando otra imagen en el estanque donde se mostraba al Badwhiz de sombras alcanzando a Twilight y Rainbow Dash.
 
 "Taranis, estamos en la sala de guerra, no lo olvides", regañó Mannah con irritación.
 
-Taranis se enderezó rápidamente en su postura marcial, mientras las risas contenidas de Morrigan y Balor resonaban en la habitación. Para Mannah estaba claro que aquel par estaba tramando algo, aunque no sabía exactamente qué. Con uno de sus tentáculos, comenzó a masajear su frente en un intento por aliviar la creciente migraña que sentia.
+Taranis se enderezó rápidamente, adoptando una postura marcial, mientras las risas contenidas de Morrigan y Balor resonaban en la habitación. Para el sub-líder de los caballeros del orden, quedaba claro que aquel par de féminas estaba tramando algo, aunque no sabía exactamente qué.
 
-----------------------------------
+Con demasiada facilidad, Balor había aceptado las decisiones tomadas durante el inicio de la operacion. Incluso Morrigan lo había defendido. Sin mucho más en qué pensar, Mannah, con uno de sus tentáculos, comenzó a masajearse la frente en un intento por aliviar la creciente migraña que sentía.
+
+[---]
 
 Habían pasado varios minutos y finalmente las alas de Rainbow Dash empezaron a responder como a ella le gustaba.
 
@@ -101,7 +104,7 @@ Twilight reflexionó sobre el pedido de Dash; su amiga pegaso se encontraba nuev
 
 Twilight se quedó inmóvil durante unos segundos antes de responder: "¡¿QUÉ?!"
 
-----------------------------------
+[---]
 
 En uno de los extremos del interior de la Gran Barrera, se encontraba un pequeño bosque que había sido dividido por la poderosa magia que encerraba aquel lugar. En este bosque de árboles densos y escasa luminosidad, Badwhiz se ocultaba entre las ramas de uno de los árboles, examinando detenidamente el terreno debajo de él.
 
@@ -137,7 +140,7 @@ Sin darle más vueltas, voló entre los árboles hasta posicionarse frente a la 
 
 "Tú no eres parte de los Caballeros del Orden, eres un poni de Equestria. ¿Por qué estás haciendo esto?"
 
-Badwhiz parecía que no escucharía más palabras de Twilight, pero de repente se contuvo.
+Badwhiz que parecía no escucharía más palabras de Twilight, de repente se contuvo. Recibia un nuevo mensaje mental.
 
 "¿Por qué?" replicó. "¿Acaso no es obvio? Cumplo con el juramento de mis antepasados."
 
@@ -151,7 +154,7 @@ Una mirada de furia se reflejó en el rostro de Badwhiz.
 
 "¿No puedes permitirlo?" se burló Badwhiz. "Pero poner en peligro la vida de todos los ponis de Equestria y de los habitantes de los otros reinos es lo que haces ahora. ¡No eres más que una hipócrita!"
 
-A unos metros detrás, en unos arbustos, Rainbow Dash escuchaba la conversación. Si no hubiera recibido órdenes muy claras de Twilight, probablemente habría saltado sobre Badwhiz en ese mismo instante.
+A unos metros detrás, oculta en unos arbustos, Rainbow Dash escuchaba la conversación. Si no hubiera recibido órdenes muy claras de Twilight, probablemente habría saltado sobre Badwhiz en ese mismo instante.
 
 Ambos se quedaron en silencio, Badwhiz y Twilight se observaban mutuamente en medio del frío y silencioso bosque. En esa tensa atmósfera, solo se escuchaba el suave crujir de las ramas de los árboles agitadas por el viento.
 
@@ -177,7 +180,7 @@ Ahora, Twilight se veía más grande y brillante frente a él. Su noble postura 
 
 Badwhiz intentó apartar la mirada, pero no debía hacerlo frente a su oponente. Un gran conflicto comenzó a crecer dentro de él. Quería atacar, pero no podía. Una intensa amargura recorrió su cuerpo. Quería gritar, pero no debía. Su respiración se agitó. Quería que esa odiosa princesa supiera todo el infierno que había tenido que vivir.
 
-"¡Tú!" gruñó Badwhiz, más como un animal lleno de rabia que como un poni. Su cuerpo de sombras se hinchó como si fuera a estallar en cualquier momento, liberando así todo el dolor que había dentro de él.
+"¡Tú!" gruñó Badwhiz, más como un animal lleno de rabia que como un poni. Su cuerpo de sombras se hinchó como si fuera a estallar en cualquier momento y asi liberar todo el dolor que había dentro de él.
 
 Entonces, un meteoro oscuro impactó al lado de Badwhiz, haciendo estallar la nieve cercana. Twilight retrocedió inmediatamente varios metros hacia atrás, agitando sus alas, y Rainbow Dash salió de su escondite para ponerse a su lado, lista para protegerla.
 
@@ -187,9 +190,9 @@ Ahí de pie estaba otro Badwhiz, pero esta era su anterior forma corpórea, luci
 
 "Buen trabajo. Ahora solo quedan ellas dos. Cubre mi retaguardia, yo me haré cargo a partir de ahora", dijo mentalmente Ceridwen a Badwhiz, mientras una oleada de magia comenzaba a emerger de su cuerpo y un cubo de cristal danzaba detrás de su espalda.
 
-----------------------------------
+[---]
 
-Mucho antes, en el vagón médico, en un espacio con poca luz ...
+Mucho antes, en el vagón médico, en un espacio con poca luz...
 
 "O uhmm."
 
@@ -201,27 +204,27 @@ Mucho antes, en el vagón médico, en un espacio con poca luz ...
 
 "Te lo pedimos, Celestia..." corearon Applejack y Rarity.
 
-Sentadas en un círculo rodeadas de velas, las tres ponis con los ojos cerrados se encontraban tomadas de las pezuñas, realizando lo que a simple vista parecía una reunión litúrgica. Dirigidas por la solemne Pinkie Pie, la ceremonia se veía bastante seria, tanto que incluso Applejack se había quitado el sombrero y usaba una sotana blanca y púrpura igual al resto de sus compañeras.
+Sentadas en círculo, rodeadas de velas, las tres ponis con los ojos cerrados se encontraban tomadas de las pezuñas, realizando lo que, a simple vista, parecía una reunión litúrgica. Dirigidas por la solemne Pinkie Pie, la ceremonia se veía bastante seria, tanto que incluso Applejack se había quitado el sombrero y llevaba una sotana blanca y púrpura igual a la de sus compañeras.
 
 "Que estos cristales brillen con la luz de nuestras estrellas, te lo pedimos, Celestia... o uhmm."
 
 "Te lo pedimos, Celestia..." volvieron a corear Applejack y Rarity.
 
-En medio del ritual había una vasija y un plato cubiertos por un delicado pañuelo blanco.
+En medio del ritual, había una vasija y un plato cubiertos por un delicado pañuelo blanco.
 
-"Aunque no estés presente... para darte estos panqueques... déjanos recibirte al menos espiritualmente... O uhmm," finalizó su rezo Pinkie Pie.
+"Aunque no estés presente... para darte estos panqueques... déjanos recibirte al menos espiritualmente... o uhmm," finalizó su rezo Pinkie Pie.
 
 "O uhmm," corearon finalmente Applejack y Rarity.
 
-Entonces, Pinkie Pie extendió momentáneamente los cascos hacia arriba en señal de su próximo acto. Sin decir una palabra, se acercó a la vasija cubierta y retiró el pañuelo blanco que la cubría.
+Entonces, Pinkie Pie extendió momentáneamente los cascos hacia arriba, anunciando el próximo acto. Sin decir una palabra, se acercó a la vasija cubierta y retiró el pañuelo blanco que la cubría.
 
 Las tres ponis miraron expectantes el contenido debajo.
 
-Ahí estaban los tres cristales blancos que habían recibido de Fluttershy y que desafortunadamente aún no estaban encantados con la magia de cada una de ellas. Y también una nutrida cantidad de panqueques bañados en miel.
+Ahí estaban los tres cristales blancos que habían recibido de Fluttershy y que, desafortunadamente, aún no estaban encantados con la magia requerida de cada una de ellas. Junto a los cristales, había también una generosa cantidad de panqueques bañados en miel.
 
-"Bueno... creo que mi idea no funcionó," dijo Pinkie.
+"Bueno... creo que mi idea no funcionó," dijo Pinkie algo entristecida.
 
-"Fue un buen intento, Pinkie Pie. Realmente sentí que funcionaría... esta vez," dijo Rarity con decepción.
+"Fue un buen intento, Pinkie. Realmente sentí que funcionaría... esta vez," dijo Rarity con decepción.
 
 "Uhmmmm," resopló Applejack, recostándose en el suelo.
 
@@ -279,9 +282,9 @@ Aquel sensacion se transmitió entre las tres amigas como un oscuro presentimien
 
 Así, las tres ponis comenzaron a encantar los cristales entre bromas y oraciones. Ciertamente, esto era algo que a Twilight le hubiera gustado estar presente para verlo.
 
-----------------------------------
+[---]
 
-"PI..., PI..., PI..., PI..." El transmisor de Magi había estado mostrando la misma señal durante varios minutos. Esto era bueno, ya que indicaba que el enemigo se estaba alejando aún más de la posición en la que se encontraban.
+"PI..., PI..., PI..., PI..." El transmisor de Magi había estado mostrando la misma debil señal durante varios minutos. Esto era bueno, ya que indicaba que el enemigo se estaba alejando aún más de la posición en la que se encontraban.
 
 Pero para Magi, eso no era suficiente para que sus nervios se calmaran, así que cambió la pantalla de la transmisión por la imagen visual.
 
@@ -439,165 +442,188 @@ Sin decir más, se puso de pie y se dirigió a la puerta que llevaba a la otra h
 
 "Sé que no es mucho, pero ¿te gustaría un autógrafo del equipo Averages?"
 
-----------------------------------
+[---]
 
-"¡Listo! ¡Un juego completo de cristales de la amistad terminados!" proclamó emocionada Pinkie Pie, enlazando el último de los cristales en su respectivo rosario.
+"¡Listo! ¡Un juego completo de cristales de la amistad terminado!" proclamó emocionada Pinkie Pie, enlazando el último cristal en su respectivo rosario.
 
-"Twilight se sorprenderá mucho cuando vea estos preciosos cristales con nuestro brillo", añadió Rarity radiante, revisando con la luz de su cuerno los seis cristales encantados.
+"Twilight se sorprenderá mucho cuando vea estos preciosos cristales con nuestro brillo," añadió Rarity radiante, inspeccionando con la luz de su cuerno los seis cristales encantados.
 
-"Bueno, debo admitir que completos se ven impresionantes. Ahora solo queda explicarle a Fluttershy cómo funcionan. Espero que se lo tome bien", dijo Applejack acomodándose su sombrero.
+"Bueno, debo admitir que, completos, se ven impresionantes. Ahora solo queda explicarle a Magi cómo funcionan. Espero que se lo tome bien," dijo Applejack, ajustándose el sombrero.
 
-Entonces alguien tocó la puerta del vagón.
+Entonces, alguien tocó la puerta del vagón.
 
 "¿Hola? ¿Interrumpo?" se escuchó la voz de Fluttershy al otro lado.
 
-"Por supuesto que no, querida Fluttershy," dijo Rarity abriendo la puerta con su magia y dejando pasar a su amiga.
+"Por supuesto que no, querida Fluttershy," respondió Rarity, abriendo la puerta con su magia y dejando pasar a su amiga.
 
-"¿Ocurrió algo?" preguntó Applejack a Fluttershy, que se veía preocupada.
+"¿Ocurrió algo?" preguntó Applejack al notar la preocupación en el rostro de Fluttershy.
 
-"Bueno, es solo que tenía una idea para que pudieran encantar más rápido los cristales. Sé que no he sido de mucha ayuda, pero al menos permítanme explicarles de qué se trata", respondió Fluttershy.
+"Bueno, es solo que tenía una idea para que pudieran encantar los cristales más rápido. Sé que no he sido de mucha ayuda, pero al menos permítanme explicarles de qué se trata," respondió la tímida pegaso.
 
-"¿Eh? Jamás pensaríamos algo como eso, dulzura. Realmente eres una de las más importantes entre nosotras y vaya que lo has demostrado mucho hoy", respondió Applejack, colocando un casco en su hombro. A sus lados, Pinkie Pie y Rarity decian iguales palabras de aliento.
+"¿Eh? Jamás pensaríamos algo como eso, dulzura. Realmente eres una de las más importantes entre nosotras y vaya que lo has demostrado mucho hoy," respondió Applejack, colocando un casco en su hombro. A sus lados, Pinkie Pie y Rarity añadieron palabras similares de aliento.
 
 "Oh, gracias, amigas. Me alegra mucho escuchar eso."
 
-"¡Pues, si eso te alegra, esto te alegrará más!" dijo Pinkie Pie, que de un brinco reveló las seis gemas encantadas.
+"¡Pues, si eso te alegra, esto te alegrará más!" exclamó Pinkie Pie, que de un brinco reveló las seis gemas encantadas.
 
-"Wow", Fluttershy quedó impresionada por el brillo de las gemas que acababan de ser completadas.
+"Wow," Fluttershy quedó impresionada por el resplandor de las gemas recién terminadas.
 
-"Tócalos y siente la perfección, amiga", añadió Rarity, colocando los cascos de Fluttershy en el rosario de las seis gemas.
+"Tócalas y siente la perfección, querida," añadió Rarity, guiando los cascos de Fluttershy hacia el rosario de las gemas.
 
-"¡Esto es maravilloso!¡Realmente pudieron terminarlos!¡Siiii!" exclamó Fluttershy de un aleteo, segura de que todo iría bien a partir de ese momento.
+"¡Esto es maravilloso! ¡Realmente las terminaron! ¡Siiii!" exclamó Fluttershy, dando un aleteo emocionado, segura de que todo iría bien a partir de ese momento.
 
-"Así que... sobre eso, hay algo que tenemos que discutir", interrumpió Applejack mirando a sus amigas.
+"Así que... sobre eso, hay algo que tenemos que discutir," interrumpió Applejack, mirando a las demás.
 
-Un repentino escalofrío recorrió a todas en ese momento. Un inesperado frío acompañado de un sobresalto. Fluttershy se quedó paralizada mirando detrás de Applejack, Rarity y Pinkie Pie también lo habían sentido y, aunque no se habían volteado a ver, fácilmente podían adivinar de quién era aquella presencia.
+Fue entonces cuando un repentino escalofrío recorrió a todas. Un frío inquietante acompañado de una presencia hostil llenó el vagón. Fluttershy quedó paralizada, con la mirada fija en algo detrás de Applejack. Rarity y Pinkie Pie también lo sintieron. Aunque no se miraron entre sí, sabían exactamente quién estaba allí.
 
-Para Applejack estaba claro como el agua. Pero se sentía tranquila, sabiendo que con decir una sola palabra todo acabaría. Dio una última mirada a su amiga pegaso.
+Para Applejack, todo estaba claro como el agua. Sin embargo, se sentía extrañamente tranquila. Sabía que, con decir una sola palabra, todo terminaría.
 
-No lo había notado antes cuando entró, pero parecía que Fluttershy se había acomodado la melena de nuevo.
+Dirigió una última mirada a Fluttershy. Notó un detalle que antes había pasado por alto: parecía que Fluttershy se había acomodado la melena de nuevo.
 
-Pero era un detalle que podía ignorar, lo apremiante era lo que haría a continuación.
+Pero ese pequeño detalle podía esperar. Lo importante era lo que iba a hacer a continuación.
 
-"¡VAINILLA!" gritó Applejack dándose la vuelta antes de que un rayo de magia impactara contra ella y las otras dos ponis. Sacrificarse protegiendo a otra poni era algo con lo que había tenido pesadillas muchas veces cuando era una potra, le había causado miedo, e incluso llego a pensar que hacerlo sería lo mas tonto que podria hacer en su vida. Ahora, en cambio, el sentimiento que tenía era diferente.
+"¡VAINILLA!" gritó Applejack, girándose rápidamente antes de que un rayo de magia la alcanzara de lleno.
 
-Había una sonrisa suave y de paz en el rostro de Applejack antes de desaparecer.
+A su lado, sus dos amigas corrieron la misma suerte.
 
-----------------------------------
+Mientras Applejack se desvanecía en un parpadeo cegador, un último pensamiento cruzó su mente.
+
+Sacrificarse para proteger a otra poni había sido el origen de muchas de sus pesadillas cuando era una potra. Ese miedo la había perseguido durante años, haciéndola creer que tal acto era lo más tonto que podría hacer en su vida. Ahora, en cambio, el sentimiento que la envolvía era completamente diferente.
+
+Una suave sonrisa de paz se dibujó en el rostro de Applejack antes de desaparecer.
+
+[---]
 
 "Pequeña rata, no irás muy lejos..." murmuró Ceridwen al ver cómo las puertas de la habitación se cerraban.
 
-La pegaso de melena rosada había esquivado agilmente el ataque mágico que la habría atrapado junto a sus amigas. Aunque las otras tres habían caído en el ataque sorpresa, ahora tendría que cazar a aquella poni.
+La pegaso de melena rosada había esquivado ágilmente el ataque mágico que habría atrapado tanto a ella como a sus amigas. Aunque las otras tres habían caído en la emboscada, ahora Ceridwen tendría que cazar a aquella poni.
 
-Ceridwen frunció el ceño. No podía permitir que huyera; esa poni tenía en sus cascos unos cristales encantados que podrían ser usados en su contra. Un arma, sin duda. Y si caía en poder de la princesa, podría convertirse en un gran problema para toda la misión.
+Frunciendo el ceño, evaluó la situación. No podía permitir que escapara; esa pegaso tenía en sus cascos unos cristales que brillaban con una luz mágica única. Un arma, sin duda. Y si llegaba a manos de la princesa, podría poner en peligro toda la misión.
 
-"No escaparás". Sin pensarlo, Ceridwen hizo estallar la puerta con su magia e ingresó a la sala de espera. Estaba vacía. Eso era desconcertante, ya que no había sentido que la presencia de la pegaso hubiera salido del vagón, tampoco que hubieran usado la teletransportación. Aquello último era imposible debido a la gema mágica que estaba usando.
+"No escaparás".
 
-Sin embargo, no había nadie en ese lugar.
+Sin perder tiempo, Ceridwen hizo estallar la puerta con su magia e ingresó a la sala de espera. Para su sorpresa, estaba vacía. Era desconcertante. No había sentido que la pegaso hubiera salido del vagón ni detectado signos de teletransportación. Además, la gema mágica que portaba debería impedir cualquier intento de fuga mediante magia avanzada.
 
-¿Otra vez una ilusión?
+Sin embargo, allí no había nadie.
 
-Consultando con Balor, Ceridwen había descubierto que el vagón donde las ponis se habían refugiado había sido oculto por una poderosa magia de ilusión que evitaba ser descubierto directamente. A diferencia de una magia de invisibilidad, esta magia de ilusión nublaba la mente de los individuos, causando que no pudieran reconocer un objeto en particular, haciéndolo ignorar o confundiéndolo con otro. Tan potente era esta magia que afectaba los cinco sentidos de los posibles atacantes e incluso interfería en los otros canales de detección mágica.
+¿Otra ilusión?
 
-Sin embargo, ninguna magia es perfecta. Una ilusión sigue siendo una ilusión, y la realidad termina por destruirla.
+Ceridwen recordó lo que Balor le había explicado sobre el vagón donde las ponis se habían refugiado. Estaba protegido por una magia de ilusión tan poderosa que evitaba ser descubierto directamente. A diferencia de la invisibilidad, esta ilusión nublaba la mente, impidiendo que los individuos reconocieran el objeto oculto. Podían verlo, incluso interactuar con él, pero sus sentidos simplemente lo ignorarían o lo confundirían con otra cosa. Era una magia tan compleja que afectaba los cinco sentidos e interfería con las técnicas de detección mágica.
 
-Fue entonces cuando Ceridwen se percató de que el reflejo del vagón hechizado se manifestaba en el agua, a pesar de que no podía verlo directamente. Una regla simple de la realidad que no podía ser alcanzada por aquella engañosa magia.
+Pero ninguna magia es perfecta.
 
-¿Cómo era posible que aquellos ponis tuvieran semejante magia en su poder? No lo sabía. Balor había ordenado que fueran capturadas sin demora y que redoblara sus precauciones. Aquellas ponis eran peligrosas, y si se resistían, no debían ser capturadas; ahora debían ser eliminadas.
+Una ilusión sigue siendo una ilusión, y eventualmente, la realidad encuentra la manera de destruirla.
 
-Ceridwen lanzó un contrahechizo a su alrededor. Ahora que sabía cómo funcionaba aquel truco, no sería burlada de nuevo.
+Fue entonces cuando Ceridwen notó algo. El reflejo del vagón hechizado era visible en el agua acumulada en el suelo, aunque no pudiera verlo directamente. Una simple regla de la realidad que la ilusión no había logrado burlar lo había delatado.
 
-Una onda de luz emanó del cuerpo de poni que controlaba y se expandió a su alrededor.
+¿Cómo era posible que aquellas ponis tuvieran acceso a semejante magia? No lo sabía, pero estaba claro que Balor tenía razón: debían ser capturadas de inmediato o, si se resistían, eliminadas sin contemplaciones.
 
-Pronto, todos los objetos ocultos comenzaron a revelarse. Ceridwen tragó saliva.
+Ceridwen lanzó un contrahechizo al espacio que la rodeaba. Ahora que entendía cómo funcionaba aquel truco, estaba segura de que no sería burlada de nuevo.
 
-Decenas de cajas de explosivos habían aparecido en las paredes, bajo los asientos e incluso pegados en el techo. También ahora era audible el sonido de un temporizador.
+Una onda de luz emanó del cuerpo del poni que controlaba, expandiéndose por toda la sala.
+
+Pronto, los objetos ocultos comenzaron a revelarse uno tras otro. Ceridwen tragó saliva.
+
+Decenas de cajas de explosivos aparecieron adheridas a las paredes, bajo los asientos e incluso en el techo. En ese instante, el sonido de un temporizador se volvió audible, resonando con un ritmo implacable.
 
 "Mocos", pensó Ceridwen antes de que todo el lugar fuera engullido por una terrible explosión.
 
-----------------------------------
+[---]
 
-Fluttershy nadaba suavemente en el lago, oculta bajo una maleta. A su alrededor flotaban más maletas, bolsos y restos de equipajes, así como partes destrozadas del tren, yendo a la deriva en la tranquila superficie del lago donde antes habían estado las vías ferroviarias.
+Fluttershy nadaba suavemente en el lago, oculta bajo una maleta. A su alrededor flotaban más maletas, bolsos y restos de equipajes, así como partes destrozadas del tren, yendo a la deriva en la tranquila superficie del agua, donde antes habían estado las vías ferroviarias.
 
-No era sorprendente que algunos de los restos chocaran o se hundieran. Aun así, Fluttershy fue precavida y con el mayor cuidado posible se alejó del centro del lago. A sus espaldas, aún se veían los rastros de la enorme explosión que había destruido el vagón médico.
+Algunos fragmentos chocaban entre sí o se hundían con un sonido suave, pero Fluttershy se mantenía precavida. Con movimientos calculados, comenzó a alejarse del centro del lago. Detrás de ella, los rastros de la enorme explosión que había destruido el vagón médico aún eran visibles: humo negro elevándose lentamente hacia el cielo.
 
-Había ocurrido hace varios minutos, y hasta ese momento no había visto ningún movimiento enemigo. Así que aprovechando ese intervalo de incertidumbre, comenzó a alejarse de aquel lugar. Su objetivo era alcanzar la otra orilla del lago y llegar a los montículos de rocas, desde donde podría adentrarse en el gran bosque que rodeaba la Gran Barrera por el sur.
+Habían pasado varios minutos desde el ataque, y no había señales de movimiento enemigo. Aprovechando esa calma, Fluttershy continuó avanzando hacia la otra orilla. Su objetivo era alcanzar los montículos de rocas que bordeaban el lago y luego adentrarse en el vasto bosque que rodeaba la Gran Barrera por el sur.
 
-A pesar de su prisa, no dejaba de mirar atrás y pensar en las ponis que se habían sacrificado por ella.
+Sin embargo, incluso mientras nadaba, su mirada regresaba constantemente al lugar de la explosión.
 
-La bondadosa Fluttershy lloraba mientras sostenía en sus pezuñas las gemas que sus amigas le habían dado.
+En sus pezuñas sostenía las gemas que sus amigas le habían confiado. Lágrimas resbalaban por su rostro mientras recordaba los sacrificios que aquellas ponis habían hecho por ella.
 
-Aquellas lágrimas eran sinceras.
+"Realmente fueron unas verdaderas amigas", murmuró, observando el humo que ascendía desde el centro del lago.
 
-"Realmente fueron unas verdaderas amigas", murmuro Fluttershy, observando el humo que se elevaba en medio del lago.
+Pero entonces, algo cambió. Las lágrimas continuaban, pero ya no eran de tristeza. Fluttershy comenzó a reír suavemente, una risa oscura y desconcertante que habría dejado atónito a cualquiera que conociera su habitual gentileza.
 
-Fluttershy lloraba... pero de alegría, con una oscura risa que dejaría atónito a cualquiera que conociera aquel gentil rostro suyo.
+Porque, en realidad, ella no era Fluttershy.
 
-Ciertamente, la verdadera Fluttershy habría estado llorando de tristeza por perder a sus amigas. Sin embargo, ella no era esa poni.
+Era Magazin Doublereport.
 
-Ella no era Fluttershy; era Magazin Doublereport y no le importaba en lo más mínimo el verdadero significado de la amistad. Para ella, la amistad no era más que otra etiqueta que podía usar para cautivar a su público. Lo único que había cambiado, a partir de la experiencia vivida recientemente con las amigas de la princesa, era que usaría esa etiqueta con más frecuencia.
+La verdadera Fluttershy habría llorado desconsolada por la pérdida de sus amigas, pero Magi no compartía esos sentimientos. Para ella, la amistad no era más que una etiqueta útil, algo que podía usar para cautivar y manipular a quienes la rodeaban. Lo único que había cambiado tras lo sucedido era su perspectiva: ahora entendía que la amistad podía ser una herramienta aún más poderosa.
 
-("Si la amistad trata de que otros se sacrifiquen por ti, entonces tengo muchos amigos en casa, ji, ji, ji"), pensaba divertida Magi mientras continuaba su camino para llegar a la otra orilla.
+("Si la amistad trata de que otros se sacrifiquen por ti, entonces tengo muchos amigos en casa, ji, ji, ji"), pensó divertida mientras continuaba nadando hacia la orilla.
 
-Magi realmente estaba muy feliz. Había tenido un gran contratiempo, pero ahora tenía todo lo que necesitaba para continuar.
+Magi estaba exultante. Aunque había enfrentado un contratiempo considerable, ahora tenía todo lo que necesitaba para continuar su plan.
 
-El legado de la princesa estaba en sus pezuñas. Un poderoso amuleto mágico que sin duda le daría el poder para escapar de esa jaula de perdición. Si eso no funcionaba, podría usar esa magia para fingir su muerte y ocultarse hasta que todo terminara.
+En sus pezuñas estaba el legado de la princesa: un poderoso amuleto mágico que sin duda le otorgaría el poder necesario para escapar de aquella "jaula de perdición". Si todo fallaba, siempre podría usar la magia del amuleto para fingir su propia muerte y ocultarse hasta que el peligro pasara.
 
-Sí, ocultarse sin llamar la atención había sido su plan inicial desde que fueron interceptadas por Badwhiz. Pero eso cambió cuando se levantó la gran barrera. En ese momento tuvo un muy desagradable presentimiento y consultó a los amuletos mágicos más poderosos que poseía. Estos eran unos amuletos de un poder tal que pondrían a las princesas de Equestria en guardia si se enteraban de que un poni los estaba usando.
+Inicialmente, su plan había sido mantenerse oculta y evitar llamar la atención desde que fueron interceptadas por Badwhiz. Pero cuando la Gran Barrera se levantó, todo cambió. Un presentimiento aterrador la invadió, y decidió consultar los amuletos mágicos más poderosos que poseía.
 
-No era para menos, estos eran:
+Estos eran:
 
-La piedra de la memoria, una copia inferior que compró en una subasta.
-La piedra de la imaginación, que robó de un museo en sus años de adolescente.
-La piedra de las visiones, legada por la única poni que llegó a respetar y admirar en su vida.
+La piedra de la memoria, una copia inferior que había adquirido en una subasta.
+La piedra de la imaginación, robada de un museo durante su adolescencia.
+La piedra de las visiones, un legado de la única poni a quien alguna vez llegó a respetar y admirar.
+Combinadas, estas piedras poseían el poder de revelar el futuro cercano con una precisión del 90% y el futuro lejano con un 50%. Aunque el futuro no estaba escrito en piedra, Magi sabía cómo manipularlo a su favor.
 
-Aquellos tres objetos mágicos combinados tenían el poder de revelar el futuro cercano con una precisión del 95% y el futuro lejano con un 50%. El futuro no estaba escrito en piedra, pero Magi sabía dónde sería escrito. Así, poco a poco, con mucho esfuerzo y práctica, fue dominando el poder de las tres piedras, obteniendo una aplastante ventaja sobre los demás. Siempre un paso adelante, construyó el imperio comercial del cual se sentía muy orgullosa. Tan grande creció su confianza que se convirtió en arrogancia. En un momento dado, dejó de usar las piedras y simplemente permitió que su voz interior guiara su ritmo, creyendo que su suerte siempre había estado ahí. Solo recurrió a estos objetos en casos ocasionales de duda o emergencia.
+Con práctica y paciencia, había aprendido a dominar las piedras, usándolas para adelantarse a sus competidores y construir su imperio comercial. Pero su éxito le dio confianza, y su confianza se convirtió en arrogancia. Eventualmente, dejó de usar las piedras, confiando únicamente en su intuición, salvo en casos de duda o emergencia.
 
-Así había sido hasta hoy. Cuando la visión del futuro que le mostraron las piedras hizo que hasta la última de sus plumas temblara de terror.
+Hoy, sin embargo, había roto esa regla.
 
-Era una imagen blanca, nada más.
+La visión que las piedras le habían mostrado era tan aterradora que hizo temblar hasta la última de sus plumas.
 
-Magi no lo aceptaba, no lo iba a aceptar. Ya que esa imagen, que antes había visto en su oscuro pasado, significaba una sola cosa.
+No era más que una imagen blanca. Solo eso.
 
-Su vida acabaría ese día.
+Magi no lo aceptaba. No lo iba a aceptar. Aquella visión, que una vez había presenciado en un oscuro capítulo de su pasado, significaba una sola cosa:
 
-Desesperada, hizo uso de todas sus habilidades para ver otros posibles escenarios, sin embargo, el resultado siempre fue el mismo. Solo uno de entre todo el infinito le daba una remota y improbable posibilidad de poder alargar su destino. Sin embargo, la imagen que mostraba esa visión le resultó desconcertante. En esta imagen estaba Fluttershy, la amiga de la princesa, sosteniendo un llamativo rosario de gemas de colores. No lo entendió en ese momento, sino después, cuando, invisible merodeando por el tren, accidentalmente vio a Twilight entregándole ese mismo rosario a Fluttershy.
+Su vida terminaría ese día.
 
-Todo quedó claro para ella en ese momento. Debía tomar esos cristales; su vida dependía de eso.
+Desesperada, utilizó todas sus habilidades para explorar otros posibles escenarios, pero el resultado siempre era el mismo. Solo una posibilidad, entre un infinito de futuros, le daba una remota e improbable oportunidad de alargar su destino. Sin embargo, la imagen que apareció en esa visión la dejó desconcertada.
 
-Así fue trazando cada paso para llegar a ellos. Engañó a las amigas de la princesa para que completaran las gemas. Capturó a Fluttershy y la encerró en el casillero de limpieza del vagón médico. Luego tomó la apariencia de la pegaso y se acercó lo suficiente a sus amigas para finalmente hacerse con los cristales.
+En ella, Fluttershy, la amiga de la princesa, sostenía un llamativo rosario con gemas de colores.
 
-Y todo eso justo antes de que el enemigo las alcanzara.
+Al principio, no comprendió su significado. Fue después, cuando merodeaba invisible por el tren en busca de respuestas, que todo encajó. En un descuido, vio a Twilight entregándole aquel mismo rosario a Fluttershy.
 
-Por esto, Magi lloraba de alegría al alcanzar la orilla del lago. Nuevamente había burlado al destino. Sentía que había nacido de nuevo.
+Todo quedó claro. Si quería sobrevivir, debía hacerse con esos cristales. Su vida dependía de ello.
 
-Los miedos que la habían atormentado toda la tarde se habían desvanecido, y nuevamente la arrogancia volvía a tomar el timón de su pensamiento.
+Paso a paso, trazó su plan para alcanzarlos. Engañó a las amigas de la princesa, manipulándolas para completar las gemas. Luego capturó a Fluttershy y la encerró en el casillero de limpieza del vagón médico. Finalmente, tomó la apariencia de la pegaso y se acercó lo suficiente a las ponis para hacerse con el rosario.
 
-("Haaa... Realmente me hicieron pasar un mal rato, pero ahora Magi está de vuelta.") pensaba mientras miraba satisfecha el interior del lago y se secaba las lágrimas con sus alas. Aún mantenía la forma de Fluttershy y se encontraba invisible gracias a uno de sus artefactos mágicos.
+Todo esto ocurrió justo antes de que el enemigo las alcanzara.
 
-En el lago se veía que la situación no había cambiado. Sus pájaros espía tampoco informaban de algún cambio.
+Por eso ahora lloraba de alegría al llegar a la orilla del lago. Una vez más, había burlado al destino. Se sentía como si hubiese nacido de nuevo.
 
-A pesar de su creciente confianza, había algo que molestaba a Magi. Los Caballeros del Orden...
+Los temores que la habían atormentado toda la tarde desde el inicio del encierro se desvanecieron, y la arrogancia, aquella antigua compañera, regresó para tomar el timón de sus pensamientos.
 
-("Deben de haber notado el reflejo del vagón en el agua... y pensar que lo notarían con esta luz...") Magi dio una mirada al firmamento ovalado sobre ella. Era un cielo lleno de una luz blanca que venía de todas direcciones; no había rastro del sol en él. Y la sombra que causaba en los árboles y las rocas era difusa. Aun así, el reflejo en el agua era lo suficientemente nítido como para notar los objetos cercanos a su superficie.
+("Haaa... Realmente me hicieron pasar un mal rato, pero ahora ¡Magi está de vuelta!") pensaba mientras observaba con satisfacción el interior del lago. Invisible gracias a uno de sus artefactos mágicos, se secó las lágrimas con las alas, aún manteniendo la forma de Fluttershy.
 
-Esta ilusión natural había sido la causa de la falla en su intento de ocultar el vagón médico donde se habían refugiado las ponis. Por supuesto, Magi era consciente de este error, pero no tenía ningún artefacto mágico que pudiera hacer invisible a un objeto tan grande como el vagón y así asegurar su camuflaje completo. No tuvo más opción que confiar en las amigas de la princesa y rezar a su estrella de la fortuna para que no las encontraran antes.
+Desde la distancia, el lago parecía tranquilo. Los restos del tren seguían flotando, y no había señales de cambio. Incluso sus pájaros espía confirmaban que el enemigo no se movía.
 
-("Bueno ... ya he tenido suficiente de estos tipos. Puedo imaginar lo que pretenden hacer, así que será mejor mantener el perfil bajo hasta que terminen con su agenda.") Magi no era ingenua. Capturar o destruir a la princesa y sus amigas era el primer paso para los Caballeros del Orden. Luego atacarían la capital, el resto de Equestria y los otros reinos. Esta era una operación especial destinada a eliminar posibles amenazas hacia ese misterioso reino al cual pertenecían.
+A pesar de su creciente confianza, algo seguía inquietándola: los Caballeros del Orden.
 
-Ella había considerado negociar con ellos, pero sus instintos le decían que sería una mala idea. Desconocía demasiado, lo cual era peligroso. Si habían invertido tanto tiempo en planear su ataque, probablemente no cambiarían sus planes incluso si surgían factores que les favorecieran.
+("Deben de haber notado el reflejo del vagón en el agua... y pensar que lo harían con esta luz) pensó, alzando la vista hacia el firmamento ovalado sobre ella.
 
-Otra de sus preocupaciones era el misterio detrás de la identidad del niño que trabajaba con los Caballeros.
+El cielo, iluminado por una luz blanca proveniente de todas direcciones, carecía de sol. Las sombras de los árboles y las rocas eran difusas, pero el reflejo en el agua seguía siendo lo suficientemente nítido como para delatar los objetos cercanos a la superficie.
 
-Sin embargo, para Magi, eso ya no importaba tanto. La explosión anterior que había preparado probablemente había eliminado o herido a uno de los Caballeros, y ahora el resto de sus compañeros debían estar confundidos o reevaluando sus planes. La falta de una respuesta inmediata reforzaba esta idea. Esta era una oportunidad que debía aprovechar para escapar completamente de ese lugar.
+Aquella ilusión natural había arruinado su intento de ocultar el vagón médico. Aunque Magi era consciente de esa falla, no poseía un artefacto mágico capaz de hacer invisible un objeto tan grande. Por ello, no tuvo más remedio que confiar en las amigas de la princesa y en su propia suerte para evitar ser descubierta antes de tiempo.
 
-Una suave brisa acarició el lago. Magi se convenció de que ya no había más peligro, se dio la vuelta y continuó su camino con confianza y sin prisa.
+("Bueno... Ya he tenido suficiente de estos tipos. Puedo imaginar lo que pretenden, así que será mejor mantener un perfil bajo hasta que terminen con su agenda").
 
-----------------------------------
+Sabía que capturar o destruir a la princesa y sus amigas era solo el primer paso de los Caballeros del Orden. Después, atacarían la capital, el resto de Equestria y los demás reinos. Todo apuntaba a que su objetivo era eliminar cualquier posible amenaza hacia su misterioso reino.
+
+Por un momento, consideró negociar con ellos, pero sus instintos le advirtieron que sería un grave error. Sabía demasiado poco sobre ellos y sus intenciones, y eso era un riesgo inaceptable. Si habían planeado este ataque con tanta precisión, era improbable que cambiaran sus estrategias incluso ante factores inesperados.
+
+Otro detalle que la inquietaba era el niño que trabajaba con los Caballeros. Su identidad seguía siendo un enigma, pero Magi decidió que ya no importaba.
+
+La explosión que había preparado probablemente había herido o eliminado a uno de los Caballeros. Ahora, el resto debía estar confundido o replanteando su siguiente paso. La falta de una respuesta inmediata reforzaba esa idea. Este era el momento de aprovechar la confusión para escapar definitivamente.
+
+Una suave brisa acarició la superficie del lago.
+
+Magi se convenció de que el peligro había pasado. Se dio la vuelta con confianza y, sin prisa, continuó su camino.
+
+[---]
 
 Una luz estalló en una de las orillas del lago. Magazin Doublereport había desaparecido en la resplandor blanco sin siquiera saber lo que le había pasado.
 
-----------------------------------
+[---]
 
 "Buen trabajo, Ceridwen," se comunicó mentalmente Balor con su amiga. "Eso fue perfecto. El gran sub-líder Mannah está tan conmovido por tu desempeño que está haciendo aguas."
 
