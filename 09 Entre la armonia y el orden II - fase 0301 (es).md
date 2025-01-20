@@ -6,7 +6,7 @@ En primer lugar, el delicioso café de alta calidad que había llevado consigo d
 
 En segundo lugar, ya en su misión, su intento de sembrar discordia entre las amigas de la princesa Twilight, utilizando a Rainbow Dash como herramienta, terminó en un rotundo fracaso. Había esperado más de ellas, pero la irracionalidad llamada "amistad" que profesaban casi le provocó náuseas. El vínculo fanático entre esas yeguas era mucho más fuerte de lo que había calculado.
 
-Tercero, el tren en el que viajaba fue atacado por un enemigo desconocido y terminó secuestrado. Aunque, siendo honesta consigo misma, nunca habría previsto algo así. Estos problemas, en teoría, eran asuntos de la princesa y su séquito. Magi tenía la opción de retirarse y dejar que las cosas siguieran su curso natural...
+Tercero, el tren en el que viajaba fue atacado por un enemigo desconocido y terminó secuestrado. Aunque, siendo honesta consigo misma, nunca habría previsto algo así (mentira). Estos problemas, en teoría, eran asuntos de la princesa y su séquito. Magi tenía la opción de retirarse y dejar que las cosas siguieran su curso natural...
 
 Pero no lo hizo.
 
@@ -218,7 +218,7 @@ Con desconfianza, Applejack observaba a Magi por detrás, mientras la sospechosa
 
 "¿Dónde están?" pensó con creciente frustración Ceridwen mientras revisaba por tercera vez los restos del tren.
 
-Había relevado a Mannah en la misión de captura de la princesa Twilight y sus amigas. Aunque el sublíder de los Caballeros del Orden había prometido encargarse de todo el trabajo, al final terminó delegándole la tarea a ella. No le sorprendió en absoluto; considerando el desastre provocado por su gran ataque elemental de agua, buscar entre los escombros que uno mismo había causado era algo que un político como él jamás haría.
+Había relevado a Mannah en la misión de captura de la princesa Twilight y sus amigas. Aunque el sub-líder de los Caballeros del Orden había prometido encargarse de todo el trabajo, al final terminó delegándole la tarea a ella. No le sorprendió en absoluto; considerando el desastre provocado por su gran ataque elemental de agua, buscar entre los escombros que uno mismo había causado era algo que un político como él jamás haría.
 
 "Políticos y sus promesas..." pensó mientras levantaba con su magia uno de los vagones inundados. "Si tan solo me hubieran enviado junto a Balor y Taranis... todo habría resultado diferente."
 
@@ -332,9 +332,9 @@ La mente de Rainbow Dash quedó en blanco. Todo parecía demasiado irreal como p
 
 Rainbow Dash había escuchado suficiente. Si esto era o no la realidad, ya no le importaba. Tampoco le importaba el muñeco de Twilight que yacía en el suelo. Lo único de lo que estaba segura era de lo que iba a hacer a continuación.
 
-"¡TWILIGHT!" gritó Rainbow, abrazando a su amiga entre lágrimas de felicidad.
+"¡TWILIGHT!" gritó Rainbow, abrazando a su amiga con fuerza entre lágrimas de felicidad.
 
-Twilight, por su parte, estaba dolorida por los golpes que había recibido. No eran heridas graves, pero se sentía agotada.
+Twilight, por su parte, recibio el gesto entre muecas, aun estaba dolorida por los golpes que había recibido antes. No eran heridas graves, pero se sentía agotada.
 
 "¿Estás bien? ¿Te hice daño?" preguntó Rainbow, frenética.
 
