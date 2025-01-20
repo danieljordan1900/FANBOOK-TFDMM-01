@@ -128,31 +128,31 @@ No podía pensarlo demasiado. Finalmente, después de una larga pausa, habló.
 
 Detrás de ella, el resto de las ponis parecieron recobrar algo de esperanza en ese momento.
 
-"Perfecto, no perdamos tiempo entonces." respondio Magi con sincera alegria, tanto que sus colores parecian haber regresado a su semblante haciendole ver menos amenzante " Mencionaste a Vainilla antes, bien, no la conozco. Pero sí conozco a estos tipos" 
+"Perfecto, no perdamos tiempo entonces," respondió Magi con sincera alegría, tanto que sus colores parecían haber regresado a su semblante, haciéndola ver menos amenazante. "Mencionaste a Vainilla antes. Bien, no la conozco. Pero sí conozco a estos tipos."
 
-Antes que terminara sus palabras, uno de los orbes que flotaba sobre Magi se alejo de ella y se ubico en el techo. Luego, una luz se desprendió del orbe y generó una imagen holográfica en medio del vagón.
+Antes de que terminara sus palabras, uno de los orbes que flotaban sobre Magi se alejó de ella y se ubicó en el techo. Luego, una luz se desprendió del orbe y generó una imagen holográfica en medio del vagón.
 
 Applejack y el resto de las ponis se acercaron al holograma y pronto reconocieron las figuras que se mostraban en él.
 
-"¿Los Caballeros del Orden?" exclamo Applejack sorprendida.
+"¿Los Caballeros del Orden?" exclamó Applejack sorprendida.
 
-"Sí, ellos mismos. Son responsables de este desastre y están aquí para terminar su trabajo. Y al parecer, cuentan con ayuda local ..." dijo Magi, cambiando la imagen del holograma por la de Badwhiz.
+"Sí, ellos mismos. Son responsables de este desastre y están aquí para terminar su trabajo. Y, ademas, cuentan con ayuda local..." dijo Magi, cambiando la imagen del holograma por la de Badwhiz.
 
-"¡Pero eso es imposible! ¡Ellos estan encerrados en el Tartaro!" exclamó alterada Rarity.
+"¡Pero eso es imposible! ¡Ellos están encerrados en el Tártaro!" exclamó alterada Rarity.
 
-"Pues no lo están. Su princesa parece haber cometido un terrible error al subestimarlos," sentenció Magi con una mirada molesta hacia el resto de las ponis.
+"Pues no lo están. Su princesa parece haber cometido un terrible error al subestimarlos," sentenció Magi, lanzando una mirada molesta hacia el resto de las ponis.
 
-Ahora la consternación era palpable entre todas ellas. Abatida, Applejack se quitó el sombrero, comprendiendo la gravedad del asunto. Twilight ya le había confesado anteriormente sobre el gran peligro que sentía al mantener prisionero a ese grupo de individuos. Applejack le había aconsejado esforzarse más en buscar Cunabula y tratar de enmendar la situación con ese reino, pero era evidente que ese consejo había sido inútil.
+Ahora la consternación era palpable entre todas ellas. Abatida, Applejack se quitó el sombrero, comprendiendo la gravedad del asunto. Twilight ya le había confesado anteriormente el gran peligro que sentía al mantener prisionero a ese grupo de individuos. Applejack le había aconsejado esforzarse más en buscar Cunábula y tratar de enmendar la situación con ese reino, pero era evidente que ese consejo había sido inútil.
 
-Ella y sus amigas estaban atrapadas a merced de no un villano sino de seis villanos, cada uno tan peligroso como un Rey Sombra. E incluso había uno más del que no sabían nada.
+Ella y sus amigas estaban atrapadas a merced no de un villano, sino de seis, cada uno tan peligroso como un Rey Sombra. E incluso había uno más del que no sabían nada.
 
-Applejack se volvió a colocar el sombrero. Ahora tenía una mejor idea de contra qué estaban lidiando, esto le daba un escaso alivio. Pero aún quedaba una duda.
+Applejack se volvió a colocar el sombrero. Ahora tenía una mejor idea de contra qué estaban lidiando. Esto le daba un escaso alivio a su preocupación. Pero, a todo esto, antes de continuar, aún quedaba una duda que aclarar.
 
 "¿Por qué no te fuiste?" preguntó Applejack en voz alta a Magi, silenciando el murmullo del resto de sus amigas.
 
 Una expresión de angustia cruzó el rostro de Magi.
 
-"Yo... no sabía qué tan grave era la situación. Pensé en quedarme y aprender más de ustedes. Ustedes siempre ganan... nunca imaginé que las cosas terminarían así," terminó de decir Magi abatida, agachando la cabeza.
+"Yo... no sabía qué tan grave era la situación. Pensé en quedarme y aprender más de ustedes. Ustedes siempre ganan... nunca imaginé que las cosas terminarían así," terminó de decir Magi, abatida, agachando la cabeza.
 
 Applejack tenía un buen sentido para percibir la verdad en los demás. Y ahora mismo, Magi finalmente estaba siendo muy honesta. También notó que tenía los párpados hinchados, prueba de la angustia y pena que estaba sintiendo.
 
@@ -160,91 +160,93 @@ Applejack tenía un buen sentido para percibir la verdad en los demás. Y ahora 
 
 Los ojos de Magi brillaron por un momento. Era evidente para todas que tenía uno.
 
-"Sí, sí, tengo uno... bueno, no es un plan... sino más bien una suposición... una teoría..." Magi comenzó a trotar en su mismo sitio, claramente ansiosa. "Estuve pensando y pensando... en lo que dijo aquel niño sobre que le entregaran los Elementos de la Armonía. Así que pensé en por qué les importaba tanto. He escuchado que ustedes los tuvieron en el pasado y que fueron poderosas herramientas para derrotar a los enemigos que atacaron Equestria, pero luego dijeron que los perdieron y ahora lo que queda de su magia existe dentro de cada una de ustedes... así que pensé, ¿cuál es el problema?"
+"Sí, sí, tengo uno... bueno, no es un plan, sino más bien una suposición... una teoría..." Magi comenzó a trotar en su mismo sitio, claramente ansiosa. "Estuve pensando y pensando... en lo que dijo aquel niño sobre que le entregaran los Elementos de la Armonía. Así que pensé en por qué les importaba tanto. He escuchado que ustedes los tuvieron en el pasado y que fueron poderosas herramientas para derrotar a los enemigos que atacaron Equestria, pero luego dijeron que los perdieron y ahora lo que queda de su magia existe dentro de cada una de ustedes y todo eso... así que pensé, ¿cuál es el problema?"
 
 Todas las ponis parecieron muy confundidas por las palabras de Magi, sobre todo Applejack.
 
 "¿Cuál es el problema?" repitió Rarity.
 
-"Sí, sí, ¡eso! ¿Cuál es el problema? Si la magia de los Elementos solo persiste en ustedes, entonces tarde o temprano desaparecerá. Después de todo, no somos eternos, bueno... quizás la princesa sí lo sea... pero nosotras no. A todas nos llega la hora en algún momento y cuando eso pase, el elemento que representen también se perderá. Entonces... ¿Por qué hacen esto los Caballeros del Orden? ¿Lo hacen solo para evitar que los usen? Si es así, les bastaría con eliminar a una de ustedes o capturarla, ¿entonces ya no podrían recuperar el poder de los Elementos de la Armonía en su conjunto, no? o... ¿sí?" preguntó repentinamente Magi a todas las ponis, con una expresión que reflejaba la retorcida esperanza que ansiosamente buscaba encontrar en ellas.
+"Sí, sí, ¡eso! ¿Cuál es el problema? Si la magia de los Elementos solo persiste en ustedes, entonces tarde o temprano desaparecerá. Después de todo, no somos eternas. Bueno... quizás la princesa sí lo sea, pero nosotras no. A todas nos llega la hora en algún momento, y cuando eso pase, el elemento que representen también se perderá. Entonces, ¿por qué hacen esto los Caballeros del Orden? ¿Lo hacen solo para evitar que los usen? Si es así, les bastaría con eliminar a una de ustedes o capturarla, y ya no podrían recuperar el poder de los Elementos de la Armonía en su conjunto, ¿no? O... ¿sí?" preguntó Magi repentinamente, con una expresión que reflejaba la ansiosa esperanza de encontrar respuestas en ellas.
 
-"Bueno... pues..." todas las ponis se encontraban algo desorientadas. Twilight era quien entendía mejor aquellos temas de la magia, pero la duda que planteaba Magi era válida, aunque se sentía bastante forzada. Para empezar no sabían a dónde quería llegar Magi con aquellas preguntas. Realmente nunca habían ahondado mucho en aquellos temas. Twilight, en algunos experimentos, hizo el intento de activar la magia de los Elementos con solo un trío de ellas, y los resultados fueron bastante descepcionantes. La magia funcionaba, pero no era lo suficientemente potente y las dejaba muy agotadas. En conjunto, eran mucho más fuertes, de eso no había duda. Sin embargo, el caso de recuperar la magia de una de ellas si le sucediera algo... ¿realmente era algo que Twilight no hubiera previsto? Y si así fuera, ¿cómo lo haría?
+"Bueno... pues..." Todas las ponis estaban desorientadas. No tenían una respuesta rápida. Twilight era quien entendía mejor aquellos temas de la magia. Aunque la duda que planteaba Magi era válida, se sentía bastante forzada. Para empezar, no sabían a dónde quería llegar con aquellas preguntas.
 
-El grupo de amigas ponis se sumió en una profunda reflexión bajo las ondulantes sombras del interior del vagón médico. Entonces, un rayo de luz brilló entre ellas. O más bien, un rayo de luz rosa.
+Realmente nunca habían ahondado mucho en esos temas. Twilight, en algunos experimentos, había intentado activar la magia de los Elementos con solo un trío de ellas, pero los resultados fueron bastante decepcionantes. La magia funcionaba, pero no era lo suficientemente potente y las dejaba muy agotadas. En conjunto, eran mucho más fuertes, de eso no había duda. Sin embargo, el caso de recuperar la magia de una de ellas si le sucediera algo... ¿realmente era algo que Twilight no hubiera previsto? Y si así fuera, ¿cómo lo haría?
 
-"¡Eso es! ¡Los cristales! ¡Los cristales!" exclamó Pinkie Pie emocionada hacia sus amigas. "¡Twilight podría colocar parte de nuestra magia dentro de un cristal y así hacer un conjunto con cada una de nosotras! ¡Y no solo eso! ¡Cualquiera de nosotras podría usarlo, ya que somos parte del conjunto! ¡Podría guardarse y dárselo a otro poni para que aprenda a usarlo en el futuro! ¡Así no se perdería la magia! ¡Es brillante!"
+El grupo de amigas se sumió en una profunda reflexión bajo las ondulantes sombras del interior del vagón médico. Entonces, un rayo de luz brilló entre ellas. O más bien, una chispa de luz rosa.
+
+"¡Eso es! ¡Los cristales! ¡Los cristales!" exclamó Pinkie Pie emocionada, como si se le hubiera encendido el foco. "¡Twilight podría colocar parte de nuestra magia dentro de un cristal y así formar un conjunto con cada una de nosotras! ¡Y no solo eso! ¡Cualquiera podría usarlo, ya que somos parte del conjunto! ¡Podríamos guardarlo y dárselo a otro poni para que aprenda a usarlo en el futuro! ¡Así no se perdería la magia! ¡Es brillante!"
 
 Un fuego pareció encenderse en los ojos de Magi, como si todas sus esperanzas finalmente se hicieran realidad. Eso era lo que quería escuchar.
 
 "¡Maravilloso! La princesa debe haberles dado algo así, ¿verdad? Porque un objeto tan poderoso debe tener la fuerza suficiente para derrotar a los Caballeros del Orden en este momento," exclamó Magi en un relincho lleno de alegría.
 
-Pinkie Pie y sus amigas se quedaron petrificadas, toda la infundada esperanza que habían sentido repentinamente por la alegría de Pinkie se desvaneció y desapareció. Mirándose entre sí deprimidas, finalmente Applejack respondió: "Lo siento, Twilight no nos dio nada como eso..."
+Pinkie Pie y sus amigas se quedaron petrificadas. Toda la infundada esperanza que habían sentido por la alegría de Pinkie se desvaneció por completo. Mirándose entre sí, finalmente Applejack respondió: "Lo siento, Twilight no nos dio nada como eso..."
 
-"Qué desafortunado..." dijo Magi totalmente desesperanzada.
+"Qué desafortunado..." dijo Magi, totalmente desesperanzada.
 
 Applejack levantó una ceja. Magi estaba... ¿fingiendo?
 
-"¡Esperen!" gritó Fluttershy repentinamente, llamando la atención de todas. "Ahh... uhm... disculpen, debí decirlo antes... pero Twilight me dio esto poco antes de dejar la enfermería. Creo que es justo lo que necesitamos ahora, ¿verdad?"
+"¡Esperen!" gritó Fluttershy repentinamente, llamando la atención de todas. "Ahh... uhm... disculpen, debí decirlo antes, pero Twilight me dio esto poco antes de dejar la enfermería. Creo que es justo lo que necesitamos ahora, ¿verdad?"
 
-De la melena de Fluttershy emergió un rosario de seis piedras, tres de ellas eran blancas y las otras tres tenían una tonalidad purpura, amarillo y celeste. El brillo que emanaba de estas gemas era casi idéntico al que una vez tuvieron los elementos de la armonía originales.
+De la melena de Fluttershy emergió un rosario de seis piedras. Tres de ellas eran blancas, mientras que las otras tres tenían tonalidades púrpura, amarillo y celeste. El brillo que emanaba de estas gemas era casi idéntico al que una vez tuvieron los Elementos de la Armonía originales.
 
-"Estas gemas son... ¡Hermosas!" exclamó Rarity, cuyos ojos brillaban intensamente, al igual que los de todas las ponis presentes.
+"¡Estas gemas son... hermosas!" exclamó Rarity, cuyos ojos brillaban intensamente, al igual que los de todas las ponis presentes.
 
-Animadas nuevamente por esa milagrosa oportunidad, las amigas ponis se regocijaron, pues finalmente tenían algo que podrían usar para defenderse.
+Animadas nuevamente por esa milagrosa oportunidad, las amigas se regocijaron. Finalmente tenían algo que podrían usar para defenderse.
 
-"Mmm, esperen... ¿Deberían ser tres del mismo color?" señaló Magi a tres de las gemas que tenian un color blanco.
+"Mmm... esperen, ¿deberían ser tres del mismo color?" señaló Magi, mirando las gemas blancas con curiosidad.
 
-"No... Twilight me dijo que necesitaban ser completados con la magia de Rarity, Applejack y Pinkie Pie. No entendía bien de qué hablaba en ese momento... solo me pidió que lo llevara, en caso de que algo le pasara," dijo Fluttershy claramente entristecida.
+"No... Twilight me dijo que necesitaban completarse con la magia de Rarity, Applejack y Pinkie Pie. No entendí bien de qué hablaba en ese momento... solo me pidió que lo llevara, en caso de que algo le pasara," dijo Fluttershy, claramente entristecida.
 
-Todas las ponis entonces recordaron con pesar el repentino ataque de Rainbow Dash, la pérdida de Twilight y el caos que se desató después.
+Todas las ponis recordaron con pesar el repentino ataque de Rainbow Dash, la pérdida de Twilight y el caos que se desató después.
 
-Entonces Applejack finalmente notó lo evidente...
+Entonces, Applejack notó lo evidente.
 
-"Esperen... ¿aun estamos en el tren? ¡Vendrán por nosotras en cualquier momento! ¡Tenemos que salir de aquí ahora!" exclamó alarmada Applejack.
+"Esperen... ¿aún estamos en el tren? ¡Vendrán por nosotras en cualquier momento! ¡Tenemos que salir de aquí ahora!" exclamó alarmada Applejack.
 
 Pero Magi simplemente se rió al ver a las ponis entrar en pánico.
 
-"¿Eh?" se miraron extrañadas las ponis.
+"¿Eh?" se miraron extrañadas entre sí.
 
-"Por favor, no se alarmen. Estamos totalmente a salvo. Más bien, deben completar esos cristales lo más pronto posible. Solo entonces tendremos una oportunidad de salir de aquí y salvar a su princesa y su otra amiga," dijo Magi mientras miraba por la ventana.
+"Por favor, no se alarmen. Estamos totalmente a salvo. Más bien, deben completar esos cristales lo más pronto posible. Solo entonces tendremos una oportunidad de salir de aquí y salvar a su princesa y su otra amiga," dijo Magi mientras se alejaba para mirar por la ventana.
 
-Applejack no podía negarse a ese plan... pero realmente, ¿eran estos cristales su mejor recurso para derrotar a los caballeros del orden? ¿Por qué Twilight no mencionó algo como esto antes de la pelea contra el gallo dragón?
+Applejack no podía negarse a ese plan... pero realmente, ¿eran estos cristales su mejor recurso para derrotar a los Caballeros del Orden? ¿Por qué Twilight no mencionó algo como esto antes de la pelea contra el gallo-dragón?
 
-Con desconfianza, Applejack observaba a Magi por detrás, mientras que la sospechosa pegaso, con una sonrisa oscura, vigilaba distraida por la ventana.
+Con desconfianza, Applejack observaba a Magi por detrás, mientras la sospechosa pegaso, con una sonrisa oscura, vigilaba distraída por la ventana.
 
-// ----------------------------------
+[---]
 
 "¿Dónde están?" pensó con creciente frustración Ceridwen mientras revisaba por tercera vez los restos del tren.
 
-Había relevado a Mannha en la misión de captura de la princesa Twilight y sus amigas. Aunque el sub-líder de los Caballeros del Orden había prometido que él se haría cargo de todo el trabajo, al final le terminó delegando la tarea a ella. No le sorprendió en absoluto, considerando el gran desastre que había causado su gran ataque elemental de agua, buscar entre los escombros que uno mismo había causado tendría que ser algo que un político como él jamás haría.
+Había relevado a Mannah en la misión de captura de la princesa Twilight y sus amigas. Aunque el sublíder de los Caballeros del Orden había prometido encargarse de todo el trabajo, al final terminó delegándole la tarea a ella. No le sorprendió en absoluto; considerando el desastre provocado por su gran ataque elemental de agua, buscar entre los escombros que uno mismo había causado era algo que un político como él jamás haría.
 
 "Políticos y sus promesas..." pensó mientras levantaba con su magia uno de los vagones inundados. "Si tan solo me hubieran enviado junto a Balor y Taranis... todo habría resultado diferente."
 
-Aquel trío de Caballeros había llevado a cabo una multitud de operaciones en el exterior del mundo, todas en su mayoría exitosas. Espionaje, sabotaje, recuperación de artefactos mágicos, manipulación de reinos... la lista era larga. Ceridwen se sentía orgullosa de tener un historial intachable. Era conocida y respetada en toda la Hermandad de Caballería de Cunabula.
+Ese trío de Caballeros había llevado a cabo una multitud de operaciones fuera del mundo conocido, la mayoría de ellas exitosas. Espionaje, sabotaje, recuperación de artefactos mágicos, manipulación de reinos... la lista era larga. Ceridwen se sentía orgullosa de su historial intachable. Era conocida y respetada en toda la Hermandad de Caballería de Cunabula.
 
-Desde un principio se mostró dudosa del desarrollo de la misión.
+Desde el principio había dudado del desarrollo de la misión.
 
-La participación de los seis Caballeros del Orden no era algo frecuente. Morrigan siempre se mantenía cercana al templo y Mannah pasaba más tiempo en las oficinas del concilio que en el campo de las misiones. Incluso Danu tenía una gran cercanía al rey y era raro verlo visitar a las tropas regulares.
+La participación de los seis Caballeros del Orden no era algo frecuente. Morrigan siempre permanecía cerca del templo, mientras que Mannah pasaba más tiempo en las oficinas del concilio que en el campo de batalla. Incluso Danu, con su estrecha relación con el rey, rara vez visitaba a las tropas regulares.
 
-Ninguno de esos tres entendía cómo era verdaderamente un campo de batalla. Cómo se libraba una guerra. Peor aún... cómo encontrar la paz.
+Ninguno de ellos entendía cómo era realmente un campo de batalla, cómo se libraba una guerra... o peor aún, cómo encontrar la paz.
 
-Cunabula había permanecido mucho tiempo aislada en las sombras del mundo, y ahora habían irrumpido duramente en él.
+Cunabula había permanecido mucho tiempo oculta en las sombras del mundo, y ahora había irrumpido violentamente en él.
 
-Ceridwen había sugerido ser cautos en el primer ataque a Equestria. Había propuesto que fueran enviados tres miembros de los Caballeros a su elección para iniciar una misión inicial de espionaje y sabotaje en ese reino.
+Ceridwen había sugerido actuar con cautela en el primer ataque a Equestria. Propuso que se enviaran tres miembros de los Caballeros a su elección para llevar a cabo una misión inicial de espionaje y sabotaje en ese reino.
 
-Pero no fue escuchada. Después del desastre en Ornitia, Danu declaró que tales métodos eran inefectivos y que solo darían tiempo a las ponis para prepararse. Argumentó que todo debía acabar en un ataque frontal descisivo. Mannah y Morrigan apoyaron esta idea. Sumado al respaldo del Concilio y el Rey, Ceridwen simplemente tuvo que agachar la cabeza y permitir que el liderazgo de Danu prevaleciera.
+Pero no fue escuchada. Tras el desastre en Ornitia, Danu declaró que esos métodos eran inefectivos y que solo darían tiempo a las ponis para prepararse. Argumentó que todo debía resolverse con un ataque frontal decisivo. Mannah y Morrigan apoyaron esta idea, y con el respaldo del Concilio y el Rey, Ceridwen simplemente tuvo que agachar la cabeza y permitir que el liderazgo de Danu prevaleciera.
 
-¿Fue un error... no desafiarlo? No, Ceridwen siempre se consideró a sí misma como una servidora. Recibir órdenes y cumplirlas en el nombre de Cunabula era el propósito de su vida. Aun así, sentía que todo podría haber resultado mejor si el juicio del alto mando hubiera sido más... equitativo.
+¿Había sido un error no desafiarlo? No, Ceridwen siempre se consideró una servidora. Recibir órdenes y cumplirlas en nombre de Cunabula era el propósito de su vida. Aun así, no podía evitar pensar que todo habría resultado mejor si el juicio del alto mando hubiera sido más... equitativo.
 
-"SPLOOFFFFFFFFF" resonó en medio del lago creado artificialmente por la magia de Mannah. Ceridwen había dejado caer sin cuidado el vagón destrozado del tren. No había rastro de las ponis.
+"SPLOOOFFFFFFFFF" resonó en medio del lago creado artificialmente por la magia de Mannah. Ceridwen había dejado caer sin cuidado el vagón destrozado del tren. No había rastro de las ponis.
 
-El reflejo de la armadura naranja que portaba el cuerpo de Badwhiz brillaba nítidamente en las ondulantes aguas del lago. Este mismo cuerpo era ahora usado por Ceridwen.
+El reflejo de la armadura naranja que portaba el cuerpo de Badwhiz brillaba nítidamente en las ondulantes aguas. Este cuerpo era ahora usado por Ceridwen.
 
-"Entiendo..." pensó fríamente Ceridwen al contemplar su propio reflejo en el agua.
+"Entiendo..." pensó fríamente al contemplar su propio reflejo en el agua.
 
-No muy lejos, unos pequeños pájaros rojos de vistosas plumas negras la acechaban.
+No muy lejos, unos pequeños pájaros de vistosas plumas rojas y negras la observaban con atención.
 
-// ----------------------------------
+[---]
 
 Era una batalla difícil, la más difícil en su vida.
 
