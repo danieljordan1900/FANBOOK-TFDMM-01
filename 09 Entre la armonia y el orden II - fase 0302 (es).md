@@ -561,13 +561,16 @@ Inicialmente, su plan había sido mantenerse oculta y evitar llamar la atención
 Estos eran:
 
 La piedra de la memoria, una copia inferior que había adquirido en una subasta.
+
 La piedra de la imaginación, robada de un museo durante su adolescencia.
+
 La piedra de las visiones, un legado de la única poni a quien alguna vez llegó a respetar y admirar.
+
 Combinadas, estas piedras poseían el poder de revelar el futuro cercano con una precisión del 90% y el futuro lejano con un 50%. Aunque el futuro no estaba escrito en piedra, Magi sabía cómo manipularlo a su favor.
 
 Con práctica y paciencia, había aprendido a dominar las piedras, usándolas para adelantarse a sus competidores y construir su imperio comercial. Pero su éxito le dio confianza, y su confianza se convirtió en arrogancia. Eventualmente, dejó de usar las piedras, confiando únicamente en su intuición, salvo en casos de duda o emergencia.
 
-Hoy, sin embargo, había roto esa regla.
+Hoy, sin embargo, había roto esa seguridad.
 
 La visión que las piedras le habían mostrado era tan aterradora que hizo temblar hasta la última de sus plumas.
 
@@ -609,7 +612,7 @@ Aquella ilusión natural había arruinado su intento de ocultar el vagón médic
 
 Sabía que capturar o destruir a la princesa y sus amigas era solo el primer paso de los Caballeros del Orden. Después, atacarían la capital, el resto de Equestria y los demás reinos. Todo apuntaba a que su objetivo era eliminar cualquier posible amenaza hacia su misterioso reino.
 
-Por un momento, consideró negociar con ellos, pero sus instintos le advirtieron que sería un grave error. Sabía demasiado poco sobre ellos y sus intenciones, y eso era un riesgo inaceptable. Si habían planeado este ataque con tanta precisión, era improbable que cambiaran sus estrategias incluso ante factores inesperados.
+Por un momento, consideró negociar con ellos, pero sus instintos le advirtieron que sería un grave error. Sabía demasiado poco sobre ellos y sus intenciones, y eso era un riesgo inaceptable. Si habían planeado este ataque con tanta precisión, era improbable que cambiaran sus estrategias incluso ante factores inesperados que los favorecieran.
 
 Otro detalle que la inquietaba era el niño que trabajaba con los Caballeros. Su identidad seguía siendo un enigma, pero Magi decidió que ya no importaba.
 
