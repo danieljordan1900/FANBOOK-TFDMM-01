@@ -248,92 +248,98 @@ No muy lejos, unos pequeños pájaros de vistosas plumas rojas y negras la obser
 
 [---]
 
-Era una batalla difícil, la más difícil en su vida.
+Era una batalla difícil, la más dura de su vida.
 
-Golpe tras golpe. Su oponente se replegaba cada vez más. Rainbow Dash lo percibía. No le dejaría respirar, ni siquiera le daría la oportunidad de pensar.
+Golpe tras golpe, su oponente se replegaba cada vez más. Rainbow Dash lo notaba. No le permitiría recuperar el aliento ni le daría la oportunidad de pensar.
 
-Sus demás amigas habían caído, era su deber vengarlas.
+Sus amigas habían caído; era su deber vengarlas.
 
 Ella era la última en pie. El destino de Equestria estaba en sus cascos.
 
-Vainilla, cobardemente protegido por su burbuja mágica, resistía los ataques constantes que ella le propinaba. Pero eso no duraría para siempre. No era la primera vez que peleaba contra magos que pensaban que sus defensas eran absolutas y que sus oponentes se cansarían de repetir el mismo ataque.
+Vainilla, cobardemente protegido por su burbuja mágica, resistía los ataques constantes que ella le propinaba. Pero eso no duraría para siempre. No era la primera vez que enfrentaba a magos convencidos de que sus defensas eran impenetrables y que su oponente se rendiría por el cansancio.
 
-Tipos como esos no conocían a Rainbow Dash. Todos ellos terminaron aprendiendo una dura lección. Y Vainilla también la estaba aprendiendo. Se notaba en su rostro. Se estaba cansando.
+Tipos como esos no conocían a Rainbow Dash. Todos ellos terminaron aprendiendo una dura lección, y Vainilla también la estaba aprendiendo. Se notaba en su rostro: estaba agotándose.
 
-Empujando a Vainilla a través del cielo, Dash continuó golpeándolo entre las rocas, entre las colinas, entre los árboles.
+Empujándolo a través del cielo, Dash continuó golpeándolo contra rocas, colinas y árboles.
 
-No importaba dónde, seguiría haciéndolo hasta que esa cubierta cayera.
+No importaba dónde. Seguiría atacando hasta que aquella cubierta cayera.
 
-Entonces finalmente una brecha y una explosión de luz.
+Finalmente, una brecha y una explosión de luz.
 
-Pero Rainbow no se sorprendió. Aquello era un patético truco para asustarla. Embistió directamente, atrapando a su enemigo en el aire. Antes de que pudiera reaccionar, se deslizó ágilmente a su espalda y lo sujetó por las patas delanteras, inmovilizándolo. Rápida y furiosa, continuó su vuelo hacia el cielo y luego, como un cometa, ambos se precipitaron hacia la tierra, girando desenfrenadamente para que su enemigo no pudiera concentrarse.
+Pero Rainbow no se inmutó. Era un truco patético para asustarla. Embistió directamente, atrapando a su enemigo en el aire. Antes de que pudiera reaccionar, se deslizó ágilmente a su espalda y lo sujetó por las patas delanteras, inmovilizándolo. Rápida y furiosa, ascendió hacia el cielo y luego, como un cometa, se precipitó junto con él hacia la tierra, girando desenfrenadamente para evitar que pudiera concentrarse.
 
-Totalmente incapacitado por aquel increíble ataque, Vainilla no opuso resistencia. Su fin había llegado. Una violenta explosión se desató en medio de un pequeño bosque.
+Incapacitado por aquel increíble ataque, Vainilla no opuso resistencia. Su fin había llegado. Una violenta explosión sacudió un pequeño bosque.
 
-Vainilla yacía derrotado en el suelo, en medio de un cráter. En el último segundo, Rainbow Dash habia soltado el cuerpo de su oponente permitiendo que se estrellara en el suelo.
+Tras despejarse el polvo. Vainilla yacía derrotado en el suelo, en medio de un cráter. En el último segundo, Rainbow Dash había soltado el cuerpo de su oponente, permitiendo que se estrellara contra el suelo.
 
-Victoria y arrogancia se reflejaban en el vuelo de Rainbow Dash mientras se posicionaba encima de su oponente, colocando un casco sobre la cabeza del vencido villano.
+Victoria y arrogancia se reflejaban en el vuelo de Rainbow Dash mientras se posicionaba sobre su oponente, colocando un casco sobre la cabeza del vencido villano.
 
 Todo había terminado y, una vez más, Equestria estaba a salvo.
 
-Pronto, la gran barrera mágica comenzó a disolverse y desde todas direcciones llegaban amigos y conocidos de Dash.
+Pronto, la gran barrera mágica comenzó a disolverse, y desde todas direcciones llegaban amigos y conocidos de Dash.
 
 "¡Eres asombrosa, Dash! ¡Lo hiciste!" exclamaron los Wonderbolts.
 
-"No fue nada," respondió Dash sin modestia.
+"No fue nada," respondió Dash con desenfado.
 
-"Eres una pegaso extraordinaria. Es un gran honor estar en tu presencia," dijo la princesa Celestia inclinando la cabeza, acompañada de las otras princesas.
+"Eres una pegaso extraordinaria. Es un gran honor estar en tu presencia," dijo la princesa Celestia, inclinando la cabeza, acompañada de las otras princesas.
 
 "Por favor, ustedes también tienen alas, ¿no?"
 
-"Ciertamente, ¡la pegaso es INCREÍBLE! Alguien debería renombrar a Equestria y llamarla Dashiland", exclamó Discord, ataviado con un enorme traje de Rainbow Dash.
+"Ciertamente, ¡la pegaso es INCREÍBLE! Alguien debería renombrar a Equestria y llamarla Dashiland", exclamó Discord, ataviado con un enorme y pomposo traje de Rainbow Dash.
 
-"¡Hey! ¿y tú qué haces aquí?"
+"¡Hey! ¿Y tú qué haces aquí?"
 
-Entonces todos los ponis y criaturas presentes quedaron en silencio. Una figura oscura avanzó entre todos. Aquellos enormes cuernos que ostentaba hablaban de su identidad. Grogar, padre de los monstruos, avanzó lentamente hasta colocarse frente a Rainbow Dash y postrarse ante ella.
+Entonces todos los ponis y criaturas presentes quedaron en silencio. Una figura oscura avanzó entre ellos. Aquellos enormes cuernos que ostentaba hablaban de su identidad. Grogar, el padre de los monstruos, avanzó lentamente hasta colocarse frente a Rainbow Dash y postrarse ante ella.
 
 "Eres la poni más asombrosa del mundo," dijo el oscuro carnero con su grave e inconfundible voz.
 
-"Sí, como digas ... ¡¿DÓNDE ESTÁ MI PÚBLICO?!" exclamó la pegaso, alzando su casco y mirando a todos los que la rodeaban.
+"Sí, como digas... ¡¿DÓNDE ESTÁ MI PÚBLICO?!" exclamó la pegaso, alzando un casco y mirando a todos los que la rodeaban.
 
-Explosiones multicolores y luces centelleantes, una lluvia de ovaciones llegó a ella, intensa como el estruendo de cien estadios, todos gritando su nombre, haciéndola vibrar y llenándola de un sentimiento de plenitud total.
+Explosiones multicolores y luces centelleantes, una lluvia de ovaciones la envolvió, intensa como el estruendo de cien estadios, todos gritando su nombre, haciéndola vibrar y llenándola de un sentimiento de plenitud total.
 
-Rainbow Dash era Rainbow Dash, la más grande heroína que jamás hubiera existido o existiría.
+Rainbow Dash era Rainbow Dash, la más grande heroína que jamás había existido o existiría.
 
-Entonces, una verdadera lluvia cayó sobre su rostro, empapándola y silenciando todas esas fantasías.
+Entonces, una verdadera lluvia cayó sobre su rostro, empapándola y silenciando todas aquellas fantasías.
 
-Rainbow Dash miró nuevamente a su alrededor, el mundo ya no era colorido y brillante. Ahora era gris y polvoriento. Y bajo sus cascos no estaba el cuerpo de Vainilla, sino el de Twilight.
+Rainbow Dash miró nuevamente a su alrededor. El mundo ya no era colorido ni brillante. Ahora era gris y polvoriento. Bajo sus cascos no estaba el cuerpo de Vainilla, sino el de Twilight.
 
-La pegaso quedó muda por unos segundos, observando la escena. Luego, el recuerdo de su pelea con Badwhiz le llegó y cómo fue derrotada. Y luego ... como atacó a Vainilla, no ... a Twilight.
+La pegaso quedó muda por unos segundos, observando la escena con incredulidad. Entonces, los recuerdos de su pelea con Badwhiz la golpearon: cómo fue derrotada, y luego... cómo atacó a Vainilla. No... cómo atacó a Twilight.
 
-"¿Es un sueño? ¿Es un sueño, verdad?" se dijo a sí misma, incrédula, mordiéndose el casco. Sintió dolor, pero no despertó. Ya no estaba en un sueño...
+"¿Es un sueño? ¿Es un sueño, verdad?" se dijo a sí misma, incrédula, mordiéndose el casco. Sintió dolor, pero no despertó. Ya no estaba en un sueño.
 
 Era la realidad, o más bien, una pesadilla.
 
-Con lágrimas en los ojos, Rainbow Dash tomó rápidamente el cuerpo de Twilight y comenzó a sacudirlo, esperando una reacción... pero no ocurrió nada. "¡DESPIERTA, TWILIGHT! ¡POR FAVOR, DESPIERTA! ¡DIME QUE ESTO ES UN SUEÑO!"
+Con lágrimas en los ojos, Rainbow Dash tomó rápidamente el cuerpo de Twilight y comenzó a sacudirlo, esperando una reacción... pero no ocurrió nada.
+
+"¡DESPIERTA, TWILIGHT! ¡POR FAVOR, DESPIERTA! ¡DIME QUE ESTO ES UN SUEÑO!"
 
 Sin embargo, no hubo respuesta. No había vida en aquel cuerpo golpeado y roto.
 
-Dash comenzó a llorar, lágrimas verdaderas, torrentes de tristeza que caían al suelo, lágrimas nacidas de la terrible tragedia que había cometido.
+Dash comenzó a llorar, lágrimas verdaderas que caían al suelo, nacidas de la terrible tragedia que había cometido.
 
-"¡¿POR QUÉ? ¿POR QUÉ PASÓ ESTO? NO LO ENTIENDO, ¿POR QUÉ? ¿POR QUÉ?!" lloraba Rainbow Dash, acunando el cuerpo caído de su amiga.
+"¡¿POR QUÉ? ¿POR QUÉ PASÓ ESTO? NO LO ENTIENDO, ¿POR QUÉ? ¿POR QUÉ?!" sollozaba, acunando el cuerpo caído de su amiga.
 
 "Rainbow, estoy bien... no llores," dijo la voz de Twilight.
 
-"¡¿CÓMO QUIERES QUE NO LLORE DESPUÉS DE QUE TE... ¿EH?!" Rainbow dio un brinco, apartando a un lado el falso cuerpo de Twilight que había sostenido. Allí, de pie, agitada y maltrecha, estaba Twilight, todavía viva y con una sonrisa.
+"¡¿CÓMO QUIERES QUE NO LLORE DESPUÉS DE QUE TE... EH...?" Rainbow dio un brinco, apartando de inmediato el falso cuerpo de Twilight que había estado sosteniendo.
 
-La mente de Rainbow Dash quedó en blanco, todo parecía demasiado irreal como para reaccionar. Antes de que la pegaso pudiera abrir la boca, Twilight comenzó a hablar...
+Allí, de pie, agitada y maltrecha, estaba Twilight, todavía viva, con una sonrisa cansada.
 
-"Eres una gran fanática de las historias de Daring Do. Odias comer tartas. Tuviste una cita secreta con Soarin la primavera pasada y cuando eras pequeña, te encantaba usar vestidos blancos y que tus padres te llamaran 'princesita arcoíris', incluso cuando decías que lo odiabas", terminó diciendo Twilight, casi sin aliento.
+La mente de Rainbow Dash quedó en blanco. Todo parecía demasiado irreal como para reaccionar. Antes de que pudiera abrir la boca, Twilight comenzó a hablar.
 
-Rainbow Dash había escuchado suficiente, si esto era o no la realidad, no importaba. Tampoco le importaba el muñeco de Twilight que estaba en el suelo. Lo único de lo que estaba segura era lo que iba a hacer a continuación.
+"Eres una gran fanática de las historias de Daring Do. Odias comer tartas. Tuviste una cita secreta con Soarin la primavera pasada y, cuando eras pequeña, te encantaba usar vestidos blancos y que tus padres te llamaran 'princesita arcoíris', incluso cuando decías que lo odiabas," dijo Twilight, casi sin aliento.
 
-"¡TWILIGHT!" gritó Rainbow, abrazando a su amiga entre lágrimas de felicidad. Twilight, por su parte, se sentía dolorida por los golpes que había recibido. No eran heridas graves, pero se sentía agotada.
+Rainbow Dash había escuchado suficiente. Si esto era o no la realidad, ya no le importaba. Tampoco le importaba el muñeco de Twilight que yacía en el suelo. Lo único de lo que estaba segura era de lo que iba a hacer a continuación.
 
-"¿Estás bien? ¿Te hice daño...?" preguntó Rainbow frenética.
+"¡TWILIGHT!" gritó Rainbow, abrazando a su amiga entre lágrimas de felicidad.
 
-"No te preocupes, Rainbow, solo dame un momento de respiro."
+Twilight, por su parte, estaba dolorida por los golpes que había recibido. No eran heridas graves, pero se sentía agotada.
 
-Entonces, un meteoro oscuro impactó no muy lejos de ellas, y de entre el polvo emergió una figura que conocían. Envuelto en sombras, era Badwhiz, que finalmente les había dado alcance, listo para poner fin a esa batalla.
+"¿Estás bien? ¿Te hice daño?" preguntó Rainbow, frenética.
 
-"¡POR FAVOR, DENME UN DESCANSO!" se quejó Twilight molesta a lado de Dash, al mismo tiempo que un relámpago negro se lanzaba contra ellas.
+"No te preocupes, Rainbow. Solo dame un momento de respiro."
+
+Entonces, un meteoro oscuro impactó no muy lejos de ellas. De entre el polvo emergió una figura conocida. Envuelto en sombras, era Badwhiz, que finalmente las había alcanzado, listo para poner fin a esa batalla.
+
+"¡POR FAVOR, DENME UN DESCANSO!" se quejó Twilight, molesta al lado de Dash, justo cuando un relámpago negro se lanzaba contra ellas.
