@@ -1,96 +1,98 @@
-Magi podía jactarse de tener muchas cualidades que la colocaban por encima de otras ponis. Una buena fortuna, un agudo sentido para los negocios y una novia extremadamente amorosa... Magi realmente creía que era una pegaso sumamente afortunada cuando dejó Manehattan aquella mañana. Estaba convencida de que su día sería aún más brillante al caer la noche.
+Magazine Doublereport, o Magi, como prefería que la llamaran, podía jactarse de tener muchas cualidades que la colocaban por encima de otras ponis: una buena fortuna, un agudo sentido para los negocios y una novia extremadamente amorosa. Magi realmente creía que era una pegaso sumamente afortunada cuando dejó Manehattan aquella mañana, convencida de que lo sería aún más al caer la noche.
 
-Sin embargo, esa confianza se desmoronó a medida que avanzaba la tarde, enfrentando una serie de infortunios que no había anticipado en absoluto.
+Sin embargo, esa confianza comenzó a desmoronarse a medida que avanzaba la tarde, enfrentando una serie de infortunios que no había anticipado en absoluto.
 
-En primer lugar, el delicioso café de alta calidad que había llevado consigo se arruinó cuando una poni rosada la empujó mientras abordaba el tren al mediodía. Aunque el incidente fue claramente un accidente, Magi sintió que eso debió haberla puesto en alerta, como una advertencia de lo que estaba por venir.
+En primer lugar, el delicioso café de alta calidad que había llevado consigo desde Manehattan quedó arruinado cuando una poni rosada la empujó al abordar el tren al mediodía. Aunque claramente fue un accidente, Magi sintió que aquello debería haberle servido de advertencia, como una señal de lo que estaba por venir.
 
-En segundo lugar, su intento de sembrar discordia entre las amigas de la princesa Twilight, utilizando a Rainbow Dash como herramienta, resultó en un rotundo fracaso. Había esperado más de ellas, y su incredulidad ante la irracionalidad llamada "amistad" casi le hizo sentir náuseas. El vínculo entre ellas era mucho más fuerte de lo que había calculado.
+En segundo lugar, ya en su misión, su intento de sembrar discordia entre las amigas de la princesa Twilight, utilizando a Rainbow Dash como herramienta, terminó en un rotundo fracaso. Había esperado más de ellas, pero la irracionalidad llamada "amistad" que profesaban casi le provocó náuseas. El vínculo fanático entre esas yeguas era mucho más fuerte de lo que había calculado.
 
-Tercero, el tren en el que viajaba fue atacado por un enemigo misterioso que finalmente las secuestró. Aunque, siendo honesta consigo misma, nunca abria divinado eso venir. Estos problemas eran, en teoría, asuntos de la princesa y su séquito. Magi tenía la opción de simplemente retirarse y permitir que las cosas siguieran su curso natural...
+Tercero, el tren en el que viajaba fue atacado por un enemigo desconocido y terminó secuestrado. Aunque, siendo honesta consigo misma, nunca habría previsto algo así. Estos problemas, en teoría, eran asuntos de la princesa y su séquito. Magi tenía la opción de retirarse y dejar que las cosas siguieran su curso natural...
 
 Pero no lo hizo.
 
-Tuvo un presentimiento. Magi siempre había escuchado una voz interna que la guiaba cuando se trataba de tomar decisiones. Podría ser su subconsciente o incluso su cutie mark actuando como guía. La fuente no importaba tanto como el hecho de que esa voz siempre la había conducido a tomar decisiones acertadas. Esa voz interna nunca la había traicionado.
+Tuvo un presentimiento y decidió quedarse. Magi confiaba en una voz interna que la guiaba al tomar decisiones. Podría ser su subconsciente o incluso su cutie mark actuando como brújula. La fuente no importaba tanto como el hecho de que esa voz siempre la había llevado a tomar decisiones acertadas. Esa voz interna nunca la había fallado.
 
 Hasta ahora.
 
-Magi se miraba al espejo, observando la desesperación reflejada en su rostro. Ahora maldecía la confiable voz interna que siempre la había guiado. Pero esta voz no tenía intenciones de quedarse callada.
+Magi se miraba al espejo, observando la desesperación reflejada en su rostro. Ahora maldecía a la confiable voz interna que siempre la había guiado. Pero esa voz no tenía intención de quedarse callada.
 
-"Te equivocaste y ahora eres una perdedora como ellas, ... acepta la realidad", le hablaba su burlón reflejo.
+"Te equivocaste, y ahora eres una perdedora como ellas... acepta la realidad", le hablaba su burlón reflejo.
 
-"¡NO ME HE EQUIVOCADO! ¡SALDRÉ DE AQUÍ COMO SIEMPRE! ¿ENTIENDES?" respondió Magi con furia a su propio reflejo.
+"¡NO ME HE EQUIVOCADO! ¡SALDRÉ DE AQUÍ COMO SIEMPRE! ¿ENTIENDES?" respondió Magi con furia, encarando su propio reflejo.
 
-"Claro, claro, y dime, ¿qué harás ahora? Salvaste a las amigas de la princesa y ahora están a tu merced, justo como lo planeaste. ¿Crees que te creerán cuando les digas que todos estos artefactos mágicos y aparatos que tienes son solo para defensa personal?" se rió el reflejo de Magi, señalando los tres orbes de piedra que flotaban sobre ella, el comunicador en su oreja y los otros accesorios tecnológicos que llevaba puestos.
+"Claro, claro. Y dime, ¿qué harás ahora? Salvaste a las amigas de la princesa y ahora están a tu merced, justo como planeaste. ¿Crees que te creerán cuando les digas que todos esos artefactos mágicos y aparatos que llevas son solo para defensa personal?" se rió el reflejo de Magi, señalando los tres orbes de piedra que flotaban sobre ella, el comunicador en su oreja y los otros accesorios tecnológicos que portaba.
 
-"Están desesperadas, me necesitan. Creerán lo que les diga... solo debo convencerlas de trabajar juntas, eso será suficiente".
+"Están desesperadas. Me necesitan. Creerán lo que les diga... solo debo convencerlas de trabajar juntas, eso será suficiente".
 
-"Oh, claro... luego derrotarás a los villanos y serás nombrada la salvadora de Equestria. ¡Magi, la súper-amiga! Ja ja ja ja", se rió con desdén su reflejo.
+"Oh, claro... luego derrotarás a los villanos y serás nombrada la salvadora de Equestria. ¡Magi, la súper-amiga! Ja, ja, ja", se burló su reflejo con desdén.
 
-"¡Cállate!", respondió una furiosa Magi a su reflejo, su voz resonando en la pequeña habitación.
+"¡Cállate!", respondió una furiosa Magi, su voz retumbando en la pequeña habitación.
 
-"Sabes, deberías dejar todo esto y aceptar que no tenemos salvación... al menos asi podremos regresar en paz con la familia..."
+"Sabes, deberías dejar todo esto y aceptar que no tenemos salvación... al menos así podríamos regresar en paz con la familia..."
 
-"¡CÁLLATE!", gritó Magi con una mezcla de rabia y desesperación, golpeando con fuerza el espejo del baño.
+"¡CÁLLATE!", gritó Magi con desesperación, golpeando con fuerza el espejo del baño.
 
-Los fragmentos del espejo cayeron al suelo en un tintineo. Luego, una sudorosa Magi se sentó en el suelo y se quedó quieta, mirando fijamente el techo. No pensaba en nada... excepto en una cosa. Con solo concentrarse, los tres orbes mágicos que flotaban a su alrededor comenzaron a girar y a formar una pantalla circular.
+Los fragmentos del espejo cayeron al suelo con un tintineo. Una sudorosa Magi se dejó caer en el suelo y permaneció inmóvil, mirando fijamente al techo. No pensaba en nada... excepto en una sola cosa.
+
+Concentrándose, hizo que los tres orbes mágicos que flotaban a su alrededor comenzaran a girar, formando una pantalla circular.
 
 La pantalla estaba en blanco.
 
-Magi rápidamente deshizo la magia, sintiendo cómo la frustración se acumulaba en su pecho. Se acurrucó aún más, buscando apartar la soledad que la envolvia.
+Magi deshizo rápidamente el hechizo, sintiendo cómo la frustración se acumulaba en su pecho. Se acurrucó aún más, tratando de ahuyentar la soledad que la envolvía.
 
-"¿Por qué no hay futuro?", se preguntó en voz baja, casi sollozando. Sus planes y esperanzas habían sido desbaratados de una manera que nunca antes había imaginado.
+"¿Por qué no hay futuro?", susurró en voz baja, casi sollozando. Sus planes y esperanzas habían sido desbaratados como nunca antes en su vida...
 
-// ----------------------------------
+[---]
 
-El escenario donde antes se extendía la vía del tren de Ponyville a Canterlot, ahora se encontraba sumergido en un inmenso lago que cubría toda la parte baja de la pradera.
+El escenario donde antes se extendía la vía del tren de Ponyville a Canterlot ahora estaba sumergido en un inmenso lago que cubría toda la parte baja de la pradera.
 
-Una feroz ola de agua encantada se había desatado en aquel lugar, arrancando árboles, destrozando rocas y aplastando al tren que se encontraba en su camino. La ola había arrasado con todo a su paso, dejando los restos del tren dispersos como hojas flotantes en la deriva o sumergidos en las profundidades del lago.
+Una feroz ola de agua encantada se había desatado en aquel lugar, arrancando árboles, destrozando rocas y aplastando el tren que se encontraba en su camino. La ola había arrasado con todo, dejando los restos del tren dispersos como hojas flotantes a la deriva o hundidos en las profundidades del lago.
 
-Sobre la única roca que sobresalía en medio de aquel lago, Mannah estaba de pie, contemplando la destrucción que había causado con uno de sus ataques de magia elemental más poderosos.
+Sobre la única roca que sobresalía en medio de aquel lugar inundado, Mannah estaba de pie, contemplando la destrucción que había causado con uno de sus ataques de magia elemental más poderosos.
 
-"Quizás me excedí un poco", pensó para sí mismo, ya que no percibía ninguna señal de vida en el agua. Se suponía que debía capturar a las ponis, pero dada la actual condición del terreno, era muy probable que hubieran sido eliminadas...
+"Quizás me excedí un poco", pensó, ya que no percibía señales de vida en el agua. Se suponía que debía capturar a las ponis, pero, dado el estado del terreno, era muy probable que hubieran sido eliminadas...
 
-A su lado, Badwhiz parecía estar impresionado, aunque era difícil confirmarlo, dado que gran parte de su cuerpo estaba compuesto por sombras.
+De reojo, observó a Badwhiz, quien parecía impresionado, aunque resultaba difícil confirmarlo dado que gran parte de su cuerpo estaba compuesto por sombras imprecisas.
 
-"Uhmm", aclaró su garganta el sub-líder de los Caballeros del Orden. "Esto es solo una pequeña muestra de mi inmenso poder. ¡QUE LOS ENEMIGOS DE CUNÁBULA SE ARREPIENTAN DE SU NECEDAD!" exclamó con orgullo, levantando sus cascos hacia el cielo. Sin embargo, se tambaleó un poco debido a su poca familiaridad con su nuevo cuerpo de poni.
+"Uhmm", aclaró su garganta el sub-líder de los Caballeros del Orden. "Esto es solo una pequeña muestra de mi inmenso poder. ¡QUE LOS ENEMIGOS DE CUNÁBULA SE ARREPIENTAN DE SU NECEDAD!" exclamó con orgullo, levantando sus extremidades superiores hacia el cielo. Sin embargo, se tambaleó un poco debido a su poca familiaridad con su nuevo cuerpo de poni.
 
-"Hooo", respondió Badwhiz golpeteando sus cascos contra el suelo.
+"Hooo", respondió Badwhiz, golpeando sus cascos contra la roca.
 
-Para Mannah, esos gestos le parecían bastante entretenidos. Su especie no tenía cascos ni tan pocas extremidades, y en general, las criaturas cuadrúpedas no eran de su agrado. No obstante, la atención que recibía de aquel poni le resultaba curiosa y hasta graciosa.
+Para Mannah, esos gestos eran bastante entretenidos. Su especie no tenía cascos ni tan pocas extremidades. En general, las criaturas cuadrúpedas no eran de su agrado. No obstante, la atención que recibía de aquel joven poni le resultaba curiosa y hasta graciosa.
 
-"Ahora que lo pienso... jamás vi a Danu reaccionar de esa manera a pesar de que su raza está emparentada con los ponis", reflexionó Mannah, desechando rápidamente ese pensamiento. Estaba siendo ingenuo. Danu era un caso excepcional entre su gente. Si realmente tenía que comparar a los ponis con los leoponis, sería más sensato usar a alguien con más sentido común, como Dana, la hermana predilecta del rey.
+"Ahora que lo pienso... jamás vi a Danu reaccionar de esa manera, a pesar de que su raza está emparentada con los ponis", reflexionó Mannah, desechando rápidamente ese pensamiento. Era ingenuo de su parte. Danu era un caso excepcional entre su gente. Si debía comparar a los ponis con los leoponis, lo más sensato sería usar como referencia a alguien con más sentido común, como Dana, la hermana predilecta del rey.
 
-En ese momento, un mensaje mental llegó a él. Balor había despertado.
+En ese momento, un mensaje mental llegó a él: Balor había despertado.
 
 "Escudero Badwhiz", llamó Mannah.
 
 "Presente, mi Señor", exclamó Badwhiz, listo para recibir órdenes.
 
-"Ya no requiero de tu escolta. Nuestros enemigos han sido arrasados por mi marea. Sin embargo, la princesa aún lucha en las colinas. Ve y asiste al peón que está bajo nuestro control para que doblege a la princesa sin demora", ordenó Mannah sin voltearse.
+"Ya no requiero de tu escolta. Nuestros enemigos han sido arrasados por mi marea. Sin embargo, la princesa aún lucha en las colinas. Ve y asiste al peón bajo nuestro control para que doblegue a la princesa sin demora", ordenó Mannah sin voltearse.
 
-"Así lo haré", dijo Badwhiz rápidamente, inclinando la cabeza. Pero antes de partir, algo le detuvo y llamó la atención de Mannah.
+"Así lo haré", respondió Badwhiz rápidamente, inclinando la cabeza. Pero antes de partir, algo lo detuvo y llamó la atención de Mannah.
 
 "¿Qué sucede?", dijo Mannah en un tono autoritario.
 
-"Disculpe, Gran sub-líder Mannah, pero ¿qué planea hacer con el Gallo Dragón Titanicus?", preguntó Badwhiz, manteniendo su mirada baja. No muy lejos de ellos, se encontraba el cuerpo del inmenso gallo dragón flotando en el agua. Aquello debería ser imposible para una criatura de tal tamaño o peso, lo que sugería alguna cualidad única de su especie.
+"Disculpe, Gran sub-líder Mannah, pero... ¿qué planea hacer con el Gallo Dragón Titanicus?", preguntó Badwhiz, manteniendo la mirada baja. No muy lejos de ellos, el inmenso cuerpo del gallo dragón flotaba en el agua. Algo físicamente imposible para una criatura de tal tamaño y peso, lo que sugería alguna cualidad única de su especie.
 
-"Uhmm", murmuró Mannah en reflexión. Podría rescatar a la mascota del niño y usarla contra la princesa, pero actuar así podría parecer como una recompensa injustificada. Y sinceramente, Badwhiz aún no había demostrado ser útil en lo más mínimo. Había sido traído como un peón sacrificable en caso de que las ponis lo atacasen mientras canalizaba el hechizo, lo cual no había sucedido, y el niño simplemente había sido un espectador.
+"Uhmm", murmuró Mannah, reflexionando. Podría rescatar a la mascota del niño y usarla contra la princesa, pero aquello podría parecer una recompensa inmerecida. Además, Badwhiz aún no había demostrado ser útil en lo más mínimo. Había sido traído como un peón sacrificable en caso de que las ponis atacaran durante la canalización del hechizo, lo cual no ocurrió, y el niño simplemente había sido un espectador.
 
-"Ha cumplido su propósito. Y tú aún no has terminado de cumplir el tuyo. Ceridwen se encargará del resto. ¿Está claro, Escudero Badwhiz?", dijo Mannah con un tono de voz que dejaba en claro que no toleraría más contratiempos.
+"Ha cumplido su propósito. Y tú aún no has terminado de cumplir el tuyo. Ceridwen se encargará del resto. ¿Está claro, Escudero Badwhiz?", dijo Mannah con un tono que no admitía objeciones.
 
-"Sí, Gran sub-líder Mannah", respondió Badwhiz con rapidez, y en un abrir y cerrar de ojos, agitando sus negras alas, se elevó hacia el cielo en dirección a las colinas.
+"Sí, Gran sub-líder Mannah", respondió Badwhiz con rapidez. En un abrir y cerrar de ojos, agitando sus negras alas, se elevó hacia el cielo en dirección a las colinas.
 
-// ----------------------------------
+[---]
 
-De regreso en el vagón médico...
+Mientras tanto, en el vagón médico...
 
-"Espera un momento, Pinkie... ¿estás diciendo que Magi se quedó en el tren, escondida en uno de los baños todo este tiempo?" preguntó Applejack, incrédula, aún recostada en una cama.
+"Espera un momento, Pinkie... ¿estás diciendo que Magi se quedó en el tren, escondida en uno de los baños todo este tiempo?" preguntó Applejack, incrédula, aún recostada en la cama médica.
 
 "Sí, eso fue lo que nos dijo," confirmó Rarity.
 
 "Ella mencionó que se preocupó mucho por nosotras después de que Vainilla la expulsara del vagón. Dijo que tuvo un mal presentimiento y decidió quedarse," añadió Fluttershy.
 
-Applejack se rascó la cabeza; algo en esa historia no encajaba del todo, o más bien, no encajaba en nada. Recordaba que Twilight había mencionado algo sobre que la Gran Barrera había expulsado a cualquiera que pudiera ayudarles, pero ¿se refería solo a los animales? La granjera agitó la cabeza; todavía se sentía un poco mareada para pensar con claridad...
+Applejack se rascó la cabeza; algo en esa historia no encajaba del todo, o más bien, no encajaba en nada. Recordaba que Twilight había mencionado algo sobre que la Gran Barrera había expulsado a cualquiera que pudiera ayudarles, pero ¿se refería solo a los animales? La granjera agitó la cabeza; todavía se sentía un poco mareada para pensar con claridad.
 
 "Applejack, querida, ¿cómo te sientes?" preguntó Rarity.
 
@@ -98,7 +100,7 @@ Applejack se rascó la cabeza; algo en esa historia no encajaba del todo, o más
 
 "Fue al baño... dijo que necesitaba prepararse adecuadamente," respondió Pinkie Pie mientras comía de una bolsa de galletas Yumi.
 
-Justo en ese momento, la puerta del baño se abrió y Magi salió. Sin embargo, no era la misma Magi sonriente que las había salvado usando una de sus cápsulas de emergencia y que luego las había atendido para que se recuperaran. La Magi que ahora se enfrentaba a ellas tenía una mirada fría y oscura, estaba equipada con toda clase de artefactos y herramientas mágicas, parecía estar lista para entrar en una batalla.
+Justo en ese momento, la puerta del baño se abrió y Magi salió. Sin embargo, no era la misma Magi sonriente que las había salvado usando una de sus cápsulas de emergencia y que luego las había atendido para que se recuperaran. La Magi que ahora se mostraba a ellas tenía una mirada fría y oscura; estaba equipada con toda clase de artefactos y herramientas mágicas. Más que una amiga lista para ayudar, parecía preparada para entrar en una batalla.
 
 Estos eran sus verdaderos colores.
 
@@ -108,23 +110,25 @@ El ambiente se llenó de tensión entre el grupo de amigas y la pegaso pelirroja
 
 Magi suspiró.
 
-"Ya me he presentado antes... miren, no tenemos tiempo para esto. Debemos trabajar juntas," dijo Magi sin mostrar emociones.
+"Ya me he presentado antes... Miren, no tenemos tiempo para esto. Debemos trabajar juntas," dijo Magi sin mostrar emociones.
 
-"¿Realmente? ¿Cómo sabemos que no estás del lado de Vainilla?" cuestionó Applejack.
+"¿De verdad? ¿Cómo sabemos que no estás del lado de Vainilla?" cuestionó Applejack.
 
 "¿Vainilla? ¿Te refieres a uno de los tipos que les atacaron? ¿O al chico que tiene como sirviente?"
 
-"¿Uhmm?" Applejack no tenía respuesta, su mente había quedado perpleja al tratar de entender la pregunta que le habían hecho. Magi se dio cuenta de que, a pesar de la apariencia decidida de Applejack, aún se encontraba desorientada y debilitada.
+"¿Uhmm?" Applejack no tenía respuesta; su mente quedó perpleja al tratar de entender la pregunta. Magi pareció sonreír sutilmente. Se dio cuenta de que, a pesar de la apariencia decidida de Applejack, aún estaba desorientada y debilitada.
 
-"Puedo ayudarles, pero nos estamos quedando sin tiempo. Solo... necesito que confíen en mí, por favor" dijo Magi implorando pero se notaba que se estaba esforzando en decirlo.
+"Puedo ayudarles, pero nos estamos quedando sin tiempo. Solo... necesito que confíen en mí, por favor," continuó Magi, casi implorando, aunque se notaba que se esforzaba en decirlo.
 
-Applejack miró a sus amigas, quienes se veían tan preocupadas y exhaustas como ella. ¿Debería confiar en esa poni que parecía tan amenazadora y emanaba un aura oscura? ¿Qué haría Twilight?
+Applejack miró a sus amigas, quienes se veían tan preocupadas y exhaustas como ella. ¿Debería confiar en esa poni que parecía tan amenazadora y emanaba un aura de tan poca confianza? ¿Qué haría Twilight?
 
-Finalmente despues de una larga pausa.
+No podía pensarlo demasiado. Finalmente, después de una larga pausa, habló.
 
-"Está bien," dijo Applejack. Sus amigas parecieron recobrar algo de esperanza en ese momento.
+"Está bien," dijo Applejack.
 
-"Perfecto, no perdamos tiempo entonces." respondio Magi con alegria, tanto que sus colores parecian haber regresado a su semblante " Mencionaste a Vainilla antes, bien, no la conozco. Pero sí conozco a estos tipos" 
+Detrás de ella, el resto de las ponis parecieron recobrar algo de esperanza en ese momento.
+
+"Perfecto, no perdamos tiempo entonces." respondio Magi con sincera alegria, tanto que sus colores parecian haber regresado a su semblante haciendole ver menos amenzante " Mencionaste a Vainilla antes, bien, no la conozco. Pero sí conozco a estos tipos" 
 
 Antes que terminara sus palabras, uno de los orbes que flotaba sobre Magi se alejo de ella y se ubico en el techo. Luego, una luz se desprendió del orbe y generó una imagen holográfica en medio del vagón.
 
