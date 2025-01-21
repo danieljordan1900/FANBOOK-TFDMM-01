@@ -14,7 +14,7 @@ Balor observó más de cerca el espejo de agua encantado, tomó una muestra y an
 
 Una sonrisa oscura se mostró en su rostro. Esto era lo que había estado esperando.
 
-"Mi gran sub-líder, Mannah, es hora de que me otorge el control de esta operación", respondió con un aire sobrio.
+"Mi gran sub-líder, Mannah, es hora de que me otorge el control completo de esta operación", respondió con un aire sobrio.
 
 --------------------
 
@@ -26,7 +26,7 @@ Sin embargo, para Ceridwen, había una explicación simple: magia.
 
 Este domo, conocido también como la Gran Barrera, el lugar donde habían sido atrapadas Twilight y sus amigas. Fue creado utilizando un hechizo muy similar al que protegía el reino de Cunabula. Al igual que este, la Gran Barrera creaba una atmósfera de microclima beneficiosa para quienes se resguardaban dentro de ella.
 
-Aunque compartían similitudes, las diferencias eran más notables.
+Pero hasta hay llegaban las similitudes, las diferencias sub-siguientes eran más notables.
 
 La Gran Barrera era considerablemente más pequeña que su contraparte, tenía una duración más limitada, carecía de restricciones ambientales y no ofrecía seguridad en su solidez, ya que no requería un gran poder mágico para romperla desde el exterior o el interior.
 

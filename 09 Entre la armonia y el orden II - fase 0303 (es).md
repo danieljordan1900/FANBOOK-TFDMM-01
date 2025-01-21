@@ -12,7 +12,7 @@ La nueva amenaza llenó de angustia a la pequeña mariposa, que sin perder un se
 
 Aquella diminuta criatura desapareció de la vista de cualquiera que la hubiera observado. Sin embargo, en ese mundo en conflicto, pocos tenían ojos para detalles tan insignificantes como aquel.
 
---------------------
+[---]
 
 "¡TRHROOOOOOOOOOOOOOOOOOOOOOOOOOO!"
 
@@ -92,7 +92,7 @@ A través del polvo que se había levantado, Ceridwen vio cómo Twilight llegaba
 
 "No eres capaz de pelear por ti misma sin ventaja, ¿verdad, princesita?" se burló Ceridwen en su interior, satisfecha. Ahora estaba convencida de que su oponente no era mejor que ella ni que sus compañeros. No había ninguna fuerza especial cuidando detrás de esa poni, y pronto no tendría a nadie delante suyo que la protegiera.
 
---------------------
+[---]
 
 "Eso no estuvo bien", expresó Rainbow Dash, claramente molesta.
 
