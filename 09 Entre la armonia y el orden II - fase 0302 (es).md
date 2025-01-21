@@ -16,7 +16,7 @@ En la sala de guerra, otro enfrentamiento de miradas estalló. Pero antes de que
 
 "No necesito tu consuelo, Balor, pero gracias... Espero con ansias tu turno", respondió Morrigan con un toque de sarcasmo.
 
-"Ju ju, tendrás que esperar entonces. Ceridwen ha encontrado algo interesante...", mencionó Balor, fijando su mirada en el estanque mágico donde se veía a Ceridwen, en el cuerpo de Badwhiz, adentrándose en un vagón sumergido en el lago.
+"Ju ju, tendrás que esperar entonces. Ceridwen ha encontrado algo interesante...", mencionó Balor, fijando su mirada en el estanque mágico donde se veía a Ceridwen, en el cuerpo de Badwhiz, adentrándose en un vagón semi-sumergido en el lago.
 
 "¡Miren! ¡El chico finalmente alcanzó a las ponis! ¡Jaja! ¡Parece muy emocionado!" exclamó alegremente Taranis, señalando otra imagen en el estanque donde se mostraba al Badwhiz de sombras alcanzando a Twilight y Rainbow Dash.
 
