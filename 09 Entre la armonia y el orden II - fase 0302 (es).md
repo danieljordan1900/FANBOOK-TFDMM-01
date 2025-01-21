@@ -530,29 +530,29 @@ Decenas de cajas de explosivos aparecieron adheridas a las paredes, bajo los asi
 
 [---]
 
-Fluttershy nadaba suavemente en el lago, oculta bajo una maleta. A su alrededor flotaban más maletas, bolsos y restos de equipajes, así como partes destrozadas del tren, yendo a la deriva en la tranquila superficie del agua, donde antes habían estado las vías ferroviarias.
+Fluttershy nadaba suavemente en el lago, oculta bajo una maleta. A su alrededor flotaban más maletas, bolsos y restos de equipajes, junto con partes destrozadas del tren que derivaban en la tranquila superficie del agua, donde antes se alzaban las vías ferroviarias.
 
-Algunos fragmentos chocaban entre sí o se hundían con un sonido suave, pero Fluttershy se mantenía precavida. Con movimientos calculados, comenzó a alejarse del centro del lago. Detrás de ella, los rastros de la enorme explosión que había destruido el vagón médico aún eran visibles: humo negro elevándose lentamente hacia el cielo.
+A medida que avanzaba, algunos fragmentos chocaban entre sí o se hundían con un suave chapoteo. Fluttershy se mantenía alerta. Con movimientos calculados y silenciosos, se alejaba del centro del lago. A sus espaldas, aún se distinguían los rastros de la enorme explosión que había destruido el vagón médico: una columna de humo negro ascendía lentamente, oscureciendo el cielo.
 
-Habían pasado varios minutos desde el ataque, y no había señales de movimiento enemigo. Aprovechando esa calma, Fluttershy continuó avanzando hacia la otra orilla. Su objetivo era alcanzar los montículos de rocas que bordeaban el lago y luego adentrarse en el vasto bosque que rodeaba la Gran Barrera por el sur.
+Habían pasado varios minutos desde el ataque, y no había señales de movimiento enemigo. Aprovechando esa calma, Fluttershy continuó avanzando hacia la otra orilla. Su objetivo era llegar a los montículos de rocas que bordeaban el lago y, desde allí, adentrarse en el frondoso bosque que rodeaba la Gran Barrera por el sur.
 
-Sin embargo, incluso mientras nadaba, su mirada regresaba constantemente al lugar de la explosión.
+Aun así, incluso mientras nadaba, su mirada volvía constantemente al lugar de la explosión.
 
 En sus pezuñas sostenía las gemas que sus amigas le habían confiado. Lágrimas resbalaban por su rostro mientras recordaba los sacrificios que aquellas ponis habían hecho por ella.
 
-"Realmente fueron unas verdaderas amigas", murmuró, observando el humo que ascendía desde el centro del lago.
+"Realmente fueron unas verdaderas amigas", murmuró, deteniéndose un momento para observar el humo que ascendía del vagón médico calcinado.
 
-Pero entonces, algo cambió. Las lágrimas continuaban, pero ya no eran de tristeza. Fluttershy comenzó a reír suavemente, una risa oscura y desconcertante que habría dejado atónito a cualquiera que conociera su habitual gentileza.
+Sin embargo, algo más comenzó a hacerse evidente en el rostro de la pegaso. Las lágrimas seguían corriendo, pero no parecían causadas por la tristeza; todo lo contrario. Fluttershy empezó a reír suavemente, una risa oscura y desconcertante que habría dejado atónito a cualquiera que conociera su habitual gentileza.
 
 Porque, en realidad, ella no era Fluttershy.
 
 Era Magazin Doublereport.
 
-La verdadera Fluttershy habría llorado desconsolada por la pérdida de sus amigas, pero Magi no compartía esos sentimientos. Para ella, la amistad no era más que una etiqueta útil, algo que podía usar para cautivar y manipular a quienes la rodeaban. Lo único que había cambiado tras lo sucedido era su perspectiva: ahora entendía que la amistad podía ser una herramienta aún más poderosa.
+La verdadera Fluttershy habría llorado desconsolada por la pérdida de sus amigas. Pero Magi no compartía esos sentimientos. Para ella, la amistad no era más que una etiqueta útil, un concepto que podía emplear para cautivar y manipular a quienes la rodeaban. Lo único que había cambiado tras los eventos recientes era su perspectiva: ahora veía la amistad como una herramienta aún más poderosa.
 
 ("Si la amistad trata de que otros se sacrifiquen por ti, entonces tengo muchos amigos en casa, ji, ji, ji"), pensó divertida mientras continuaba nadando hacia la orilla.
 
-Magi estaba exultante. Aunque había enfrentado un contratiempo considerable, ahora tenía todo lo que necesitaba para continuar su plan.
+Magi estaba exultante. Aunque había enfrentado un contratiempo considerable, ahora tenía todo lo que necesitaba para continuar con su plan.
 
 En sus pezuñas estaba el legado de la princesa: un poderoso amuleto mágico que sin duda le otorgaría el poder necesario para escapar de aquella "jaula de perdición". Si todo fallaba, siempre podría usar la magia del amuleto para fingir su propia muerte y ocultarse hasta que el peligro pasara.
 
@@ -568,7 +568,7 @@ La piedra de las visiones, un legado de la única poni a quien alguna vez llegó
 
 Combinadas, estas piedras poseían el poder de revelar el futuro cercano con una precisión del 90% y el futuro lejano con un 50%. Aunque el futuro no estaba escrito en piedra, Magi sabía cómo manipularlo a su favor.
 
-Con práctica y paciencia, había aprendido a dominar las piedras, usándolas para adelantarse a sus competidores y construir su imperio comercial. Pero su éxito le dio confianza, y su confianza se convirtió en arrogancia. Eventualmente, dejó de usar las piedras, confiando únicamente en su intuición, salvo en casos de duda o emergencia.
+Con práctica y paciencia, había aprendido a dominar las piedras, usándolas para adelantarse a sus competidores y construir su imperio comercial. Su exito fue galopantem pero tambien le dio excesiva confianza, y esta con el tiempo se convirtió en arrogancia. Eventualmente, dejó de usar las piedras, confiando únicamente en su intuición, salvo en casos de duda o emergencia.
 
 Hoy, sin embargo, había roto esa seguridad.
 
@@ -586,7 +586,7 @@ En ella, Fluttershy, la amiga de la princesa, sostenía un llamativo rosario con
 
 Al principio, no comprendió su significado. Fue después, cuando merodeaba invisible por el tren en busca de respuestas, que todo encajó. En un descuido, vio a Twilight entregándole aquel mismo rosario a Fluttershy.
 
-Todo quedó claro. Si quería sobrevivir, debía hacerse con esos cristales. Su vida dependía de ello.
+Todo quedó claro para ella en ese momento. Si quería sobrevivir, debía hacerse con esos cristales. Su vida dependía de ello.
 
 Paso a paso, trazó su plan para alcanzarlos. Engañó a las amigas de la princesa, manipulándolas para completar las gemas. Luego capturó a Fluttershy y la encerró en el casillero de limpieza del vagón médico. Finalmente, tomó la apariencia de la pegaso y se acercó lo suficiente a las ponis para hacerse con el rosario.
 
@@ -610,13 +610,17 @@ Aquella ilusión natural había arruinado su intento de ocultar el vagón médic
 
 ("Bueno... Ya he tenido suficiente de estos tipos. Puedo imaginar lo que pretenden, así que será mejor mantener un perfil bajo hasta que terminen con su agenda").
 
-Sabía que capturar o destruir a la princesa y sus amigas era solo el primer paso de los Caballeros del Orden. Después, atacarían la capital, el resto de Equestria y los demás reinos. Todo apuntaba a que su objetivo era eliminar cualquier posible amenaza hacia su misterioso reino.
+Magi entendía perfectamente que capturar o destruir a la princesa y sus amigas era solo el primer paso de los Caballeros del Orden. Después, su plan incluiría atacar la capital, el resto de Equestria y los demás reinos. Todo apuntaba a que su objetivo era eliminar cualquier posible amenaza hacia su misterioso país de origen.
 
-Por un momento, consideró negociar con ellos, pero sus instintos le advirtieron que sería un grave error. Sabía demasiado poco sobre ellos y sus intenciones, y eso era un riesgo inaceptable. Si habían planeado este ataque con tanta precisión, era improbable que cambiaran sus estrategias incluso ante factores inesperados que los favorecieran.
+Por un instante, consideró la posibilidad de negociar con ellos, pero sus instintos le advirtieron que sería un error fatal. Sabía demasiado poco sobre sus intenciones y métodos, y eso hacía la idea aún más peligrosa. Si habían planeado su ataque con tanto detalle, era improbable que ajustaran sus estrategias ante circunstancias inesperadas, incluso si estas les favorecían.
 
-Otro detalle que la inquietaba era el niño que trabajaba con los Caballeros. Su identidad seguía siendo un enigma, pero Magi decidió que ya no importaba.
+Ademas habia otra variable inquietante: el enigma detrás del niño que trabajaba con los Caballeros. Su identidad permanecía oculta, y ni siquiera las amigas de la princesa parecían tener pistas sobre quién podía ser.
 
-La explosión que había preparado probablemente había herido o eliminado a uno de los Caballeros. Ahora, el resto debía estar confundido o replanteando su siguiente paso. La falta de una respuesta inmediata reforzaba esa idea. Este era el momento de aprovechar la confusión para escapar definitivamente.
+"Uhmmm..." Magi exhaló profundamente mientras procesaba sus pensamientos. Finalmente, tomó una decisión.
+
+Ya no importaba.
+
+La explosión que había preparado probablemente había herido o eliminado a uno de los Caballeros. Ahora, el resto debía de estar desorientado o replanteando su siguiente paso. La ausencia de una respuesta inmediata confirmaba esa teoría. Este era el momento perfecto para aprovechar la confusión y escapar definitivamente.
 
 Una suave brisa acarició la superficie del lago.
 
@@ -636,7 +640,7 @@ Una luz estalló en una de las orillas del lago. Magazin Doublereport había des
 
 "Uhmm ..." Ceridwen sabía que ese canal no pasaba por el filtro de Mannah, por lo que podría considerarse como una infracción a su autoridad.
 
-"Está bien ... ¿pero el sublíder está de acuerdo?" preguntó Ceridwen con desconfianza.
+"Está bien ... ¿pero el sub-líder está de acuerdo?" preguntó Ceridwen con desconfianza.
 
 "Por supuesto."
 
