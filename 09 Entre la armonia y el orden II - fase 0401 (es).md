@@ -16,7 +16,7 @@ Una sonrisa oscura se mostró en su rostro. Esto era lo que había estado espera
 
 "Mi gran sub-líder, Mannah, es hora de que me otorge el control completo de esta operación", respondió con un aire sobrio.
 
---------------------
+[---]
 
 Una suave llovizna caía en uno de los extremos de la Gran Barrera, acompañada de una brisa fresca y una neblina apenas perceptible.
 
@@ -82,7 +82,7 @@ El silencio envolvió a ambos adversarios.
 
 Ceridwen resopló ligeramente y preparó de inmediato otra barra dorada encantada con su magia. No tenía palabras de respuesta para su oponente. Después de todos los trágicos eventos acontecidos en Cunabula la noche anterior, simplemente, ya no había lugar para diálogos o negociaciones. Ella no se prestaría más para eso. Solo le quedaba pelear y cumplir su misión.
 
-***
+[---]
 
 "Supongo que eso es un no", pensó desalentada la mente independiente de Twilight al observar la reacción de su oponente.
 
@@ -142,7 +142,7 @@ Y para terminar, la poderosa alicornio dio una fuerte patada al falso cubo de cr
 
 "¿Cómo no se me ocurrió antes? ¿Apple Pie? ¿Rari-Fluter-shy?" Con esto en mente, Twilight-Dash se teletransportó antes de que sus oponentes pudieran entender lo que había pasado.
 
-***
+[---]
 
 "¿Cómo se atreve?" murmuró furiosa Ceridwen desde el cuerpo poseído de Badwhiz. Que su adversario la dejara tumbada en el suelo era una cosa, pero que simplemente abandonara el campo de batalla teniendo la oportunidad de liquidarla o capturarla en ese momento era otra.
 
@@ -166,7 +166,7 @@ Ante el apremiante pedido de Balor, Ceridwen se calmó. No tenía sentido pelear
 
 "Pienso hacerlo, amiga", finalizó Balor. En ese momento, la comunicación se cortó y ambas intercambiaron de lugares.
 
---------------------
+[---]
 
 Balor ahora poseía el cuerpo real de Badwhiz. La armadura había cambiado de color naranja a uno púrpura. Miró a su alrededor. El campo de batalla era un desastre, pero no le preocupó en lo más mínimo. De hecho, se alegraba de que Ceridwen no hubiera llegado más lejos antes. Debido a la resistencia inicial de Mannah a que ella asumiera el liderazgo de la operación, Ceridwen había tenido que probar la fuerza de la fusión de la princesa poni y su compañera.
 
@@ -204,7 +204,7 @@ Un viento sopló arrastrando el polvo a su alrededor.
 
 "Es el engaño", declaró Balor. Repentinamente, la roca que sostenía centelleó y en un parpadeo se había convertido en el verdadero cubo de cristal sellador en el que los Caballeros del Orden habían atrapado a las amigas de Twilight.
 
---------------------
+[---]
 
 Poco antes, en una madriguera de conejo, Twilight-Dash se encontraba analizando el cubo de cristal sellador.
 
@@ -214,7 +214,7 @@ Poco antes, en una madriguera de conejo, Twilight-Dash se encontraba analizando 
 
 "¿De verdad?" insinuó presuntuosa la mente independiente de Rainbow Dash.
 
-"No lo creo, pero existen las probabilidades. Tal vez un hechizo de revelación hexagonal me de pistas. Uhpm. No, mejor un análisis arcano de seis fases debería ser suficiente..." La mente independiente de Twilight continuó pensando en voz alta sobre otras opciones para iniciar el descifrado del cubo.
+"Bueno ... no lo creo realmente, pero existen las probabilidades. Tal vez un hechizo de revelación hexagonal me de pistas. Uhpm. No, mejor un análisis arcano de seis fases debería ser suficiente..." La mente independiente de Twilight continuó pensando en voz alta sobre otras opciones para iniciar el descifrado del cubo.
 
 "¡Arggg!" exclamó Rainbow Dash, la pegaso ya comenzaba a lamentar no haber terminado la batalla anterior. Si lo hubiera hecho, se habría dado el gusto de acabar con los villanos y ahorrado continuar la fusión con Twilight. Entonces no se encontraría escuchando todas las sugerencias ñoñas e incomprensibles que pasaban por la mente de su amiga.
 
@@ -226,7 +226,7 @@ Entonces, inesperadamente, ocurrió.
 
 Igual que antes, este cristal falso continuaba silbando, como una tetera en ebullición, o más bien como una bomba a punto de explotar.
 
---------------------
+[---]
 
 Una violenta erupción estalló en una de las colinas dentro de la gran barrera. A la distancia, Balor observó el resultado de la conflagración. Tal como había calculado, la explosión no había destruido a la fusión de la princesa y su aliada.
 
