@@ -430,7 +430,7 @@ Magi continuó intercalando sus colores sucesivamente como si se tratara de un s
 
 "Sí, a su tiempo..." Fluttershy murmuró para sí misma mirando en otra dirección. Entonces repentinamente se sobresaltó.
 
-"¿Qué ocurre?" preguntó Magi seriamente al ver a Fluttershy alarmada.
+"¿Sucede algo?" preguntó Magi seriamente al ver a Fluttershy alarmada.
 
 "Las chicas deben estar aún encantando los cristales. Acabo de pensar que quizá deberían encantar cada cristal individualmente y no en conjunto como habían estado haciendo. Ay, me siento tan mal por no haber podido escuchar bien las palabras de Twilight antes," dijo Fluttershy angustiada. Ella aún no creia que realmente estuviera dando todo de sí y se sentía responsable del retraso de sus amigas en encantar los cristales que urgentemente necesitaban.
 
@@ -568,7 +568,7 @@ La piedra de las visiones, un legado de la única poni a quien alguna vez llegó
 
 Combinadas, estas piedras poseían el poder de revelar el futuro cercano con una precisión del 90% y el futuro lejano con un 50%. Aunque el futuro no estaba escrito en piedra, Magi sabía cómo manipularlo a su favor.
 
-Con práctica y paciencia, había aprendido a dominar las piedras, usándolas para adelantarse a sus competidores y construir su imperio comercial. Su exito fue galopantem pero tambien le dio excesiva confianza, y esta con el tiempo se convirtió en arrogancia. Eventualmente, dejó de usar las piedras, confiando únicamente en su intuición, salvo en casos de duda o emergencia.
+Con práctica y paciencia, había aprendido a dominar las piedras, usándolas para adelantarse a sus competidores y construir su imperio comercial. Su exito fue galopantem pero tambien lo fue su excesiva confianza, y esta con el tiempo se convirtió en arrogancia. Eventualmente, dejó de usar las piedras, confiando únicamente en su intuición, salvo en casos de duda o emergencia.
 
 Hoy, sin embargo, había roto esa seguridad.
 
@@ -600,7 +600,7 @@ Los temores que la habían atormentado toda la tarde desde el inicio del encierr
 
 Desde la distancia, el lago parecía tranquilo. Los restos del tren seguían flotando, y no había señales de cambio. Incluso sus pájaros espía confirmaban que el enemigo no se movía.
 
-A pesar de su creciente confianza, algo seguía inquietándola: los Caballeros del Orden.
+A pesar de la creciente calma, algo seguía inquietándola: los Caballeros del Orden.
 
 ("Deben de haber notado el reflejo del vagón en el agua... y pensar que lo harían con esta luz) pensó, alzando la vista hacia el firmamento ovalado sobre ella.
 
@@ -610,7 +610,7 @@ Aquella ilusión natural había arruinado su intento de ocultar el vagón médic
 
 ("Bueno... Ya he tenido suficiente de estos tipos. Puedo imaginar lo que pretenden, así que será mejor mantener un perfil bajo hasta que terminen con su agenda").
 
-Magi entendía perfectamente que capturar o destruir a la princesa y sus amigas era solo el primer paso de los Caballeros del Orden. Después, su plan incluiría atacar la capital, el resto de Equestria y los demás reinos. Todo apuntaba a que su objetivo era eliminar cualquier posible amenaza hacia su misterioso país de origen.
+Magi entendía perfectamente que capturar o destruir a la princesa y sus amigas era solo el primer paso de los Caballeros del Orden. Después, su plan incluiría atacar la capital, el resto de Equestria y los demás reinos. Todo apuntaba a que su objetivo final era eliminar cualquier posible amenaza hacia su misterioso país de origen.
 
 Por un instante, consideró la posibilidad de negociar con ellos, pero sus instintos le advirtieron que sería un error fatal. Sabía demasiado poco sobre sus intenciones y métodos, y eso hacía la idea aún más peligrosa. Si habían planeado su ataque con tanto detalle, era improbable que ajustaran sus estrategias ante circunstancias inesperadas, incluso si estas les favorecían.
 
