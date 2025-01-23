@@ -6,7 +6,7 @@ La sala de guerra fue inundada por una luz única de poder que envolvió a todos
 
 Mannah, con voz solemne, anunció: "¡Que la justicia se imponga!"
 
---------------------
+[---]
 
 Una columna de luz negra se elevó hacia el cielo de la Gran Barrera, oscureciendo la poca luz que ya había y liberando una luminosidad inquietante en distintos lugares dentro de la cúpula.
 
@@ -24,7 +24,7 @@ Tanto el cielo como el interior de la Gran Barrera regresaron a verse como estab
 
 Pero todo había cambiado. Una tensión invadía el aire. Era la breve pausa antes de la tempestad.
 
---------------------
+[---]
 
 Twilight-Dash observó consternada a su oponente en lo alto de una colina. El inmenso poder que sentía delante suyo era algo imposible de ignorar. Era como estar parado en frente de un volcán en plena erupción.
 
@@ -78,7 +78,7 @@ Balor, se detuvo un momento. Cerró los ojos y los volvió a abrir. Ya no había
 
 "Desdichada princesa... la medianoche ya ha caído sobre nosotros. Ya es demasiado tarde para todos", dijo Balor antes de lanzarse para realizar su primer ataque.
 
---------------------
+[---]
 
 El diálogo había terminado. Ya no había punto de entendimiento ni razón para perder el tiempo en un intercambio de palabras. Balor inició su ofensiva con el único interés de acabar con su oponente. A Twilight-Dash lamentablemente solo le quedaba aceptarlo y pelear.
 
@@ -116,7 +116,7 @@ Un sorpresivo resplandor fugaz, casi como un relámpago arcoíris, se acercó ha
 
 El ataque de Twilight-Dash cayó directamente en el rostro de Balor, pero el cuerpo del poni poseído no resultó dañado en lo más mínimo. Todo aquel potente impacto fue disipado por una translúcida cubierta corporal de aire mágico alrededor de Balor. El poni de armadura negra retrocedió impasible unos metros. Balor, sin prestar atención a la sorpresa de su oponente ante su defensa, lanzó su contraataque. Las burbujas de agua a su alrededor se comprimieron, y tres disparos continuos de agua a alta presión salieron contra Twilight-Dash a una velocidad espantosa. Casi rozando algunas de sus plumas, Twilight-Dash esquivó todos los disparos con gracia. Balor tenía que reconocerlo, lo hacía demasiado bien.
 
-Otro hechizo fue liberado y desde donde se encontraba Balor, varias trombas de aire salieron disparadas a una velocidad casi hipersónica hacia Twilight-Dash. Al ver que sus flancos eran atacados, Twilight-Dash descendió hacia el suelo, permitiendo que los proyectiles de aire impactaran en él. Más explosiones de menor tamaño surgieron en la llanura en el camino que dejaba atrás el vuelo de Twilight-Dash.
+Otro hechizo fue liberado y desde donde se encontraba Balor, varias trombas de aire salieron disparadas a una velocidad casi hipersónica hacia Twilight-Dash. Al ver que sus flancos eran atacados, Twilight-Dash descendió en picada hacia el suelo, permitiendo que los proyectiles de aire impactaran en él. Más explosiones de menor tamaño surgieron en la llanura en el camino que dejaba atrás el vuelo de Twilight-Dash.
 
 Balor continuó con su ataque. Las tres burbujas de agua se fusionaron y formaron una aún más grande. Repentinamente, la nueva burbuja se congeló y comenzó a crecer en tamaño. Cada vez más grande, la bola de hielo cubrió el cielo de la barrera donde estaban. Abajo, Twilight-Dash terminó de esquivar los restantes proyectiles de aire y levantó la mirada. Un planetoide helado se encontraba sobre ella. Balor, con un simple movimiento de casco, lo lanzó.
 
@@ -124,7 +124,7 @@ Si la fusión Twilight-Dash contara únicamente con la conciencia de Rainbow Das
 
 Sin embargo, Twilight-Dash era más que solo la unión conceptual de dos ponis. Ella era asombrosa y correcta, incluso más, era EXCEPCIONAL.
 
-Con una velocidad más impresionante de lo que le llevó planificar sus próximos movimientos, Twilight-Dash se elevó hacia el cielo. Sobrevoló la superficie de la gigantesca bola de hielo que caía con fuerza y continuó su vuelo hasta alcanzar a Balor, atacándola de la misma manera que lo había hecho anteriormente. Una vez más, el ataque fue repelido, empujando a Balor hacia atrás. Sin embargo, esta vez Balor recibió un ataque que no esperaba. Antes de que Balor notara la ausencia de su oponente frente a ella, un tirón de dolor estremeció todo su cuerpo desde abajo. El mundo giró a su alrededor. Atrapada en un empuje a una velocidad completamente irracional, el cuerpo poseído por Balor fue arrastrado a través de los cielos.
+Con una velocidad más impresionante de lo que le llevó planificar sus próximos movimientos, Twilight-Dash se elevó hacia el cielo. Sobrevoló la superficie de la gigantesca bola de hielo que caía con fuerza y continuó su vuelo hasta alcanzar a Balor por la retaguardia, atacándola de la misma manera que lo había hecho anteriormente. Una vez más, el ataque fue repelido, empujando a Balor hacia atrás. Sin embargo, esta vez Balor recibió un ataque que no esperaba. Antes de que Balor notara la ausencia de su oponente frente a ella, un tirón de dolor estremeció todo su cuerpo desde abajo. El mundo giró a su alrededor. Atrapada en un empuje a una velocidad completamente irracional, el cuerpo poseído por Balor fue arrastrado a través de los cielos.
 
 Consternada, Balor miró hacia abajo, descubriendo que era Twilight-Dash quien se encontraba mordiendo su cola y tirando de ella para lanzarla contra el suelo. En un reflejo de rabia ante esa insolencia, Balor lanzó un rayo eléctrico hacia Twilight-Dash, quien resistió obstinadamente durante varios segundos antes de soltarla.
 
@@ -188,7 +188,7 @@ Twilight-Dash frunció el ceño. Definitivamente iba a pasar un mal rato.
 
 A lo lejos, en medio de la incipiente ventisca, una débil mariposa rosa observaba el exterior desde uno de los descarrilados vagones del tren.
 
---------------------
+[---]
 
 En la sala de guerra de los Caballeros del Orden, todos observaban la escena que se reflejaba en el estanque encantado. Ninguno tenía palabras para describir la ferocidad del crudo enfrentamiento que ocurría en ese momento.
 

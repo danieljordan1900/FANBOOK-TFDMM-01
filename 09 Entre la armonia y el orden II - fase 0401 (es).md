@@ -228,7 +228,7 @@ Igual que antes, este cristal falso continuaba silbando, como una tetera en ebul
 
 [---]
 
-Una violenta erupción estalló en una de las colinas dentro de la gran barrera. A la distancia, Balor observó el resultado de la conflagración. Tal como había calculado, la explosión no había destruido a la fusión de la princesa y su aliada.
+Una violenta erupción estalló en una de las colinas dentro de la gran barrera. A la distancia, Balor observó el resultado de la conflagración. Tal como había calculado, la explosión no había destruido a la fusión de la princesa y su aliada. Quien habia emergido de la columna de polvo de la explosion sin daños. 
 
 "Predecible...", murmuró Balor en su interior. Luego echó una mirada atrás.
 
