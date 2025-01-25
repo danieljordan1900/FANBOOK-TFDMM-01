@@ -414,69 +414,69 @@ Entonces, ¿por qué no podían volar?
 
 Observó el místico bosque que la rodeaba. Era evidente que este lugar era el culpable. Cada rincón destilaba una magia tan poderosa y antinatural que parecía retorcer la realidad misma...
 
-Twilight-Dash exprimió su mente al máximo para descifrar el misterio. El bosque estaba interfiriendo de alguna manera con su magia, y necesitaba entenderlo y contrarrestarlo pronto, ya que el ataque de Balor podría llegar en cualquier momento.
+Twilight-Dash exprimía su mente al máximo, intentando descifrar el misterio. El bosque interfería de alguna manera con su magia, y necesitaba comprenderlo y contrarrestarlo cuanto antes. Balor podría atacar en cualquier momento.
 
-"Flujos arcanos, canalización de magia, catalizadores..." murmuraba rápidamente Twilight-Dash, abrazándose a sí misma.
+"Flujos arcanos, canalización de magia, catalizadores..." murmuraba apresuradamente, abrazándose a sí misma mientras su mente trabajaba a toda velocidad.
 
-Exploró en lo más profundo de sus recuerdos: sus lecciones básicas en la escuela de magia, sus viajes, incluso los cuentos que le narraban cuando era pequeña. Buscó incluso entre los rumores más extravagantes que hubiera escuchado.
+Exploró en lo más profundo de sus recuerdos: las lecciones básicas en la escuela de magia, sus innumerables viajes, incluso los cuentos que le narraban cuando era pequeña. Buscó respuestas hasta en los rumores más extravagantes que alguna vez escuchó.
 
 Nada.
 
-Twilight-Dash se concentró más, casi parecía que le saldría humo de la cabeza, aplicando más esfuerzo del que realmente podía soportar.
+Twilight-Dash se forzó aún más, su concentración tan intensa que parecía que en cualquier momento comenzaría a salir humo de su cabeza. Y entonces, encontró algo: una cebra.
 
-Y entonces encontró algo: una cebra.
+"¿Sin magia, dices? ¿Por qué me lo repites?" Así había respondido la elocuente Zecora cuando Twilight le preguntó cómo vivían otras criaturas en un mundo sin magia. Zecora, con sus vastos conocimientos y viajes por tierras lejanas, había aprendido a manejar encantamientos a pesar de no poseer cualidades mágicas innatas.
 
-"¿Sin magia, dices? ¿Por qué me lo repites?" así había respondido la elocuente Zecora cuando Twilight le preguntó sobre cómo vivían las otras criaturas sin magia en el mundo. Zecora había viajado por muchos lugares y conocía de reinos sin magia. Había aprendido mucho sobre encantamientos a pesar de no tener cualidades mágicas innatas.
-
-"La magia de los unicornios se canaliza desde sus cuernos, la magia de los pegasos desde sus alas... de adentro hacia afuera", murmuró Twilight-Dash.
+"La magia de los unicornios se canaliza desde sus cuernos, la magia de los pegasos desde sus alas... de adentro hacia afuera", murmuró Twilight-Dash, recordando las palabras de Zecora.
 
 "¿Y qué pasa de afuera hacia adentro?" preguntó el recuerdo burlón de la cebra.
 
-No parecía posible. Canalizar la magia del entorno siempre conducía a resultados caóticos. Se utilizaban amuletos, talismanes, e incluso individuos vivos como catalizadores de esa magia. Un flujo directo de magia semejante era igual a intentar atrapar una lombriz bajo tierra sin ensuciarse.
+La idea era absurda. Canalizar magia del entorno casi siempre terminaba en resultados caóticos. Para hacerlo, se necesitaban amuletos, talismanes o incluso seres vivos como catalizadores. Un flujo directo de magia de esa naturaleza era como intentar atrapar una lombriz bajo tierra sin ensuciarse en absoluto.
 
-Pero Zecora lo había intentado y había obtenido resultados prometedores. Bajo su tutela, Twilight la había imitado, pero los resultados habían sido nulos.
+Pero Zecora había intentado algo diferente y, sorprendentemente, había obtenido resultados prometedores. Twilight había intentado imitarla bajo su guía, pero sus esfuerzos terminaron en un completo fracaso.
 
-Una amargura recorrió el rostro de Twilight-Dash.
+Un amargo gesto cruzó el rostro de Twilight-Dash.
 
-Twilight no continuó con las lecciones de su maestra cebra debido a la frustración que sintió al no poder hacer progresos. Conocía las bases y las posturas de la meditación a la perfección, pero nunca dieron resultados. Tampoco lo compartió con sus amigas... pensó que no era importante en ese momento. No, esa era una excusa... en realidad, se sentía avergonzada de hablar de ello.
+Había abandonado las lecciones de Zecora por frustración al no lograr avances. Aunque conocía las bases y las posturas de meditación a la perfección, nunca logró obtener resultados. Nunca compartió esa experiencia con sus amigas. Pensó que no era importante... pero en el fondo sabía la verdad: se sentía avergonzada.
 
-Otro error; ¿cuántas cosas más había estado descuidando?
+Otro error más. ¿Cuántas cosas había estado descuidando?
 
-"De afuera hacia adentro... vamos", se dijo a sí misma Twilight-Dash, decidida. Tenía una corazonada; la magia no había sido absorbida ni estaba estancada, sino que sentía que fluía en la dirección equivocada. Pero cambiar ese flujo no sería fácil.
+"De afuera hacia adentro... vamos", se dijo a sí misma con determinación. Tenía una corazonada. Su magia no estaba siendo absorbida ni bloqueada. Sentía que fluía en la dirección equivocada. Pero revertir ese flujo sería un desafío monumental.
 
-La alicornio adoptó una postura de meditación y comenzó a canalizar la magia en su interior. Una sensación de entumecimiento la envolvió mientras podía sentir la magia fluir... fuera de ella.
+La alicornio adoptó una postura de meditación, cerrando los ojos mientras intentaba conectar con la magia en su interior. Una sensación de entumecimiento comenzó a envolverla, y pronto sintió la magia fluir... hacia afuera.
 
 "¡No!" exclamó Twilight-Dash al darse cuenta de que estaba perdiendo rápidamente parte de la magia que había acumulado.
 
-"Oye, no deberíamos buscar refugio primero; este lugar no es seguro", dijo la mente independiente de Rainbow Dash, intentando ser útil.
+"Oye, ¿no deberíamos buscar refugio primero? Este lugar no es seguro", dijo la mente independiente de Rainbow Dash, intentando ser útil.
 
-"¡Ya no tenemos más tiempo, Rainbow!" exclamó frustrada la mente independiente de Twilight. "Balor nos alcanzará..."
+"¡Ya no tenemos más tiempo, Rainbow!" exclamó frustrada la mente independiente de Twilight. "¡Balor nos alcanzará..."
 
 Efectivamente, el tiempo se había agotado.
 
-"Ayyyyyyyyyyy" Un potente golpe cayó en su cabeza en ese instante. Twilight-Dash gritó de dolor y fue lanzada por los aires hasta estrellarse contra un árbol que se partió en dos.
+"Ayyyyyyyyyyy..." Un potente golpe cayó sobre su cabeza en ese instante. Twilight-Dash gritó de dolor y fue lanzada por los aires, estrellándose contra un árbol que se partió en dos.
 
-Balor, que había salido de su invisibilidad, no tenía intenciones de ser amable. Invocó unas cadenas que salieron disparadas hacia Twilight-Dash. La alicornio, que intentaba recuperarse del ataque anterior, fue envuelta por las gruesas cadenas, incapacitándola. A duras penas, aún tenía una de las patas delanteras libres. Con un gran esfuerzo, logró apartarse para esquivar un potente trueno que impactó donde estaba.
+Balor, que había dejado de estar invisible, no tenía intenciones de ser amable. Invocó unas cadenas que salieron disparadas hacia Twilight-Dash. La alicornio, que aún intentaba recuperarse del ataque anterior, fue envuelta por las gruesas cadenas, quedando incapacitada. A duras penas, lograba mover una de sus patas delanteras. Con un gran esfuerzo, se apartó para esquivar un potente trueno que impactó en el lugar donde se encontraba.
 
-Pero no fue suficiente. Un segundo trueno fue lanzado contra ella y la alcanzó, reduciéndola.
+Pero no fue suficiente. Un segundo trueno fue lanzado contra ella, alcanzándola y debilitándola aún más.
 
-Twilight-Dash comenzó a ser arrastrada. Balor tiraba de las cadenas hacia donde se encontraba, como haría una araña con su presa.
+Twilight-Dash comenzó a ser arrastrada. Balor tiraba de las cadenas hacia ella, como una araña con su presa.
 
-"Se acabó, princesa. Termina tu fusión y la vida de tu amiga será perdonada", amenazó Balor, teniendo a Twilight-Dash bajo su casco. Por supuesto, estaba claro que Balor estaba mintiendo.
+"Se acabó, princesa. Termina tu fusión y la vida de tu amiga será perdonada", amenazó Balor, manteniendo a Twilight-Dash bajo su control. Por supuesto, estaba claro que Balor mentía.
 
-"¡AUN NO!" respondió ferozmente Twilight-Dash, haciendo crujir las cadenas y liberando una segunda pata delantera. Luego lanzó una oleada de polvo concentrado a su alrededor empujándole hacia atrás.
+"¡AÚN NO!" respondió ferozmente Twilight-Dash, haciendo crujir las cadenas y liberando una de sus patas delanteras. Luego, lanzó una oleada de polvo concentrado a su alrededor, empujando hacia atrás.
 
-Una protesta inútil. Balor no se inmutó en lo más mínimo. El ataque se disipó como una humareda. Unas garras de magia oscura surgieron de los costados de Balor y tomaron el cuerpo de Twilight-Dash en el aire.
+Una protesta inútil. Balor no se inmutó lo más mínimo. El ataque se disipó como una humareda. Unas garras de magia oscura surgieron de los costados de Balor y tomaron a Twilight-Dash en el aire.
 
-"¡Entonces te desgarraré el alma y lo que quede se lo entregaré a tu amiga antes de ejecutarla!" rugió Balor. Las garras que aprisionaban a Twilight-Dash tiraron de ella y una masa de luz comenzó a emerger de su cuerpo. La expresión de terror en el rostro de Twilight-Dash lo decía todo. No era dolor físico, sino espiritual. Desesperadamente, Twilight-Dash intentó concentrarse, pero poco a poco sentía que las fuerzas la abandonaban.
+"¡Entonces te desgarraré el alma y lo que quede se lo entregaré a tu amiga antes de ejecutarla!" rugió Balor. Las garras que aprisionaban a Twilight-Dash la tiraron con fuerza, y una masa de luz comenzó a emerger de su cuerpo. La expresión de terror en el rostro de Twilight-Dash lo decía todo. No era dolor físico, sino espiritual. Desesperada, intentó concentrarse, pero poco a poco sentía que las fuerzas la abandonaban.
 
-"¡Twilight, reacciona, Twilight!" la mente independiente de Rainbow Dash llamaba angustiada a su amiga, que había dejado de comunicarse. "¡No te rindas!"
+"¡Twilight, reacciona, Twilight!" La mente independiente de Rainbow Dash llamaba angustiada a su amiga, que había dejado de comunicarse. "¡No te rindas!"
 
-***
+[---]
+
+"¡No te rindas!"
 
 Pero Twilight ya no escuchaba y tampoco se había rendido.
 
-Desde lo más profundo de su ser, Twilight entró en un estado de meditación profunda, sumergiéndose en un espacio simulado de su mente. Esta era su última carta, la última jugada que podía hacer para salvar a sus amigas de la derrota.
+Desde lo más profundo de su ser, Twilight entró en un estado de meditación profunda, sumergiéndose en un espacio simulado de su mente. Esta era su última carta, la última jugada que podía hacer para salvar a sus amigas de la derrota completa.
 
 Era una realidad virtual, un lugar imaginario donde podía crear posibles escenarios basándose en todo el conocimiento que poseía. Más que una habilidad mágica, era una disciplina mental que solo alguien como ella podía haber desarrollado tras tantos años de estudio y dedicación. Aun así, este ejercicio exigía un consumo de magia pasivo para llevarse a cabo; el hecho de que funcionara en ese momento era prueba de que la magia aún se encontraba dentro de ella.
 
@@ -519,7 +519,7 @@ Recordó el momento en que Applejack sembró un nuevo huerto de manzanas despué
 
 Twilight sonrió ante el recuerdo, aunque nunca le pareció que las nuevas manzanas fueran mejores.
 
-"Mira cómo crecen, jaja, podría pasar toda la noche esperando a ver el primer brote", dijo Applejack. Y ella no estaba bromeando. En muchas ocasiones, Twilight sorprendió a su amiga durmiendo en medio del sembradío.
+"Mira cómo crecen, jaja, podría pasar toda la noche esperando a ver el primer brote", continuaba hablando Applejack. Y ella no estaba bromeando. En muchas ocasiones, Twilight sorprendió a su amiga durmiendo en medio del sembradío.
 
 "¡Oh, sí! ¡Mira cómo crecen! Igual que en la granja de rocas de mis padres", confirmó Pinkie Pie.
 
@@ -539,9 +539,9 @@ La lejana visión de sus amigas paseando alegremente por la granja de Applejack 
 
 Y también eran la clave para resolver el misterio del bosque celeste.
 
-Zecora le había dicho algo como: "Siente a los elementos y a la naturaleza. Escucha cómo respiran, mira cómo crecen..."
+Zecora le había dicho algo como: "Siente a los elementos y a la naturaleza. Escucha cómo respiran, mira cómo crecen, sigue su flujo ..."
 
-Twilight cerró los ojos. Disipó sus pensamientos y se concentró en uno solo. Necesitaba que la magia creciera en ella.
+Twilight cerró los ojos. Disipó sus pensamientos y se concentró en uno solo. Necesitaba cambiar su enfoque. No podia seguir el flujo de la magia, en cambio necesitaba que la magia encontrar su propio flujo dentro de ella.
 
 "De afuera hacia dentro." Un bloque de piedra tomó forma en la mente de Twilight. Una mancha marrón surgió en la oscuridad.
 
@@ -583,7 +583,7 @@ Pero la extracción apenas se retrasaba, y el cuerpo de Twilight-Dash se entumec
 
 "Cinco segundos más..." Balor apremiaba el tiempo que quedaba. Faltaba muy poco del alma de Twilight por extraer.
 
-Repentinamente, algo cambió.
+Entonces ... repentinamente, algo cambió.
 
 "¿Humm?" Balor notó desconcertada que habían pasado dos segundos, pero no había habido ningún avance.
 
@@ -603,9 +603,9 @@ Ahora era ella quien corría peligro. Estaba dentro del rango de ataque de Twili
 
 Un segundo. Eso era lo que le llevaría. Pero en ese momento, un segundo era demasiado.
 
-***
+[---]
 
-Twilight-Dash sonrió confiada. Ella también sabía eso. 
+Twilight-Dash sonrió confiada. Podia ver la consternacion de Balor, tambien sabia lo que estaba pensando.
 
 En su interior, Rainbow Dash era toda dicha. "No sé cómo lo hiciste, ¡pero esto es increíble! ¡Puedo sentir mis alas de nuevo!" 
 
@@ -627,7 +627,7 @@ También sintió algo más... ira. Una ira densa y amarga.
 
 El bosque estaba molesto con ella. Su voz se alzaba en su contra.
 
-Twilight no tardó en deducir el por qué y cómo resolverlo. Abrió su espacio mental nuevamente, esta vez permitiendo que la voz del bosque llegara también al joven brote celeste que había creado. Repentinamente, una nueva voz surgió. Esta nueva voz se unió al canto, y toda la hostilidad que había sentido hasta ese momento se desvaneció.
+Twilight no estaba del todo segura de por qué de esto. Pero tubo una corazonada y decidio probar algo para resolverlo. Abrió su espacio mental nuevamente, esta vez permitiendo que la voz del bosque llegara también al joven brote celeste que había creado. Repentinamente, una nueva voz surgió. Esta nueva voz se unió al canto, y toda la hostilidad que había sentido hasta ese momento se desvaneció.
 
 Ahora el bosque le permitía estar entre los suyos. No sentía que fueran amigos... pero al menos la toleraban.
 
@@ -643,7 +643,7 @@ Rainbow Dash ahora debía alcanzar los suyos.
 
 "¡Déjalo en mis cascos!" exclamó decidida Twilight-Dash con la voz de Rainbow. Dio un giro sobre sí misma, y las cadenas se entrecerraron aún más, la tensión aumentó visiblemente del lado de Balor.
 
-***
+[---]
 
 El forcejeo aún continuaba, pero Balor ya no tenía la iniciativa. Si retrocedía ahora, sería alcanzada con rapidez. Había gastado mucha magia en el bosque celeste, una trampa que se suponía que la princesa jamás superaría. Pero lo había hecho. ¿Cómo?
 
