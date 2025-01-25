@@ -1,82 +1,80 @@
-Mannah, Morrigan, Ceridwen y Taranis observaban en silencio el dramático suceso que iba a dar inicio.
+Mannah, Morrigan, Ceridwen y Taranis observaban en silencio, atentos al dramático suceso que estaba a punto de comenzar.
 
-Bajo la atenta mirada de sus compañeros, el cuerpo real de Balor ingresaba a un enorme orbe lleno de magia pura. A su alrededor y entre sus alas, seis cristales de diseño personalizado orbitaban. Los emblemas grabados en cada uno de los cristales centelleaban como astros alrededor de su estrella. Entonces, Balor, apretando sus garras como si intentara aplastar un globo invisible, comprimió la magia a su alrededor, haciendo que todos los cristales se unieran en uno solo.
+Bajo la vigilante mirada de sus compañeros, el cuerpo real de Balor se acercó al centro de la sala, donde un enorme orbe rebosante de magia pura lo esperaba. A su alrededor, seis cristales de diseño intrincado orbitaban con precisión, brillando como pequeños astros alrededor de una estrella. Cada cristal llevaba grabado un emblema único que centelleaba con un fulgor sobrenatural.
 
-La sala de guerra fue inundada por una luz única de poder que envolvió a todos.
+Con un movimiento firme, Balor extendió sus garras, como si intentara aplastar un globo invisible. En un instante, la magia que la rodeaba comenzó a comprimirse, atrayendo los cristales hacia ella. Poco a poco, estos se fusionaron en un único y deslumbrante fragmento.
 
-Mannah, con voz solemne, anunció: "¡Que la justicia se imponga!"
+La sala de guerra se inundó de una luz cegadora, un estallido de poder que hizo vibrar el aire y erizó el pelaje de todos los presentes.
 
-[---]
-
-Una columna de luz negra se elevó hacia el cielo de la Gran Barrera, oscureciendo la poca luz que ya había y liberando una luminosidad inquietante en distintos lugares dentro de la cúpula.
-
-Twilight-Dash no era ajena a estas señales y partió hacia su origen.
-
-Al mismo tiempo, en la sala de guerra frente a los Caballeros del Orden, la fase más importante de su operación había comenzado. Se había ensamblado el blasón de la unidad, un amuleto mágico que había sido usado en las batallas trascendentales de los Caballeros. Siempre contra poderosos enemigos de su nación que hubieran vulnerado sus defensas. Hoy, en cambio, era la segunda vez en la historia que se utilizaba fuera del reino.
-
-Dentro de la Gran Barrera, donde se encontraba el cuerpo real de Badwhiz, la armadura púrpura que tenía puesta comenzó a ennegrecerse hasta volverse tan oscura como el alquitrán puro. Todas las heridas o señales de debilidad desaparecieron del cuerpo de Badwhiz. Una inmensa cantidad de magia llenó completamente el cuerpo del poni, dándole un halo espectral. Esta transfiguración era el resultado de la unión de la magia de los cinco Caballeros del Orden y Badwhiz en uno solo. Pero era una unión imperfecta. Danu, que representaba el elemento de la lealtad, no estaba presente. Aun así, el poder que había ganado Balor en ese momento era suficiente para enfrentar al rival que se acercaba.
-
-Twilight-Dash llegó al origen de la columna de luz negra.
-
-La transfiguración había terminado. Una nube de polvo estalló.
-
-Tanto el cielo como el interior de la Gran Barrera regresaron a verse como estaban antes.
-
-Pero todo había cambiado. Una tensión invadía el aire. Era la breve pausa antes de la tempestad.
+Mannah, con una voz solemne y cargada de determinación, proclamó: "¡Que la justicia se imponga!"
 
 [---]
 
-Twilight-Dash observó consternada a su oponente en lo alto de una colina. El inmenso poder que sentía delante suyo era algo imposible de ignorar. Era como estar parado en frente de un volcán en plena erupción.
+Una columna de luz negra se elevó hacia el cielo de la Gran Barrera, oscureciendo aún más la escasa luminosidad existente y proyectando un resplandor inquietante en distintos puntos dentro de la cúpula mágica.
+
+Twilight-Dash no era ajena a estas señales y, sin dudarlo, partió hacia su origen.
+
+Mientras tanto, en la sala de guerra frente a los Caballeros del Orden, la fase más crucial de su operación había comenzado. El blasón de la unidad, un amuleto mágico legendario, había sido ensamblado. Este artefacto, utilizado en batallas decisivas contra enemigos que habían amenazado su reino, se desplegaba ahora por segunda vez fuera de sus fronteras.
+
+En el interior de la Gran Barrera, el cuerpo real de Badwhiz comenzó a transformarse. La armadura púrpura que cubría al poni se ennegreció, tornándose tan oscura como el alquitrán. Todas las heridas, marcas y señales de debilidad desaparecieron, mientras una inmensa cantidad de magia se vertía en su cuerpo, envolviéndolo en un halo espectral. Esta transfiguración era el resultado de la unión de las energías mágicas de los cinco Caballeros del Orden con Badwhiz, fusionándose en uno solo. Sin embargo, era una unión imperfecta: Danu, el portador del elemento de la lealtad, no estaba presente. Aun así, el poder acumulado por Balor en ese instante era más que suficiente para enfrentar al oponente que se acercaba.
+
+Twilight-Dash llegó al origen de la columna de luz negra justo cuando la transfiguración había concluido.
+
+Un estallido de polvo llenó el ambiente.
+
+El cielo y el interior de la Gran Barrera recuperaron su aspecto habitual, pero todo había cambiado. Una tensión palpable se extendía por el aire, como el presagio de una tormenta inminente.
+
+[---]
+
+Twilight-Dash observó consternada a su oponente en lo alto de la colina. El inmenso poder que sentía frente a ella era imposible de ignorar. Era como estar de pie ante un volcán en plena erupción.
 
 La nube de polvo que envolvía el lugar se disipó en un instante.
 
-Balor, ahora completamente poseyendo el cuerpo de Badwhiz y con el poder de seis individuos distintos, se mostró ante Twilight-Dash extendiendo sus negras alas. Sonrió hacia su oponente, pero no era una sonrisa burlona o arrogante, sino una de logro. Todos sus pronósticos y deducciones la habían llevado a este punto. Ahora, dentro de los límites de sus propias maquinaciones, solo quedaba terminar la tarea que se había planteado.
+Balor, ahora completamente en control del cuerpo de Badwhiz y portando el poder combinado de seis individuos, apareció ante Twilight-Dash. Extendió sus negras alas con una calma calculada y esbozó una sonrisa, pero no era burlona ni arrogante. Era una sonrisa de logro, la satisfacción de alguien que había visto cumplirse cada uno de sus planes. Todo lo que había pronosticado la había llevado a este preciso momento. Ahora, dentro del marco de sus propias maquinaciones, solo quedaba una cosa por hacer: completar su tarea.
 
-Sin embargo, no debía perder la calma ni el orden.
+Asi, mientras era observada por Twilight-Dash, Balor repasaba mentalmente los pasos que la habían llevado hasta allí:
 
-Con un suspiro, repasó nuevamente los avances realizados:
+*Convencer a sus compañeros de unirse a su causa y aislar a Danu. Hecho.
+*Capturar a su objetivo principal y resguardarlo. Hecho.
+*Completar los preparativos para neutralizar al Señor del Caos. Hecho.
+*Preparar los medios para destruir Equestria en caso de que todo fallara. Hecho.
+*Finalmente, capturar a las irrelevantes portadoras principales de la magia del Árbol de la Amistad. Pendiente.
 
-Convencer a sus compañeros de unirse a su causa y aislar a Danu. Hecho.
-Capturar a su objetivo principal y guardarle. Hecho.
-Completar los preparativos para neutralizar al señor del caos. Hecho.
-Preparar los medios para destruir Equestria en caso de que todo fallara. Hecho.
-Finalmente, capturar a las irrelevantes portadoras principales de la magia del árbol de la amistad. Pendiente.
-
-Balor exhaló una vez más. De las seis portadoras que necesitaba capturar, ya tenía a cuatro bajo su poder. Las dos últimas restantes estaban frente a ella, ahora fusionadas en una sola entidad.
+Balor exhaló lentamente. De las seis portadoras que necesitaba capturar, cuatro ya estaban bajo su poder. Las dos restantes se encontraban frente a ella, ahora fusionadas en una sola entidad.
 
 "Las grandes mentes piensan igual... ¿No le parece, princesa?" se burló Balor, rompiendo el silencio entre ambas.
 
-Twilight-Dash, confundida, comenzó a recordar dónde había escuchado antes la nueva voz que ahora provenía de Badwhiz. Luego, el recuerdo llegó y finalmente entendió.
+Twilight-Dash, sorprendida, trató de identificar aquella nueva voz que ahora emanaba del cuerpo de Badwhiz. Un recuerdo lejano llegó a su mente, y entonces lo entendió.
 
-"¡Balor!" exclamó Twilight-Dash. En la mente independiente de Twilight, las piezas del rompecabezas comenzaron a encajar. En la mente independiente de Dash, la pegaso se jactó para sí misma. "Grandes mentes... ja".
+"¡Balor!" exclamó Twilight-Dash, sus ojos entrecerrándose al reconocer la amenaza frente a ella. En la mente independiente de Twilight, las piezas del rompecabezas comenzaron a encajar rápidamente. Mientras tanto, Dash, desde su lado de pensamiento, se limitó a jactarse: "Grandes mentes... ja".
 
-"¿Sorprendida? ¿Acaso no le advertí que volveríamos a terminar nuestra misión?" respondió Balor con frialdad.
+"¿Sorprendida? ¿Acaso no te advertí que algún día terminaríamos nuestra misión?" replicó Balor con frialdad.
 
-"Por favor, no tenemos que llegar tan lejos, existen otras..." dijo Twilight-Dash intentando dialogar con Balor.
+"Por favor, no tenemos que llegar a esto. Existen otras..." intentó argumentar Twilight-Dash, en un esfuerzo por dialogar con Balor.
 
-"¿'Otras cosas más importantes que el hogar'?" reprendió Balor, interrumpiendo las palabras de Twilight-Dash.
+"¿'Otras cosas más importantes que el hogar'?" interrumpió Balor, con un tono mordaz.
 
-Estas eran las mismas palabras que Twilight había usado para aleccionar a Ceridwen cuando esta había sido derrotada en Canterlot. Aquel recuerdo que había visto en la mente de su amiga solo había causado repudio en ella.
+Eran las mismas palabras que Twilight había usado una vez para aleccionar a Ceridwen tras su derrota en Canterlot. Ese recuerdo que había compartido con sus compañeros solo había alimentado el desprecio de Balor.
 
 "¿A qué 'cosas' te refieres, princesa?" continuó Balor. "En mi hogar se encuentran mis amigos, mi familia, mi amor, mi propósito, mi historia, mi nación..."
 
-Un viento frío sopló entre ambas contendientes. En un ambiente cargado de un pesado silencio, Balor descendió hacia Twilight-Dash bajo las alas de una ira que había estado aguantando durante demasiado tiempo. Hasta ese momento, había mantenido la calma, pero ya no más.
+Un viento frío sopló entre ambas contendientes. La atmósfera se tensó aún más, Balor descendió hacia Twilight-Dash bajo las alas de una ira que había estado aguantando durante demasiado tiempo. Hasta ese momento, había mantenido la calma, pero ya no más.
 
-"¡Respóndeme, princesa... ¿QUÉ ES MÁS IMPORTANTE QUE ESO?!" finalmente explotó Balor con toda su rabia, al mismo tiempo que hacía estallar la roca sobre la que se encontraba.
+"¡Respóndeme, princesa... ¿QUÉ ES MÁS IMPORTANTE QUE ESO?!" rugió Balor, su voz resonando como un trueno mientras hacía estallar la roca bajo sus pies.
 
 Twilight-Dash no respondió.
 
-"Había pensado en preservarte, para así mantener la paz en este reino... pero ahora que soy más consciente de tus capacidades, eso sería un terrible error. ¡NO PIENSO DARTE NINGUNA PIEDAD, MALDITA! ¡NI TE ESFUERCES EN PEDIRLA!"
+"Había considerado preservarte, para así mantener la paz en este reino... pero ahora que soy más consciente de tus capacidades, eso sería un terrible error. ¡NO PIENSO DARTE NINGUNA PIEDAD, MALDITA! ¡NI TE ESFUERCES EN PEDIRLA!"
 
-Ante esa muestra de rabia pura y sincera que no era capaz de entender, Twilight-Dash retrocedió. La mente independiente de Twilight se alteró: "¿Había cometido un error? ¿De dónde venía ese odio? ¿Había algo que no sabía?" El espíritu de Twilight comenzó a dudar, pero la mente independiente de Dash la sacudió rápidamente. "¡No es hora de pensar en eso, Twilight! Estos tipos están equivocados y lo sabes. Estamos luchando por salvar a nuestras amigas y a Equestria, ¡eso es todo lo que importa!".
+El estallido de rabia pura y sincera dejó a Twilight-Dash inmóvil por un momento. En la mente independiente de Twilight, la rabia de su oponente era palpable: "¿Había cometido un error? ¿De dónde provenía ese odio? ¿Qué era lo que no sabía?" Pero Dash interrumpió sus pensamientos con firmeza: "¡No es momento de dudar, Twilight! Estos tipos están equivocados, y lo sabes. Estamos luchando por salvar a nuestras amigas y a Equestria. ¡Eso es lo único que importa!"
 
-Ante las palabras de aliento de Dash, Twilight-Dash recuperó su firmeza y avanzó hacia Balor.
+Alentada por las palabras de Dash, Twilight-Dash recuperó su postura y avanzó decididamente hacia Balor.
 
-"¡No permitiré que lastimes a mis amigas ni a los habitantes de Equestria! ¡Puedes detener esto ahora! ¡Aún no es demasiado tarde!" clamó Twilight-Dash.
+"¡No permitiré que lastimes a mis amigas ni a los habitantes de Equestria! ¡Puedes detener esto ahora mismo! ¡Aún no es demasiado tarde!" exclamó con determinación.
 
-Balor, se detuvo un momento. Cerró los ojos y los volvió a abrir. Ya no había rastro de ira o rabia, solo había tristeza.
+Balor la miró en silencio por un momento. Cerró los ojos y, al abrirlos, cualquier rastro de ira había desaparecido. En su lugar, había una tristeza profunda y sincera.
 
-"Desdichada princesa... la medianoche ya ha caído sobre nosotros. Ya es demasiado tarde para todos", dijo Balor antes de lanzarse para realizar su primer ataque.
+"Desdichada princesa... la medianoche ya ha caído sobre nosotros. Ya es demasiado tarde para todos", murmuró Balor antes de lanzarse hacia Twilight-Dash con su primer ataque.
 
 [---]
 
@@ -222,33 +220,35 @@ Se mordió la lengua y nuevamente devolvió su concentración a la batalla. La t
 
 Ya no había un hogar al que regresar.
 
---------------------
+[---]
 
-La terrible tormenta de hielo y nieve que había azotado el interior de la barrera en la que estaban encerradas Twilight y sus amigas finalmente empezaba a calmarse. Habían pasado unos diez minutos de combate continuo entre ambas oponentes, y ahora se encontraban exhaustas observándose una a la otra.
+La terrible tormenta de hielo y nieve que había azotado el interior de la barrera donde Twilight y sus amigas estaban encerradas finalmente comenzaba a calmarse. Después de unos diez minutos de combate continuo, ambas oponentes se encontraban exhaustas, observándose fijamente.
 
-Bajo la pálida luz del sol que se filtraba dentro de la gran barrera, las figuras de ambas adversarias se revelaron.
+Bajo la pálida luz del sol que lograba filtrarse dentro de la gran barrera, las figuras de ambas adversarias se revelaron con claridad.
 
-En un extremo se hallaba Balor, poseyendo el cuerpo de Badwhiz, que se encontraba sumamente golpeado. La armadura que hasta hacía poco lo había protegido de casi todos los ataques de su oponente ahora presentaba evidentes grietas y daños relevantes. No había mucho que Balor pudiera hacer al respecto; podría curar las heridas del cuerpo del poni con magia, pero eso disminuiría sus propias reservas y, por ende, sus posibilidades de éxito. Además, ya faltaba poco para que todo terminara.
+En un extremo estaba Balor, poseyendo el cuerpo de Badwhiz, visiblemente dañada. La armadura, que hasta hacía poco lo había protegido de la mayoría de los ataques, ahora presentaba grietas profundas y daños significativos. Aunque Balor podía usar magia para curar las heridas del cuerpo que ocupaba, hacerlo implicaría reducir sus propias reservas de energía, lo que disminuiría sus posibilidades de éxito. Consciente de que el final estaba cerca, optó por conservar su poder.
 
-Frente a Balor, Twilight-Dash no se encontraba mejor. También tenía moretones y otros daños visibles en su piel. Pero sobre todo, eran notables los daños que se habían desarrollado en sus alas. Gran parte de ellas se encontraban quemadas o congeladas a causa de los ataques continuos de Balor y de la inclemente furia de la ventisca que había tenido que soportar. Twilight-Dash no creía que hubiera perdido el vuelo, pero seguramente había perdido gran parte de su velocidad, y eso, sin duda, era lo que su oponente esperaba.
+Frente a Balor, Twilight-Dash tampoco se encontraba en mejores condiciones. Su cuerpo mostraba moretones y heridas visibles, pero el daño más evidente estaba en sus alas. La constante exposición a los ataques de Balor y a la furia de la ventisca había dejado gran parte de sus alas quemadas o congeladas. Aunque todavía era capaz de volar, su velocidad se había reducido considerablemente, y Twilight-Dash sabía que eso era exactamente lo que su oponente había buscado desde el inicio.
 
-Balor se relajó más. Sonrió. Sabía que era prematuro, y la princesa podría revelar algún hechizo para intentar curarse, pero eso ya no importaba. Incluso sin las heridas en sus alas, ya todo estaba consumado para el éxito de su último ataque.
+Balor relajó su postura y esbozó una sonrisa. Sabía que la batalla aún no había terminado, y la princesa podría intentar curarse o revelar un nuevo hechizo. Pero, en su mente, la victoria ya estaba asegurada. Todo lo que quedaba era ejecutar su último movimiento.
 
-"Pareces feliz, Balor. ¿Acaso ya has ganado?" preguntó desafiante Twilight-Dash a Balor.
+"Pareces feliz, Balor. ¿Acaso ya has ganado?" preguntó Twilight-Dash con un tono desafiante.
 
-"Ju ju ju, no, no... aún no, princesa de la ingenuidad, pero ya falta muy poco para que demos por terminado este desagradable encuentro", respondió burlona Balor antes de desaparecer en un resplandor de magia.
+"Ju, ju, ju... No, princesa de la ingenuidad, aún no. Pero falta muy poco para que demos por concluido este desagradable encuentro," respondió Balor con burla antes de desaparecer en un destello de magia.
 
 Se había teletransportado.
 
-"Rayos", dijo molesta Twilight-Dash. Había gastado mucha de su fuerza física intentando derribar a Balor en la tormenta, pero ninguno de sus ataques había resultado ser suficiente. Una y otra vez, Balor había soportado o evadido con gran habilidad sus embestidas haciendo uso de hechizos y trucos. Sin embargo, Twilight-Dash aún tenía una ventaja. Su fuente de magia aún estaba intacta. Debido a que la gema Starheart bloqueaba el uso de hechizos, ahora ella tenía una reserva completa de energía mágica que le daba la confianza de poder aguantar lo que sea que Balor le enviara, incluso si eso consumiera toda su magia. Sorprendería a Balor con una embestida de poder puro en el momento que creyera que ya había ganado.
+"Rayos," murmuró Twilight-Dash, frustrada. Había invertido gran parte de su energía física en intentar derribar a Balor durante la tormenta, pero ninguno de sus ataques había sido lo suficientemente efectivo. Una y otra vez, su oponente había resistido o evadido sus embestidas con una combinación de hechizos y astucia. A pesar de ello, Twilight-Dash aún tenía una carta bajo la manga: su fuente de magia permanecía intacta.
 
-"Pero aún así..."
+Gracias a la gema Starheart, que bloqueaba el uso de hechizos, su reserva de energía mágica estaba completa. Esto le daba la confianza de poder resistir cualquier ataque que Balor lanzara, incluso si eso significaba consumir toda su magia. Sabía que debía esperar el momento preciso para sorprenderlo con una embestida de poder puro cuando él creyera que ya había ganado.
 
-"Twilight, es todo o nada. ¡Lo lograremos!" exclamó internamente la mente independiente de Rainbow Dash.
+"Pero, aun así..."
 
-"Sí, ¡juntas!" respondió segura la mente independiente de Twilight.
+"Twilight, es todo o nada. ¡Lo lograremos!" exclamó con entusiasmo la mente independiente de Rainbow Dash.
 
---------------------
+"Sí, ¡juntas!" respondió con determinación la mente independiente de Twilight.
+
+[---]
 
 A lo lejos, en lo alto de una colina sin vegetación, Balor observaba el paisaje helado.
 
@@ -260,157 +260,159 @@ La tierra había despertado.
 
 Solo quedaba realizar el acto final.
 
-Balor exhaló profundamente. Una luz verde, casi radiante, comenzó a manifestarse en los cascos del pony que utilizaba como marioneta: Badwhiz Starheart, el poni terrestre que Balor había usado como conejillo para realizar sus experimentos y del cual había aprendido tanto sobre la historia de los ponis y la magia que ellos habían descubierto, así como también aquella magia que aún no habían descubierto.
+Balor exhaló profundamente. Una luz verde, brillante y casi radiante, comenzó a manifestarse en los cascos del pony que utilizaba como marioneta: Badwhiz Starheart. Este poni terrestre, al que Balor había empleado como conejillo de indias para sus experimentos, le había enseñado mucho, no solo sobre la historia de los ponis y la magia que habían descubierto, sino también sobre aquella que aún permanecía oculta para ellos.
 
-"¡Jardín de la eternidad! ¡Haaaa!" exclamó en voz alta Balor, alzando sus cascos delanteros y golpeando con fuerza la tierra. Para Balor, hacer este acto no le resultaba necesario, ya que bastaba con acumular la magia y mantener la concentración para liberar el hechizo, pero dadas las circunstancias actuales, tales teatralidades ayudaban a reforzar su confianza y marcar un ritmo en la pelea.
+"¡Jardín de la eternidad! ¡Haaaa!" exclamó Balor con fuerza, alzando sus cascos delanteros y golpeando con decisión la tierra. Aunque Balor no necesitaba recurrir a gestos tan dramáticos para ejecutar el hechizo, ya que bastaba con acumular magia y mantener la concentración, esas teatralidades servían para reforzar su confianza y establecer el ritmo del combate.
 
-Este era el comienzo del fin del combate.
+Este era el comienzo del fin.
 
-Balor sintió cómo su fuente de magia interna comenzaba a drenarse. No era una pérdida fatal, pero sí notable. Este hechizo era una carta de triunfo muy costosa que había mantenido en secreto durante mucho tiempo. Ni sus maestros, ni el gran patriarca, ni nadie en Cunabula sabía que ella había logrado dominar esa magia. Incluso los otros caballeros del orden tenían solo una vaga idea del hechizo que Balor utilizaría para derrotar a la princesa.
+Balor sintió cómo su fuente de magia interna comenzaba a drenarse. Aunque no era una pérdida fatal, sí era notable. Este hechizo era su carta de triunfo, un recurso extremadamente costoso que había mantenido en secreto durante años. Ni sus maestros, ni el gran patriarca, ni nadie en Cunabula sabía que había logrado dominar esta magia. Incluso los otros Caballeros del Orden tenían solo una vaga idea del hechizo que Balor estaba a punto de desatar para derrotar a la princesa.
 
-La fatiga mental alcanzó repentinamente a Balor, quien tambaleó ligeramente en su cuerpo real. En aquella habitación ovalada donde se encontraban sus otros compañeros, reinaba una atmósfera de preocupación.
+La fatiga mental golpeó de repente a Balor, provocando que tambaleara ligeramente en su cuerpo real. En aquella habitación ovalada donde se encontraban sus compañeros, la atmósfera se llenó de preocupación.
 
-"No necesitas presionarte tanto. Si necesitas que te transfiramos parte de nuestra fuerza, puedes pedírnosla", dijo Mannah, observando la creciente fatiga en Balor.
+"No necesitas presionarte tanto. Si necesitas que te transfiramos parte de nuestra fuerza, puedes pedírnosla", sugirió Mannah, mientras observaba con inquietud la creciente fatiga en Balor.
 
 "Silencio, Mannah. Mantengan la vigilancia y déjenme terminar esta tarea", respondió el Draco-Dragón con frialdad.
 
-Este era el último tramo. Este era el plan que ella había impuesto a sus compañeros. A pesar de su fatiga y agotamiento, Balor tenía el deber y la magia suficiente para continuar.
+Este era el último tramo. Este era el plan que Balor había impuesto a sus compañeros. A pesar de la fatiga y el agotamiento, tenía el deber y la magia suficiente para seguir adelante.
 
-***
+[---]
 
-Un crujido se extendió por toda la Gran Barrera, y poco a poco las señales de un terremoto inminente comenzaron a manifestarse.
+Un crujido se extendió por toda la Gran Barrera, y poco a poco comenzaron a manifestarse las señales de un terremoto inminente.
 
-Twilight-Dash se elevó de inmediato en el aire. Sus alas no parecían haber sufrido tanto daño como había pensado. Aun así, se mantenía cautelosa ante el próximo ataque del oponente.
+Twilight-Dash se elevó de inmediato en el aire. Sus alas, aunque algo lastimadas, no parecían haber sufrido tanto daño como había pensado. Aun así, se mantenía cautelosa ante el próximo ataque de su oponente.
 
-¿Se enfrentaría por fin a Danu, líder de los Caballeros del Orden? Muy dentro de sí, Twilight ya no se sentía tan segura de tener las fuerzas para encarar un diálogo contra él.
+¿Acaso se enfrentaría por fin a Danu, líder de los Caballeros del Orden? Muy dentro de sí, Twilight ya no estaba tan segura de tener las fuerzas necesarias para mantener un diálogo, y mucho menos para enfrentarlo.
 
-En el suelo comenzaron a abrirse grietas, y el viento comenzó a soplar con fuerza.
+El suelo comenzó a abrirse en grietas mientras el viento soplaba con una fuerza cada vez mayor.
 
-Al observar el desolado paisaje debajo de ella, Twilight podía decir con total seguridad que ella no había nacido para ser una guerrera...
+Al observar el desolado paisaje bajo ella, Twilight no pudo evitar pensar que no había nacido para ser una guerrera...
 
-"Vaya, así que ahora le toca a ese león-pony cabeza hueca. ¿Qué va a hacer ahora? ¿Intentará encerrarnos con una piedra gigante o algo así?" preguntó burlona la mente independiente de Rainbow Dash a Twilight.
+"Vaya, así que ahora le toca a ese 'leoponi' cabeza hueca. ¿Qué va a hacer ahora? ¿Intentará encerrarnos con una piedra gigante o algo así?" se burló la mente independiente de Rainbow Dash.
 
-"No lo creo, ya nos lanzó un bloque de hielo gigante hace poco. Es muy probable que su ataque sea muy distinto esta vez".
+"No lo creo, ya nos lanzó un bloque de hielo gigante hace poco. Es muy probable que su ataque sea distinto esta vez", respondió Twilight.
 
-"Lo que sea, solo espero que sea lo último que intenten para así liberar a nuestras amigas".
+"Lo que sea, solo espero que sea lo último que intenten para poder liberar a nuestras amigas".
 
-Twilight no respondió. Analizando el ritmo de esa batalla, todo indicaba que este era el final de aquel combate. Después de eso...
+Twilight guardó silencio. Analizando el ritmo de la batalla, todo parecía indicar que este era el final del combate. Después de eso...
 
-Todo el suelo dentro de la Gran Barrera tembló por violentas ondas sísmicas. Las capas de hielo que se habían formado previamente por la ventisca anterior estallaron como bloques de galletas que eran aplastados. Una nueva neblina blanca de vapor se elevó, ocultando el suelo, aunque esta vez era más ligera y difusa, permitiendo ver cómo el suelo se agrietaba y estallaba en pedazos.
+Todo el suelo dentro de la Gran Barrera comenzó a temblar con violentas ondas sísmicas. Las capas de hielo, formadas previamente por la ventisca, estallaron como si fueran frágiles galletas aplastadas. Una nueva neblina blanca de vapor se alzó, ocultando el suelo. Esta vez, sin embargo, la neblina era más ligera y difusa, permitiendo vislumbrar las grietas y el colapso del terreno.
 
-Twilight-Dash se elevó un poco más para no ser alcanzada por esa neblina.
+Twilight-Dash ascendió un poco más para evitar el alcance de la neblina.
 
-Después de unos minutos de estruendos y sacudidas, finalmente cesó el tumulto en el suelo. Poco a poco, la neblina se disipó, revelando el nuevo paisaje.
+Tras varios minutos de estruendos y sacudidas, el tumulto cesó finalmente. Poco a poco, la neblina comenzó a disiparse, revelando un paisaje completamente transformado.
 
-Twilight-Dash parpadeó y luego parpadeó de nuevo. Se restregó los ojos y volvió su mirada al suelo debajo de ella.
+Twilight-Dash parpadeó varias veces, desconcertada. Se frotó los ojos y volvió a mirar hacia abajo.
 
-"Bien... esto no lo esperaba", se dijo a sí misma Twilight-Dash en voz alta.
+"Bien... esto no lo esperaba", dijo en voz alta.
 
-En todo el suelo dentro de la Gran Barrera, donde antes había habido un páramo de destrucción, ahora se hallaba un bosque celeste que se extendía por todo el lugar. Altos árboles plateados con hojas celestes se elevaban hacia el cielo como pinos gigantes cubiertos de un rocío brillante. No había en este bosque señales de oscuridad ni tenía ningún rasgo de corrupción o malicia. Todo lo contrario, se veía como un bosque saludable, mágico e incluso podría llamarse sagrado.
+Dentro de la Gran Barrera, donde antes se extendía un páramo desolado y devastado, ahora había un vasto bosque celeste que cubría todo el lugar. Altos árboles plateados con hojas de color azul celeste se alzaban hacia el cielo como pinos gigantes cubiertos de un rocío brillante. No había señales de oscuridad, corrupción ni malicia. Por el contrario, el bosque lucía saludable, mágico, e incluso podría describirse como sagrado.
 
-Entre los árboles, había claros circulares que dejaban ver un suelo verde y frondoso. En medio de estos claros, grandes flores doradas con forma de tulipanes se ordenaban como si se tratara de un hermoso arreglo floral gigante.
+Entre los árboles se abrían claros circulares que dejaban ver un suelo verde y frondoso. En el centro de cada claro, grandes flores doradas, con la forma de tulipanes, se organizaban en lo que parecía ser un delicado arreglo floral gigante.
 
-Twilight-Dash estaba desconcertada. Este era un bosque "bonito", pero no le daba la impresión de ser amenazante ni de ocultar algún peligro. Dio varias vueltas alrededor de la Gran Barrera, esperando algún ataque, pero nada ocurrió. Después de varios minutos de buscar en vano a Balor, finalmente detuvo su vuelo cerca de los restos del tren que aún quedaban visibles.
+Twilight-Dash no podía ocultar su desconcierto. Este era un bosque "bonito", pero no le daba la impresión de ser amenazante ni de ocultar algún peligro. Dio varias vueltas alrededor de la Gran Barrera, esperando algún ataque, pero nada ocurrió. Después de varios minutos buscando en vano a Balor, finalmente detuvo su vuelo cerca de los restos del tren que aún permanecían visibles.
 
-"No lo entiendo. ¿Acaso espera que seamos lo suficientemente tontas como para bajar y así atraparnos? ¿O estas flores son algún tipo de truco?" se dijo en voz alta Twilight-Dash.
+"No lo entiendo. ¿Acaso espera que seamos lo suficientemente tontas como para bajar y atraparnos? ¿O estas flores son algún tipo de truco?" se dijo en voz alta Twilight-Dash.
 
-Las flores doradas parecían inofensivas, pero algo en su brillo y disposición en círculos perfectos las hacía ver poco naturales. Algo no cuadraba en esa escena, pero Twilight-Dash no podía determinar exactamente qué era.
+Luminicentes en el suelo bajo ella, las flores doradas parecían inofensivas, pero algo en su brillo y disposición en círculos perfectos las hacía lucir poco naturales. Algo no cuadraba en esa escena, pero Twilight-Dash no podía precisar exactamente qué era.
 
-"... espero que no sean de una disculpa. Porque si es así, no pienso aceptarla", continuó en soliloquio Twilight-Dash.
+"... Espero que no sean una disculpa. Porque, si es así, no pienso aceptarla", murmuró en soliloquio.
 
-"No princesa, estas son flores para adornar tu tumba", una voz le respondió repentinamente.
+"No, princesa. Estas son flores para adornar tu tumba", una voz respondió de pronto.
 
-Twilight-Dash volteó de inmediato la mirada. Varios metros detrás de ella, Balor la observaba con una sonrisa siniestra.
+Twilight-Dash giró de inmediato. A varios metros detrás de ella, Balor la observaba con una sonrisa siniestra.
 
-"¿Te gustan?" continuó Balor con voz burlona.
+"¿Te gustan?" continuó Balor con tono burlón.
 
-"Son muy hermosas, pero no me parecen apropiadas para un funeral", respondió Twilight-Dash, al instante levantando una barrera de magia a su alrededor.
+"Son muy hermosas, pero no me parecen apropiadas para un funeral", replicó Twilight-Dash, alzando instantáneamente una burbuja mágica a su alrededor.
 
-Al observar la burbuja mágica de su oponente, Balor se burló aún más.
+Balor, al observar la barrera, dejó escapar una carcajada burlona.
 
-"¿En serio, princesa ingenua? Incluso sabiendo que tengo este poderoso amuleto, ¿piensas usar magia?" declaró Balor en un tono burlón.
+"¿En serio, princesa ingenua? Incluso sabiendo que poseo este poderoso amuleto, ¿piensas usar magia?" dijo con sarcasmo.
 
-Twilight-Dash no le respondió y se mantuvo en alerta, lista para cualquier movimiento de Balor.
+Twilight-Dash no respondió. Permanecía alerta, lista para cualquier movimiento hostil.
 
-"Déjame adivinar, supongo que al no usar nada de tu magia en el combate esperabas acumular suficiente poder para un contraataque en el momento en que me alcanzara la fatiga o mostrara alguna debilidad", continuó Balor sin hacer ningún movimiento hostil.
+"Déjame adivinar. Supongo que al no usar nada de tu magia en el combate, esperabas acumular suficiente poder para un contraataque cuando yo estuviera fatigada o mostrara una debilidad", continuó Balor, manteniendo su tono de burla, pero sin mostrar intenciones ofensivas.
 
-"Has mantenido la posesión mental compartida demasiado tiempo. Sé que esa es una habilidad que causa una gran fatiga mental, y aquel que abusa de ella puede terminar perdiendo su capacidad de hacer magia".
+"Has mantenido la posesión mental compartida demasiado tiempo. Sé que esa habilidad causa una gran fatiga, y quien abusa de ella puede terminar perdiendo su capacidad para usar magia".
 
-"¡Qué considerada de tu parte al hacerme recordar estos peligros! Pero no creas que por ello cambiaré de intenciones", se jactó sarcásticamente Balor.
+"¡Qué considerada de tu parte al recordarme esos peligros! Pero no creas que por ello voy a cambiar de intenciones", respondió sarcásticamente Twilight-Dash.
 
-"Si es así, entonces..." dijo Twilight-Dash, pero interrumpió sus palabras. La burbuja mágica que había creado para protegerse se había desvanecido.
+"Si es así, entonces..." comenzó a decir, pero sus palabras se interrumpieron de golpe. La burbuja mágica que había levantado se desvaneció inesperadamente.
 
-Al ver eso, Twilight-Dash retrocedió rápidamente y volvió a levantar la burbuja. Sin embargo, esta se desvaneció de nuevo. Repitió el intento una vez más, pero el resultado fue el mismo. A lo lejos, Balor dejó de sonreír y simplemente la observó.
+Al notar esto, Twilight-Dash retrocedió rápidamente y volvió a alzar la barrera. Sin embargo, esta desapareció una vez más. Repitió el intento, pero el resultado fue idéntico. Desde la distancia, Balor dejó de sonreír y la observó con frialdad.
 
-Un sudor frío recorrió la frente de Twilight-Dash. Balor no se había acercado, y sin embargo, la magia estaba fallando. Poco a poco, una sensación de pesadez comenzó a invadir su cuerpo. Sus alas, en las que tanto había confiado hasta ahora, se agitaban torpemente en un intento por mantenerla en el aire. Un creciente pánico comenzó a invadirla.
+Un sudor frío recorrió la frente de Twilight-Dash. Balor no se había acercado, y aun así, su magia estaba fallando. Lentamente, una sensación de pesadez comenzó a apoderarse de su cuerpo. Sus alas, en las que tanto había confiado, se agitaban torpemente, luchando por mantenerla en el aire. El pánico empezó a crecer dentro de ella.
 
-"Sabe, es curioso. Me sorprendió bastante que en Equestria existieran plantas capaces de disipar la magia de control mental de mi compañera Morrigan. En Cunabula también tenemos plantas similares, incluso algunas capaces de disipar la magia en general..." habló Balor, tomando una postura reflexiva.
+"¿Sabes? Es curioso. Me sorprendió descubrir que en Equestria existen plantas capaces de disipar la magia de control mental de mi compañera Morrigan. En Cunabula también tenemos plantas similares... Incluso algunas que pueden anular la magia en general", comentó Balor con una actitud reflexiva.
 
-Twilight-Dash miró con rabia a Balor mientras perdía altura. Lo que había dicho bien podría ser una mentira. Allí mismo, Balor flotaba con magia, contradiciendo sus propias palabras.
+Twilight-Dash lo miró con rabia mientras descendía lentamente. Lo que había dicho bien podía ser una mentira, pero allí estaba Balor, flotando con magia, contradiciendo sus propias palabras.
 
-"¡Tú!" intentó responder Twilight-Dash, pero ya era demasiado tarde. Sus alas y el resto de su cuerpo perdieron el equilibrio y comenzó a inclinarse de lado, como un pájaro herido. Después de un vuelo errático, finalmente su cuerpo empezo a caer libremente sobre el brillante bosque celeste.
+"¡Tú!" intentó gritar Twilight-Dash, pero ya era demasiado tarde. Sus alas y el resto de su cuerpo perdieron fuerza, inclinándose de lado como un pájaro herido. Tras un vuelo errático, su figura comenzó a caer en picada hacia el brillante bosque celeste.
 
---------------------
+[---]
 
 Ella estaba cayendo. Estaba perdiéndolo todo.
 
-Un escalofrío recorrió la columna vertebral de Twilight-Dash cuando la magia comenzó a agitarse dentro de ella. Al principio, la sensación solo era un adormecimiento, pero ahora era una auténtica tortura.
+Un escalofrío recorrió la columna vertebral de Twilight-Dash mientras la magia dentro de ella comenzaba a descontrolarse. Al principio, solo era un adormecimiento, pero ahora se había convertido en una auténtica tortura.
 
-Cada hebra de energía mágica estallaba en su interior como si hiciera cortocircuito con sus propios nervios, dejando un angustioso dolor a su paso. Era como si una parte fundamental de ella misma estuviera siendo cortada por miles de tajos invisibles.
+Cada hebra de energía mágica estallaba en su interior, como si hiciera cortocircuito con sus propios nervios, dejando un rastro de dolor angustiante. Era como si una parte fundamental de sí misma estuviera siendo destrozada por miles de tajos invisibles.
 
-A medida que descendía, el pánico la oprimía más y más. Su mente luchaba contra la idea aterradora de perder aquello que tacitamente consideraba parte de su esencia misma. Cerró los ojos con fuerza, como si al hacerlo pudiera contener la gravedad que la empujaba inexorablemente hacia el suelo.
+A medida que descendía, el pánico crecía en su pecho, oprimiéndola cada vez más. Su mente luchaba desesperadamente contra la idea aterradora de perder aquello que siempre había considerado parte de su esencia. Cerró los ojos con fuerza, como si eso pudiera detener la gravedad que la empujaba inexorablemente hacia el suelo.
 
-"No... no puede estar pasando", susurró, pero las palabras apenas eran audibles sobre el zumbido ominoso del viento y la magia que era estrangulada en su interior.
+"No... no puede estar pasando", susurró. Sin embargo, sus palabras apenas eran audibles por encima del zumbido ominoso del viento y la magia que agonizaba en su interior.
 
-Abrió los ojos nuevamente. La superficie debajo de ella, colmada de árboles celestes, se acercaba cada vez más rápido.
+Abrió los ojos nuevamente. La superficie, cubierta de árboles celestes, se acercaba a una velocidad aterradora.
 
-Su corazón latía con furia, como si intentara compensar la pérdida inminente. Aunque físicamente ilesa, Twilight-Dash se sentía desgarrada por dentro. ¿Cómo podría enfrentar a Balor sin su magia?
+Su corazón latía frenéticamente, como si intentara compensar la inminente pérdida. Aunque físicamente ilesa, Twilight-Dash se sentía desgarrada por dentro. ¿Cómo podría enfrentarse a Balor sin su magia?
 
-Perder sus alas era lamentable. Perder su magia era perderlo todo.
+Perder sus alas ya era lamentable. Perder su magia significaba perderlo todo.
 
-En el aire enrarecido, buscó desesperadamente la conexión perdida, tratando de reconectarse a cualquier hilo de magia que pudiera quedar. Pero fue en vano. La sensación de impotencia la envolvía, y mientras caía, una punzada de angustia le atravesó el pecho.
+En el aire enrarecido, buscó desesperadamente alguna conexión con los hilos de magia que aún pudieran permanecer en su interior. Pero era inútil. La sensación de impotencia la envolvía como una sombra, y mientras caía, una punzada de angustia le atravesó el pecho.
 
-"No... no así, aún no", murmuró, sus ojos se llenaron de lágrimas mientras aceptaba la cruel realidad: estaba indefensa, y Balor lo sabía.
+"No... no así. Aún no", murmuró. Sus ojos se llenaron de lágrimas mientras aceptaba la cruel realidad: estaba indefensa, y Balor lo sabía.
 
-Su estrategia había fallado, y ahora estaba a un solo paso del fin.
+Su estrategia había fallado, y ahora se encontraba a un paso del fin.
 
-Entonces, su cuerpo se hundio en las frondosas copas de los árboles celestes. Twilight-Dash finalmente se estrelló en el suelo.
+Entonces, su cuerpo atravesó las frondosas copas de los árboles celestes. Finalmente, Twilight-Dash se estrelló contra el suelo.
 
---------------------
+[---]
 
 "¡Twilight, esto es grave!" exclamó la mente independiente de Rainbow Dash.
 
-"¡Lo sé!" respondió la mente independiente de Twilight.
+"¡Lo sé!" respondió Twilight, con la misma intensidad.
 
 "¡TWILIGHT, ESTO ES MUY GRAVE!"
 
-"¡LO SÉ, RAINBOW DASH! ¡LO SÉ!" replicó su amiga con vehemencia.
+"¡LO SÉ, RAINBOW DASH! ¡LO SÉ!" replicó, su voz cargada de frustración.
 
-Twilight-Dash corría a toda prisa por el denso bosque celeste, agitaba sus alas, pero estas se resistían tenazmente a elevarla. Su cuerpo se sentía extrañamente torpe, distorsionado; las punzadas en su interior habían desaparecido, sin embargo, cada respiración era ahora un esfuerzo agotador.
+Después de estrellarse, Twilight-Dash corría a toda prisa por el denso bosque celeste. Intentaba agitar sus alas, pero estas se resistían a elevarla. Su cuerpo se sentía extrañamente torpe y descoordinado. Aunque las punzadas internas habían desaparecido, cada respiración era un esfuerzo agotador.
 
-La alicornio tropezó y cayó en un charco de lodo rodeado de tulipanes rojos. Una oleada de náusea la invadió al levantarse, pero logró mantenerla bajo control.
+Tropezó y cayó de bruces en un charco de lodo rodeado de tulipanes rojos. Una oleada de náusea la invadió al levantarse, pero logró contenerla.
 
-¿Qué era aquel lugar? ¿Por qué todo parecía tan antinatural? Twilight-Dash escudriñó su entorno, desesperada por encontrar alguna respuesta que pudiera arrojar luz sobre aquel extraño bosque. No tenía ni idea de qué tipo de magia estaba siendo utilizada en su contra. A pesar de la vasta experiencia de Twilight y Rainbow Dash, jamás habían enfrentado algo semejante. La única situación que se le asemejaba en cuanto a la sensación de impotencia que experimentaba ahora fue cuando Twilight viajó a un mundo sin magia a través de un espejo, pero incluso entonces, el malestar de no poder usar magia se comparaba con tener la nariz tapada.
+¿Qué era aquel lugar? ¿Por qué todo parecía tan antinatural? Twilight-Dash escudriñó el entorno con ojos ansiosos, buscando desesperadamente respuestas que pudieran arrojar algo de luz sobre aquel extraño bosque. No tenía idea de qué clase de magia estaba siendo utilizada en su contra. A pesar de la vasta experiencia de Twilight y Rainbow Dash, jamás habían enfrentado algo semejante.
 
-Esta vez, el malestar era inmensamente más intenso, como si se estuviera ahogando lentamente en un pozo de alquitrán ardiente, mientras todos sus sentidos se veían distorsionados.
+La única situación que se asemejaba, aunque vagamente, era cuando Twilight viajó a un mundo sin magia a través de un espejo. Sin embargo, incluso entonces, la incomodidad de no poder usar magia se comparaba con tener la nariz tapada. Esta vez, el malestar era mucho más intenso, como si estuviera ahogándose lentamente en un pozo de alquitrán ardiente, mientras todos sus sentidos se distorsionaban.
 
-"Aún conservamos nuestra magia en nuestro interior; eso es importante", señaló la mente independiente de Twilight, esforzándose en mantener la calma y continuar su trote.
+"Aún conservamos nuestra magia en el interior; eso es lo importante", señaló la mente independiente de Twilight, esforzándose por mantener la calma mientras seguían avanzando a trote.
 
-Los últimos remanentes de la magia que había percibido convencieron a Twilight de que la magia aún estaba en su interior. Aunque había perdido toda capacidad para hacer contacto directo con ella, ella sabía que aún estaba ahí; realmente debía ser así, porque si no...
+Aunque los últimos vestigios de magia que percibía eran tenues, Twilight estaba convencida de que la magia seguía dentro de ellas. Sabía que aún estaba ahí, aunque no pudiera conectarse con ella. Tenía que ser así... porque si no...
 
-"Esta bien, pero no podemos volar", se lamentó Rainbow Dash en respuesta.
+"Está bien, pero no podemos volar", se lamentó Rainbow Dash.
 
-"No podemos utilizar hechizos ni habilidades mágicas", continuó Twilight, intentando encender vanamente el cuerno de Twilight-Dash.
+"No podemos usar hechizos ni habilidades mágicas", continuó Twilight, haciendo un intento inútil por encender el cuerno de Twilight-Dash.
 
 "¡Y NO PODEMOS VOLAR!"
 
-Twilight-Dash se detuvo en seco en un claro rodeado de rocas. Tras permanecer vigilante varios minutos y no percibir a nadie acercándose, dio un ligero suspiro. Un breve momento de calma, eso era todo lo que necesitaba, de inmediato su gran mente comenzó a trabajar...
+Twilight-Dash se detuvo en seco al llegar a un claro rodeado de grandes rocas. Permaneció vigilante durante varios minutos, pero no percibió señales de que alguien se acercara. Dio un ligero suspiro. Un breve momento de calma, eso era todo lo que necesitaba.
 
-Twilight estaba segura de que la capacidad de vuelo de los pegasos estaba relacionada con la magia elemental que envolvía sus alas. En ese momento, las alas de Twilight-Dash estaban en un estado aceptable y llenas de magia.
+Su gran mente comenzó a trabajar de inmediato.
+
+Twilight estaba segura de que la capacidad de vuelo de los pegasos estaba relacionada con la magia elemental que envolvía sus alas. En ese momento, las alas de Twilight-Dash parecían estar en buen estado y cargadas de magia.
 
 Entonces, ¿por qué no podían volar?
 
-Observó el místico bosque a su alrededor. Era evidente que él era el culpable. En aquel lugar, cada rincón destilaba una magia que retorcía la realidad misma ...
+Observó el místico bosque que la rodeaba. Era evidente que este lugar era el culpable. Cada rincón destilaba una magia tan poderosa y antinatural que parecía retorcer la realidad misma...
 
 Twilight-Dash exprimió su mente al máximo para descifrar el misterio. El bosque estaba interfiriendo de alguna manera con su magia, y necesitaba entenderlo y contrarrestarlo pronto, ya que el ataque de Balor podría llegar en cualquier momento.
 
