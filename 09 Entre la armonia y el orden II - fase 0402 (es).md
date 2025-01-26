@@ -541,7 +541,7 @@ Y también eran la clave para resolver el misterio del bosque celeste.
 
 Zecora le había dicho algo como: "Siente a los elementos y a la naturaleza. Escucha cómo respiran, mira cómo crecen, sigue su flujo ..."
 
-Twilight cerró los ojos. Disipó sus pensamientos y se concentró en uno solo. Necesitaba cambiar su enfoque. No podia seguir el flujo de la magia, en cambio necesitaba que la magia encontrar su propio flujo dentro de ella.
+Twilight cerró los ojos. Disipó sus pensamientos y se concentró en uno solo. Necesitaba cambiar su enfoque. No podia seguir el flujo de la magia, en cambio necesitaba que la magia encontrara su propio flujo dentro de ella.
 
 "De afuera hacia dentro." Un bloque de piedra tomó forma en la mente de Twilight. Una mancha marrón surgió en la oscuridad.
 
@@ -569,39 +569,43 @@ Pero ya había captado el truco. Ahora era cuestión de replicarlo una y otra ve
 
 Twilight no se rendiría.
 
-***
+[---]
 
-Balor tiró de nuevo. La mitad del alma de Twilight ya había sido extraída del cuerpo de Twilight-Dash.
+Balor tiró con fuerza una vez más. La mitad del alma de Twilight ya había sido extraída del cuerpo de Twilight-Dash.
 
-"Solo un poco más..." se dijo a sí misma Balor, calculando que en doce segundos más la extracción terminaría. La fusión colapsaría y entonces todo habría acabado.
+"Solo un poco más..." murmuró Balor para sí misma, calculando que en apenas doce segundos completaría la extracción. La fusión colapsaría, y entonces todo habría terminado.
 
-Twilight-Dash, por su parte, forcejeaba con todas sus fuerzas. Sus alas estaban ocupadas conteniendo las cadenas mientras intentaba retrasar el tirón de Balor, juntando de nuevo el alma de Twilight con sus patas delanteras. Pero no era suficiente. La figura fantasmal de su amiga se deslizaba de entre sus cascos. No le quedaba mucho tiempo.
+Twilight-Dash, por su parte, luchaba con todas sus fuerzas. Sus alas se ocupaban de mantener a raya las cadenas, mientras intentaba, desesperadamente, volver a unir el alma de Twilight a su cuerpo con las patas delanteras. Pero no era suficiente. La figura etérea de su amiga se deslizaba entre sus cascos, como arena que se escapa de un reloj. El tiempo se le agotaba.
 
-"¡No te la llevarás! ¡Huuuuuuuuuu!" clamaba la mente independiente de Rainbow Dash.
+"¡No te la llevarás! ¡Huuuuuuuuuu!" clamaba la mente independiente de Rainbow Dash, intentando mantener su firmeza.
 
-Pero la extracción apenas se retrasaba, y el cuerpo de Twilight-Dash se entumecía cada vez más.
+Sin embargo, el proceso apenas se ralentizaba, y el cuerpo de Twilight-Dash comenzaba a entumecerse más y más.
 
-"Cinco segundos más..." Balor apremiaba el tiempo que quedaba. Faltaba muy poco del alma de Twilight por extraer.
+"Cinco segundos más..." murmuró Balor con una sonrisa triunfal, apurando los instantes que faltaban. La última fracción del alma de Twilight estaba a punto de ser arrancada por completo.
 
-Entonces ... repentinamente, algo cambió.
+Y entonces, algo cambió.
 
-"¿Humm?" Balor notó desconcertada que habían pasado dos segundos, pero no había habido ningún avance.
+"¿Humm?" Balor frunció el ceño, desconcertada. Habían pasado dos segundos, pero no había ningún avance.
 
-Nuevamente tiró con más fuerza. Pero tampoco pudo extraer más el alma de Twilight.
+Volvió a tirar con más fuerza. Pero esta vez no logró mover el alma ni un milímetro.
 
-No, no era solo eso. ¿El alma de Twilight estaba regresando a su cuerpo?
+No, no era solo que el alma de Twilight se resistiera a salir. Era algo peor. Estaba regresando a su cuerpo.
 
-"¡¿QUÉ?!" exclamó Balor sin poder creer lo que sus ojos veían. Twilight-Dash repentinamente abrió los ojos. Ya no parecía asfixiada por el aire o las cadenas. El color de su pelaje, que hasta hacía unos segundos estaba mortalmente pálido, recuperaba su brillo. La confianza volvía a reflejarse en su rostro. ¡La magia fluía de nuevo en ella!
+"¡¿QUÉ?!" exclamó Balor, incapaz de dar crédito a lo que veía.
 
-"PAMMMM" Twilight-Dash aterrizó firmemente en el suelo. Hasta entonces había estado suspendida en el aire atrapada en la magia de Balor. Pero ahora había recuperado su equilibrio y pisaba la tierra con fuerza.
+De repente, Twilight-Dash abrió los ojos. La expresión de desesperación y agotamiento había desaparecido de su rostro, reemplazada por una mirada firme y decidida. Su pelaje, que hasta hace unos segundos lucía opaco y sin vida, comenzaba a brillar nuevamente con intensidad. Una energía renovada emanaba de ella. ¡La magia había vuelto a fluir por su cuerpo!
 
-Balor apenas podía contener la consternación que la inundaba. ¿Cómo era posible?
+Con un movimiento firme, "PAMMMM", Twilight-Dash aterrizó con fuerza en el suelo. Hasta entonces había estado suspendida en el aire, atrapada en la magia de Balor, pero ahora estaba completamente en control. Pisaba la tierra con determinación, dejando claro que ya no era una presa fácil.
 
-La situación de la batalla había cambiado nuevamente.
+Balor retrocedió un paso, incapaz de ocultar la consternación que la invadía. ¿Cómo podía estar pasando esto?
 
-Ahora era ella quien corría peligro. Estaba dentro del rango de ataque de Twilight-Dash y, en ese momento, la alicornio tenía más poder que ella. Si Twilight-Dash aprovechaba su velocidad extrema, podría embestirla y darle un golpe crítico. Balor podía teletransportarse o levantar su barrera para evitarlo, pero dado que estaba usando la cadena y extrayendo el alma de Twilight-Dash al mismo tiempo, el sobreesfuerzo la retrasaría en su escape.
+La batalla había dado un vuelco inesperado.
 
-Un segundo. Eso era lo que le llevaría. Pero en ese momento, un segundo era demasiado.
+Ahora era ella quien corría peligro. Estaba dentro del rango de ataque de Twilight-Dash y, en ese momento, la alicornio poseía el mayor poder magico. Si Twilight-Dash usaba su velocidad extrema, podría embestirla con un golpe crítico.
+
+Balor sabía que podía teletransportarse o levantar una barrera mágica para evitar el ataque, pero ambas opciones requerirían tiempo. Con las cadenas aún enredadas y el proceso de extracción incompleto, cualquier acción le tomaría al menos un segundo extra.
+
+Y en este instante, un segundo era demasiado.
 
 [---]
 
