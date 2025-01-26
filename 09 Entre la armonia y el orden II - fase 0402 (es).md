@@ -609,78 +609,86 @@ Y en este instante, un segundo era demasiado.
 
 [---]
 
-Twilight-Dash sonrió confiada. Podia ver la consternacion de Balor, tambien sabia lo que estaba pensando.
+Twilight-Dash sonrió con confianza. Podía ver la consternación de Balor y sabía perfectamente lo que estaba pensando.
 
-En su interior, Rainbow Dash era toda dicha. "No sé cómo lo hiciste, ¡pero esto es increíble! ¡Puedo sentir mis alas de nuevo!" 
+En su interior, Rainbow Dash rebosaba de emoción. "¡No sé cómo lo hiciste, pero esto es increíble! ¡Puedo sentir mis alas otra vez!"
 
-"No celebres tan pronto... apenas puedo mantenerlo... no nos queda mucho tiempo", respondió exhausta la mente independiente de Twilight.
+"No celebres tan pronto... apenas puedo mantener esto... no nos queda mucho tiempo", respondió exhausta la mente independiente de Twilight.
 
-Twilight había permanecido horas practicando dentro de su espacio mental simulado. Allí, el tiempo fluía mucho más lentamente. Pero esto no se debía solo a su magia y su experiencia en estos ejercicios. Dado que se encontraba en una fusión muy especial, Twilight podía aprovechar la agilidad de Twilight-Dash para mejorar su propio espacio mental. Ahora, ese entrenamiento estaba dando sus frutos. 
+Twilight había pasado horas practicando dentro de su espacio mental simulado, donde el tiempo fluía mucho más lentamente. Esto no era solo fruto de su magia y su experiencia en estos ejercicios; gracias a la naturaleza especial de su fusión con Rainbow Dash, Twilight podía aprovechar la agilidad mental de Twilight-Dash para mejorar su propio espacio interior. Ahora, ese entrenamiento estaba dando sus frutos.
 
-Sin embargo, a pesar del espacio favorable a su disposición, Twilight no podía ignorar la fatiga. Eventualmente, se cansó y tuvo que regresar su consciencia al flujo normal de pensamiento con Twilight-Dash.
+Sin embargo, a pesar de las ventajas del entorno mental, Twilight no podía ignorar el desgaste. Eventualmente, se fatigó y tuvo que regresar su conciencia al flujo normal de pensamientos compartidos con Twilight-Dash.
 
-Twilight regresó con Rainbow Dash preparada. Había logrado su objetivo de aprender a crear un vínculo con la naturaleza. Si bien no era capaz de comprender la magia antigua que envolvía al bosque celeste, sí sabía que era un bosque y que podía comunicarse con él. Con esto en mente, en un espacio mental, permitió que la magia del entorno la llenara y creara en su interior la semilla de un árbol celeste. Pronto, la semilla se abrió y se convirtió en un joven brote. Fue entonces cuando Twilight finalmente pudo escuchar la voz del bosque encantado que la rodeaba.
+Cuando volvió, estaba preparada. Había alcanzado su objetivo: aprender a establecer un vínculo con la naturaleza. Aunque no entendía del todo la magia ancestral que envolvía al bosque celeste, sabía que era un bosque vivo y que podía comunicarse con él.
 
-En sus clases con Zecora, la cebra le explicó que los árboles a veces solían susurrarle o llamarla por su nombre con voces suaves y gentiles.
+En su espacio mental, permitió que la magia del entorno fluyera dentro de ella, plantando en su interior la semilla de un árbol celeste. Poco después, la semilla germinó y se transformó en un joven brote. Fue entonces cuando Twilight finalmente escuchó la voz del bosque encantado que la rodeaba.
 
-Contrariamente, el bosque celeste no tenía nada de eso.
+En sus clases con Zecora, la cebra le había explicado cómo los árboles a veces susurraban o pronunciaban su nombre con voces suaves y gentiles.
 
-Un cántico atronador resonaba por todas partes. Los árboles celestes entonaban auténticos himnos en una lengua desconocida para ella. Acompañados de una sinfonía única y armoniosa. Intensa en momentos, más suave en otros, incluso las hojas caídas seguían el mismo ritmo en el suelo. Todo esto era una sensación única que la abrumaba considerablemente.
+Sin embargo, el bosque celeste era muy diferente.
 
-También sintió algo más... ira. Una ira densa y amarga.
+Un cántico atronador resonaba por todas partes. Los árboles celestes entonaban auténticos himnos en una lengua desconocida para Twilight, acompañados por una sinfonía única y armoniosa. A veces intensa, otras suave, incluso las hojas caídas seguían el mismo ritmo desde el suelo. La sensación era única, abrumadora en todos los sentidos.
 
-El bosque estaba molesto con ella. Su voz se alzaba en su contra.
+Pero también percibió algo más... ira. Una ira densa y amarga.
 
-Twilight no estaba del todo segura de por qué de esto. Pero tubo una corazonada y decidio probar algo para resolverlo. Abrió su espacio mental nuevamente, esta vez permitiendo que la voz del bosque llegara también al joven brote celeste que había creado. Repentinamente, una nueva voz surgió. Esta nueva voz se unió al canto, y toda la hostilidad que había sentido hasta ese momento se desvaneció.
+El bosque estaba molesto con ella. Su voz se alzaba en contra de su presencia.
 
-Ahora el bosque le permitía estar entre los suyos. No sentía que fueran amigos... pero al menos la toleraban.
+Twilight no estaba del todo segura de la razón, pero tuvo una corazonada y decidió probar algo. Abrió nuevamente su espacio mental, permitiendo que la voz del bosque llegara al joven brote celeste que había creado. Entonces, algo inesperado ocurrió.
 
-Si no fuera por la dramática situación en la que se encontraba, Twilight podría llorar de emoción.
+Una nueva voz surgió.
 
-"¡Wow! ¿Eso pasó? Fantasear en sembrar un árbol cantante era la clave... tiene sentido", dijo algo confusa la mente de Rainbow Dash, que acababa de recibir los recuerdos de su amiga.
+Esta nueva voz se unió al canto de los árboles, y con ello, toda la hostilidad que Twilight había sentido desapareció.
 
-"Estoy muy cansada, Rainbow... te lo dejo a ti", la débil voz de Twilight se apagó de nuevo. No había perdido la conciencia, pero ya no era capaz de hablar con su amiga manteniendo al mismo tiempo el espacio mental donde estaba el brote del árbol celeste cantando.
+Ahora, el bosque le permitía estar entre los suyos. No sentía que fueran sus amigos... pero al menos la toleraban.
+
+Si no fuera por lo dramática que era la situación, Twilight podría haber llorado de emoción.
+
+"¡Wow! ¿Eso pasó? Fantasear con sembrar un árbol cantante era la clave... tiene sentido", comentó Rainbow Dash, todavía algo confusa mientras procesaba los recuerdos de Twilight.
+
+"Estoy muy cansada, Rainbow... te lo dejo a ti", susurró débilmente Twilight antes de volver a caer en silencio. No había perdido la conciencia por completo, pero ya no era capaz de hablar mientras mantenía el espacio mental donde el brote celeste seguía cantando.
 
 Twilight estaba alcanzando sus límites.
 
-Rainbow Dash ahora debía alcanzar los suyos.
+Ahora, era turno de Rainbow Dash de alcanzar los suyos.
 
-"¡Déjalo en mis cascos!" exclamó decidida Twilight-Dash con la voz de Rainbow. Dio un giro sobre sí misma, y las cadenas se entrecerraron aún más, la tensión aumentó visiblemente del lado de Balor.
+"¡Déjalo en mis cascos!" exclamó decidida Twilight-Dash con la voz de Rainbow. Giró sobre sí misma, y las cadenas que la atrapaban se tensaron aún más. La presión aumentaba visiblemente en el lado de Balor.
 
 [---]
 
-El forcejeo aún continuaba, pero Balor ya no tenía la iniciativa. Si retrocedía ahora, sería alcanzada con rapidez. Había gastado mucha magia en el bosque celeste, una trampa que se suponía que la princesa jamás superaría. Pero lo había hecho. ¿Cómo?
+El forcejeo aún continuaba, pero Balor ya no tenía la iniciativa. Si retrocedía ahora, sería alcanzada con rapidez. Había gastado mucha magia en el bosque celeste, una trampa que se suponía la princesa jamás superaría. Pero lo había hecho. ¿Cómo?
 
-Balor había estudiado a los ponis en general y al círculo de individuos que rodeaba a Twilight. No había registro de algún poni que hubiera despertado la magia floral en algún momento de su historia. Habían ponis que podían hacer crecer plantas con hechizos, pero esto se debía al talento que tenían o al uso tradicional de la magia que conocían. No eran los mismos métodos que usaban en Cunabula. Tampoco en las naciones aliadas a Equestria existían antecedentes similares. Solo en Cunabula aún se mantenía el antiguo arte de la magia floral en su forma más esencial.
+Balor había estudiado a los ponis en general y al círculo de individuos que rodeaba a Twilight. No existía registro alguno de un poni que hubiera despertado la magia floral en algún momento de su historia. Había ponis que podían hacer crecer plantas con hechizos, pero esto se debía a su talento o al uso tradicional de la magia que conocían. No eran los mismos métodos que se usaban en Cunabula. Tampoco en las naciones aliadas a Equestria existían antecedentes similares. Solo en Cunabula se preservaba el antiguo arte de la magia floral en su forma más pura.
 
-Entonces, ¿cómo había logrado la princesa apaciguar el bosque de la eternidad? ¿Había descubierto un método desconocido en tiempo record para lograr comunicarse con él y someterlo?
+Entonces, ¿cómo había logrado la princesa apaciguar el bosque de la eternidad? ¿Había descubierto un método desconocido en tiempo récord para comunicarse con él y someterlo?
 
-Inaudito. Balor se mordía los labios por dentro.
+Inaudito. Balor se mordió los labios por dentro.
 
-Balor había invocado al bosque con su magia. Por eso el bosque la respetaba, ya que respetaba al invocador. Balor podía delegar su honor a otros y el bosque también los respetaría. Pero Balor no podía gobernar el bosque. El bosque tenía voluntad propia y era mágico; solo obedecería a alguien que hablara su misma lengua y usara su misma magia.
+Había invocado al bosque con su magia. Por eso el bosque la respetaba, ya que respetaba al invocador. Balor podía delegar su honor a otros y el bosque también los respetaría. Pero no podía gobernarlo. El bosque tenía voluntad propia y era mágico; solo obedecería a alguien que hablara su misma lengua y usara su misma magia.
 
-Esa persona estaba en Cunabula en ese momento. ¿La princesa también tenía un poder semejante?
+Esa persona estaba en Cunabula en ese momento. ¿Acaso la princesa poseía un poder semejante?
 
-El sudor caía de la frente de Balor mientras sopesaba la posibilidad y apretaba más las cadenas.
+El sudor resbalaba por la frente de Balor mientras sopesaba la posibilidad y apretaba más las cadenas.
 
-"No", se dijo a sí misma Balor. "La princesa debe haber engañado al bosque o haberle dado una ofrenda. Si este bosque ya le obedeciera, esta pelea ya habría acabado".
+"No", se dijo a sí misma. "La princesa debe haber engañado al bosque o haberle ofrecido una ofrenda. Si este bosque ya le obedeciera, esta pelea habría terminado".
 
-El bosque era poderoso. Si fuera Dana su adversario... ridículo, ni siquiera tenía sentido pensar en eso.
+El bosque era poderoso. Si su adversario fuera Dana... ridículo, ni siquiera tenía sentido pensar en eso.
 
-Twilight-Dash comenzó a expandir el agarre de las cadenas. Las garras oscuras que jalaban el alma de Twilight perdían empuje. Balor ya había perdido la mitad de su progreso.
+Mientras tanto, Twilight-Dash comenzó a expandir el agarre de las cadenas. Las garras oscuras que jalaban el alma de Twilight perdían fuerza. Balor ya había perdido la mitad de su progreso.
 
-"¿Qué pasa? ¿Por qué tan callada? Las cosas no van como querías, ¿verdad?" se burló arrogante Twilight-Dash. Ahora ella tenía la iniciativa, su magia estaba intacta y Balor se debilitaba en cada momento. En breve se liberaría e iniciarían el contrataque.
+"¿Qué pasa? ¿Por qué tan callada? Las cosas no van como querías, ¿verdad?" se burló arrogantemente Twilight-Dash. Ahora ella tenía la iniciativa, su magia estaba intacta, y Balor se debilitaba más con cada segundo. En breve se liberaría y comenzaría el contraataque.
 
 Balor la observó con una mezcla de rabia y desesperación.
 
 Para luego sonreírle triunfal...
 
-"Descuida... ¡Ya estoy acostumbrada!" respondió Balor. En ese momento, las cadenas apretaron nuevamente. Twilight-Dash sintió dolor y algo más... Al mirar a sus lados, vio que en su piel comenzaban a surgir grietas. Las grietas brillaban con su luz interior, pero no era solo luz lo que escapaba... ¡Era su magia!
+"Descuida... ¡Ya estoy acostumbrada!" respondió Balor.
 
-"¡No! ¡No! ¡No!" Twilight-Dash repitió desesperada. La fusión había llegado a su límite. Si bien Balor no había podido extraer el alma de Twilight, sí la había mantenido fuera el tiempo suficiente para poder desestabilizar la unión que tenía con Rainbow Dash. También las cadenas, hechas para romper magia, acrecentaban el proceso.
+En ese instante, las cadenas apretaron nuevamente. Twilight-Dash sintió un dolor agudo, pero algo más la alarmó... Al mirar a sus lados, vio que en su piel comenzaban a aparecer grietas. Estas brillaban con su luz interior, pero no era solo luz lo que escapaba... ¡Era su magia!
 
-Twilight-Dash perdía magia rápidamente. Tenía que atacar ahora si quería tener éxito, pero Balor estaba demasiado lejos. El tiempo se acababa.
+"¡No! ¡No! ¡No!" repitió Twilight-Dash con desesperación. La fusión había alcanzado su límite. Aunque Balor no había logrado extraer completamente el alma de Twilight, había mantenido fuera la suficiente cantidad de tiempo para desestabilizar la unión con Rainbow Dash. Además, las cadenas, diseñadas para romper magia, intensificaban el proceso.
 
-Balor presionó más fuerte. Las cadenas hacían bien su trabajo. Solo debía retroceder un poco más y no soltar el alma de Twilight. El tiempo se encargaría del resto.
+Twilight-Dash perdía magia a un ritmo alarmante. Tenía que atacar ahora si quería tener alguna posibilidad de éxito, pero Balor estaba demasiado lejos. El tiempo se agotaba.
 
-Al borde de la catástrofe. Solo un milagro podría salvar a Twilight-Dash.
+Balor presionó con más fuerza. Las cadenas cumplían su propósito. Solo necesitaba retroceder un poco más y no soltar el alma de Twilight. El tiempo haría el resto.
+
+Al borde de la catástrofe, solo un milagro podía salvar a Twilight-Dash.
