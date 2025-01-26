@@ -58,7 +58,7 @@ Con el vuelo más ágil que un Breeze podía hacer en un espacio cerrado, Flutte
 
 Una nueva explosión, muchas veces más grande que la anterior, estalló detrás suyo. La onda de choque la impactó por detrás, empujándola con el mismo viento. Fluttershy se perdió a la deriva en el horizonte, dando un alarido que nadie escuchó.
 
-***
+[---]
 
 "Ahhhhhhhhhhhhh". El espantoso recuerdo de la explosión que había vivido hace poco despertó a la desafortunada Fluttershy. Desorientada, miró a su alrededor...
 
@@ -66,61 +66,71 @@ El bosque celeste la observó una vez más. Esta vez, recibiría una dosis doble
 
 Fluttershy cayó inconsciente otra vez.
 
-***
+[---]
 
 "¡Pummm!" El estruendo de un abrupto impacto despertó a Fluttershy.
 
-La pegaso ladeó la cabeza, más catatónica que consciente. Imágenes irreales la envolvían...
+La pegaso ladeó la cabeza, más catatónica que consciente. Imágenes irreales flotaban a su alrededor, difusas y caóticas...
 
-Había visto a Twilight correr entre los árboles... ¿o era Rainbow Dash? Luego apareció Vainilla con una armadura negra en el cielo... luego volvió a desaparecer.
+Había visto a Twilight correr entre los árboles... ¿o era Rainbow Dash? Luego apareció Vainilla, suspendida en el cielo, con una armadura negra que resplandecía amenazante... y después volvió a desaparecer.
 
-La cabeza de Fluttershy era un completo desorden.
+La mente de Fluttershy era un torbellino desordenado.
 
-Fluttershy intentó ponerse de pie, o eso creyó. Sentía que nadaba... todo era luminiscente...
+Intentó ponerse de pie, pero su cuerpo se sentía pesado, como si estuviera nadando en un líquido luminoso. Todo a su alrededor brillaba con un fulgor irreal, como si estuviera atrapada en un sueño extraño.
 
-"Ja, ja, ja, ja," reía Fluttershy, mientras los árboles celestes parecían bailar al compás de una melodía invisible.
+"Ja, ja, ja, ja", rió Fluttershy, sin siquiera comprender por qué. Los árboles celestes parecían bailar al ritmo de una melodía invisible, moviéndose con gracia hipnótica.
 
-Siguió saltando entre los árboles celestes... los arbustos cantaban tan alegremente...
+Saltaba entre ellos, sus patas apenas tocando el suelo, mientras los arbustos cantaban alegremente, una sinfonía imposible que la rodeaba.
 
-La mente de Fluttershy se perdía aún más en la irrealidad. Era como la casa de Discord... ¿Discord estaba jugando con ella?
+Su mente se sumía más y más en la irrealidad. Era como estar en la casa de Discord... ¿Estaba él jugando con ella?
 
-"¡No es divertido Discord! ¡Si vas a hacer una fiesta sorpresa, deberías traer un buen piano!" protestó Fluttershy, ya no sabía lo que decía. "Así podríamos bailar juntos... una pata para adelante... otra para atrás..."
+"¡No es divertido, Discord! ¡Si vas a hacer una fiesta sorpresa, al menos trae un buen piano!" protestó Fluttershy, sus palabras perdiéndose en el aire sin sentido. "Así podríamos bailar juntos... una pata hacia adelante... otra hacia atrás..."
 
-Fluttershy continuó trotando sin ritmo por donde había visto irse a Twilight...
+Sin dirección ni propósito, Fluttershy trotaba tambaleante hacia donde creyó haber visto a Twilight.
 
-"La, la, la, ... ¿Hu?" Fluttershy finalmente llegó a un claro... y sus ojos vieron una escena terrible.
+"La, la, la... ¿Hu?" Su alegre tarareo se detuvo abruptamente cuando emergió en un claro del bosque.
 
-Alguien que se parecía mucho a Twilight estaba atrapada, siendo estrujada por brutales cadenas negras, al mismo tiempo que unas garras espectrales jalaban parte de su cuerpo, haciendo sobresalir algo semejante a su alma. Del otro lado estaba Vainilla con una sonrisa perversa en su rostro deleitándose de aquel tormento.
+La escena frente a ella le arrebató todo aliento.
 
-Los gritos de agonía en la poni al límite de su vida estremecieron el cuerpo de Fluttershy hasta lo más profundo de su ser.
+Allí estaba alguien que se parecía a Twilight, atrapada y siendo brutalmente estrujada por cadenas negras que parecían vivas. Las garras espectrales jalaban algo que sobresalía de su cuerpo... algo brillante, etéreo, como su propia alma desgarrándose.
 
-Repentinamente, la fuerza interior en la pegaso de melena rosa despertó. Su pelaje se encrispó. Una furia que pocas veces había sentido la llenó completamente. Sus amigas la necesitaban. Era el llamado del destino.
+Frente a esta agonía, se encontraba Vainilla. Su sonrisa perversa destilaba una satisfacción oscura mientras observaba el tormento de la poni.
 
-Un relincho estremeció el ambiente. Sin ningún plan o pensamiento en la cabeza, Fluttershy se lanzó a embestir con todas sus fuerzas a Vainilla.
+Los desgarradores gritos de Twilight llenaron el claro, haciendo que el corazón de Fluttershy se encogiera de dolor. Cada grito era un golpe directo a su alma, llegando hasta lo mas hondo de su ser.
 
-***
+Entonces ... algo profundo se encendió dentro de ella.
 
-Balor escuchó un relincho a sus espaldas y luego sintió algo que se acercaba rápidamente desde atrás. El caos se apoderó de su mente. ¿Aquí? ¿Cómo? ¿Un aliado de la princesa? ¿Un enemigo desconocido? ¿El emisario de la medianoche?
+Una fuerza latente, escondida bajo su naturaleza tímida, despertó con furia. Sus músculos se tensaron y su pelaje se erizó como nunca antes. Por un instante, ya no era la Fluttershy que temía hasta su propia sombra. Era algo más.
 
-Levantó su escudo mágico instintivamente. La presión, que ya soportaba en su interior, creció.
+Era el llamado del destino.
 
-Entonces, una pegaso de melena rosa surgió de uno de sus costados. Con los ojos cerrados, avanzó hacia él embistiendo a toda velocidad. Sin embargo, no hubo impacto; el poni pasó de largo y, en una trayectoria recta, terminó chocando contra un árbol.
+Un relincho cargado de determinación sacudió el ambiente.
 
-Desorientada por el choque, la misteriosa pegaso dio unos pasos atrás delirando hasta caer inconsciente en el suelo.
+Sin un plan, sin estrategia, pero con todo el poder de su corazón, Fluttershy se lanzó hacia Vainilla.
 
-Balor, en una mezcla extraña de conmoción y desconcierto, la reconoció.
+[---]
 
-"¡Fluttershy!" clamó impactada. Este era el nombre de la amiga cercana de la princesa Twilight, portadora del elemento de la amabilidad, pieza única del Árbol de la Armonía que simbolizaba la amistad.
+Balor escuchó un relincho detrás de ella y luego sintió algo que se acercaba rápidamente. El caos se apoderó de su mente. ¿Aquí? ¿Cómo? ¿Un aliado de la princesa? ¿Un enemigo desconocido? ¿El emisario de la medianoche?
 
-La mente de Balor quedó en blanco, sin respuesta lógica o punto de partida para una pregunta que explicara cómo era posible lo que veía. ¡Ceridwen, ante sus propios ojos, había capturado a esa poni! ¡Eso era un hecho irrefutable!
+Levantó su escudo mágico instintivamente. La presión, que ya albergaba en su interior, aumentó de golpe.
 
-Como un tren que caía a un abismo, todo el plan que había urdido en su mente comenzó a destrozarse. Todas las piezas que tenía perfectamente colocadas en sus suposiciones saltaron por los aires. El análisis, los factores que había tomado en cuenta, el tiempo...
+Entonces, una pegaso de melena rosa apareció por uno de sus costados. Con los ojos cerrados, avanzó directo hacia ella, embistiendo a toda velocidad. Sin embargo, no hubo impacto; la pegaso pasó de largo y, en una trayectoria completamente recta, terminó chocando de lleno contra un árbol.
+
+Desorientada por el golpe, la misteriosa pegaso tambaleó unos pasos hacia atrás, murmurando palabras incoherentes, hasta caer inconsciente sobre el suelo.
+
+Balor, atrapada en una mezcla de asombro y desconcierto, la reconoció de inmediato.
+
+"¡Fluttershy!" exclamó, incrédula. Era la amiga cercana de la princesa Twilight, portadora del elemento de la amabilidad, una de las piezas únicas del Árbol de la Armonía que simbolizaban la amistad.
+
+La mente de Balor quedó completamente en blanco, incapaz de formular una pregunta que explicara cómo era posible lo que veía. ¡Ceridwen, ante sus propios ojos, había capturado a esa poni! ¡Era un hecho irrefutable!
+
+Como un tren descarrilando hacia el abismo, todo el plan que Balor había trazado en su mente comenzó a desmoronarse. Las piezas cuidadosamente dispuestas en su análisis saltaron en mil pedazos. Todos los factores que había calculado, el tiempo que había invertido en prever cada movimiento...
 
 La falla era catastrófica.
 
 Finalmente, Balor cometió su primer y único error en la batalla. Parpadeó.
 
-***
+[---]
 
 Rainbow Dash nunca dudó, ni siquiera en ese momento de gran desesperación. Siempre confiaba en que algo o alguien vendría a salvarla. Aunque su fe a veces la llevaba a menospreciar su propia seguridad, y en otras ocasiones había perdido su confianza por trivialidades, cuando se trataba de sus amigas y del destino de Equestria, su lealtad permanecía inquebrantable hasta el final.
 
