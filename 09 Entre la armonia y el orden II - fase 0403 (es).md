@@ -148,7 +148,7 @@ Toda la magia restante en Rainbow Dash se concentró en un solo punto.
 
 Con una última orden a la fusión Twilight-Dash, Rainbow Dash cedió sus últimas fuerzas. Algo simple, directo, definitivo: "Ve con todo."
 
-En ese momento, Rainbow Dash y Twilight se separaron de la fusión, aferrándose con todas sus fuerzas a las cadenas que aprisionaban a Twilight-Dash. El agarre fantasmal se desmoronó como polvo en el aire, y el alma de Twilight, fragmentada pero intacta, regresó a su cuerpo.
+En ese momento, Rainbow Dash y Twilight se separaron de la fusión, aferrándose con todas sus fuerzas a las cadenas que aprisionaban a Twilight-Dash. El agarre fantasmal se desmoronó como polvo en el aire, y el alma de Twilight, estirada pero intacta, regresó a su cuerpo.
 
 Liberada del control de ambas, Twilight-Dash, la fusión, tenía apenas un segundo de existencia antes de desvanecerse. En ese breve instante, convirtió todo su ser en pura luz, lanzándose con toda su fuerza contra el enemigo frente a ella.
 
