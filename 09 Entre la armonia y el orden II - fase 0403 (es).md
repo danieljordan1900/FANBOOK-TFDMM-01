@@ -1,24 +1,24 @@
-Una pequeña mariposa emergió del último vagón del tren de Ponyville a Canterlot. Había estado ocultándose hasta ahora, pero después de presenciar una ardiente tormenta de arena, una espantosa helada de invierno y finalmente sentir el auténtico brillo de la primavera, pensó que era el momento perfecto para salir de su escondite.
+Una pequeña mariposa emergió del último vagón del tren de Ponyville a Canterlot. Había estado escondida hasta ahora, pero después de presenciar una ardiente tormenta de arena, una espantosa helada de invierno y finalmente sentir el auténtico brillo de la primavera, decidió que era el momento perfecto para salir de su escondite.
 
-Era como estar en un sueño. La pequeña mariposa esperanzada salió al exterior, estiró sus cuatro delicadas patas, agitó su esponjosa melena y desenrolló con cuidado sus frágiles antenas. Una dulce brisa y un aroma vivido le dieron la bienvenida.
+Era como estar en un sueño. La pequeña mariposa esperanzada salió al exterior, estiró sus cuatro delicadas patas, agitó su esponjosa melena y desenrolló con cuidado sus frágiles antenas. Una dulce brisa y un aroma vívido le dieron la bienvenida.
 
-Cualquiera que se acercara lo suficiente a la pequeña mariposa entendería que esta no era una mariposa. Era Fluttershy convertida en Breeze.
+Cualquiera que se acercara lo suficiente a la pequeña mariposa entendería que esta no era una mariposa cualquiera. Era Fluttershy convertida en Breeze.
 
-"¡Qué aire tan puro! ¡Qué bosque más bello! ¡Por fin ha terminado esta horrible pesadilla!" exclamó Fluttershy pensando en voz alta con la inocencia de cien niños. Frente a ella, la belleza del radiante bosque parecía invitarla a recorrer sus senderos. Casi parecía escuchar el murmullo de las criaturas bondadosas que esperaban conocerla.
+"¡Qué aire tan puro! ¡Qué bosque más bello! ¡Por fin ha terminado esta horrible pesadilla!", exclamó Fluttershy, pensando en voz alta con la inocencia de cien niños. Frente a ella, la belleza del radiante bosque parecía invitarla a recorrer sus senderos. Casi podía escuchar el murmullo de las criaturas bondadosas que esperaban conocerla.
 
 Entonces, recordó a sus amigas.
 
-"¡Oh, cielos! ¿Qué estoy pensando? Twilight y las chicas de seguro deben haber derrotado a esos terribles villanos y deben estar buscándome. ¡Debo darme prisa y encontrarlas!" exclamó la Breeze Fluttershy convencida de lo que estaba sucediendo y rápidamente revisó su melena.
+"¡Oh, cielos! ¿Qué estoy pensando? Twilight y las chicas seguramente ya derrotaron a esos terribles villanos y deben estar buscándome. ¡Debo darme prisa y encontrarlas!", exclamó la Breeze Fluttershy, convencida de lo que debía hacer. Rápidamente revisó su melena.
 
-Oculta bajo una de sus trenzas, había un bello broche con forma de alas de mariposa con una perla en el centro. Este era un regalo que había recibido de la mismisima Reina Novo después de salvar a los delfines bebé del Monte Aris.
+Oculto bajo una de sus trenzas, había un bello broche con forma de alas de mariposa y una perla en el centro. Este era un regalo que había recibido de la mismísima Reina Novo después de salvar a los delfines bebé del Monte Aris.
 
 La Breeze Fluttershy tomó el broche y lo agitó. La magia de la perla la envolvió, y en un delicado estallido, volvió a ser una pegaso.
 
-Ante sus verdaderos ojos, el mágico mundo que la rodeaba era incluso más hermoso. Maravillada, Fluttershy agitó sus alas, se elevó dando un giro en el aire y dio un gran saludo con los cascos abiertos al idílico bosque celeste que la rodeaba.
+Ante sus propios ojos, el mágico mundo que la rodeaba parecía aún más hermoso. Maravillada, Fluttershy agitó sus alas, se elevó dando un giro en el aire y saludó con los cascos abiertos al idílico bosque celeste que la rodeaba.
 
-El bosque sintió su cálido gesto y de inmediato le respondió... con rabia e ira.
+El bosque sintió su cálido gesto y, de inmediato, le respondió... con rabia e ira.
 
-Fluttershy, en su pasado, había sufrido el acoso de sus compañeros en la escuela inicial de vuelo, una experiencia que ya consideraba horrible en ese entonces. Sin embargo, ahora en el presente, lo que sintió en ese momento no tenía puntos de comparación. Una opresión tan intensa, tan aplastante, que simplemente era demasiado para su delicada y sensible alma.
+Fluttershy, en su pasado, había sufrido el acoso de sus compañeros en la escuela inicial de vuelo, una experiencia que consideraba horrible en aquel entonces. Sin embargo, lo que sintió ahora no tenía punto de comparación. Una opresión tan intensa, tan aplastante, que era demasiado para su delicada y sensible alma.
 
 Bajo la mirada rabiosa de los cientos de árboles celestes, Fluttershy perdió la conciencia en el aire y cayó fulminada al suelo.
 
