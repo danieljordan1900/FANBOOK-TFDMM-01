@@ -132,37 +132,35 @@ Finalmente, Balor cometió su primer y único error en la batalla. Parpadeó.
 
 [---]
 
-Rainbow Dash nunca dudó, ni siquiera en ese momento de gran desesperación. Siempre confiaba en que algo o alguien vendría a salvarla. Aunque su fe a veces la llevaba a menospreciar su propia seguridad, y en otras ocasiones había perdido su confianza por trivialidades, cuando se trataba de sus amigas y del destino de Equestria, su lealtad permanecía inquebrantable hasta el final.
+Rainbow Dash nunca dudaba, ni siquiera en los momentos más desesperados. Siempre confiaba en que algo o alguien vendría a salvarla. Aunque esa fe a veces la llevaba a subestimar su propia seguridad, y en otras ocasiones había tambaleado por trivialidades, cuando se trataba de sus amigas y del destino de Equestria, su lealtad permanecía inquebrantable hasta el final.
 
-Un parpadeo, eso era todo lo que necesitaba.
+Un parpadeo. Eso era todo lo que necesitaba.
 
-Pocos segundos antes, había divisado a Fluttershy emergiendo del bosque a espaldas de Balor. No pudo evitar pensar algo como: "¿Por qué siempre llegas tarde?"
+Instantes antes, había divisado a Fluttershy emergiendo del bosque detrás de Balor. No pudo evitar pensar: "¿Por qué siempre llegas tarde?"
 
-Cuando vio a Fluttershy embestir a su enemigo, su pensamiento cambió a: "¡Eso es Fluttershy! ¡Ve! ¡Salva a Equestria!"
+Cuando vio a Fluttershy lanzarse a embestir al enemigo, su pensamiento cambió: "¡Eso es, Fluttershy! ¡Ve! ¡Salva a Equestria!"
 
-Luego la vio pasar de largo y chocar contra un árbol: "¿En serio? ¡No juegues así conmigo!"
+Sin embargo, al verla pasar de largo y chocar de lleno contra un árbol, su expresión interna se torció: "¿En serio? ¡No me hagas esto ahora!"
 
-Finalmente, cuando Balor comenzó a parpadear: "Bien, eso es todo. Se acabó."
+Pero luego, cuando notó a Balor parpadear, todo se alineó. "Bien, eso es todo. Se acabó."
 
-Toda la magia que quedaba en Rainbow Dash se concentró en un solo punto.
+Toda la magia restante en Rainbow Dash se concentró en un solo punto.
 
-Rainbow Dash cedió sus últimas fuerzas y emitió su última orden a la fusión Twilight-Dash. Algo simple. "Ve con todo."
+Con una última orden a la fusión Twilight-Dash, Rainbow Dash cedió sus últimas fuerzas. Algo simple, directo, definitivo: "Ve con todo."
 
-Rainbow Dash y Twilight se separaron de la fusión, agarrando las cadenas que aprisionaban a Twilight-Dash. El agarre fantasmal se deshizo en el aire, y el alma de Twilight regresó completa a su cuerpo.
+En ese momento, Rainbow Dash y Twilight se separaron de la fusión, aferrándose con todas sus fuerzas a las cadenas que aprisionaban a Twilight-Dash. El agarre fantasmal se desmoronó como polvo en el aire, y el alma de Twilight, fragmentada pero intacta, regresó a su cuerpo.
 
-Twilight-Dash, liberada del dominio de Rainbow Dash y Twilight, solo tendría un segundo de existencia antes de desvanecerse. Convirtió todo su cuerpo en luz y embistió al oponente que estaba frente a ella.
+Liberada del control de ambas, Twilight-Dash, la fusión, tenía apenas un segundo de existencia antes de desvanecerse. En ese breve instante, convirtió todo su ser en pura luz, lanzándose con toda su fuerza contra el enemigo frente a ella.
 
-Como un auténtico rayo arcoíris, la fusión avanzó sin obstáculos, atravesando las defensas de Balor. Lo impactó de frente, arrastrándolo como un proyectil a través de árboles, rocas y el lago... continuó avanzando.
+Como un verdadero rayo arcoíris, la fusión atravesó las defensas de Balor con una intensidad arrolladora. El impacto fue brutal, arrastrándolo como un proyectil a través de árboles, rocas y hasta el lago, sin detenerse ni un milímetro.
 
-En cada milisegundo, la existencia llamada Twilight-Dash siguió avanzando y desintegrándose. Su oponente también se desvanecía.
+Con cada milisegundo, la existencia de Twilight-Dash se desintegraba, difuminándose en el aire. Y con cada momento que pasaba, su oponente también comenzaba a desvanecerse.
 
-Twilight-Dash sonreía. Su conciencia comenzaba a desaparecer.
+A pesar de que su conciencia se apagaba lentamente, Twilight-Dash sonreía. Sentía algo único, algo glorioso. Había cumplido su propósito. Sus amigas estaban a salvo, y eso era todo lo que importaba.
 
-Sin embargo, lo que sentía en lo que quedaba de su conciencia... era glorioso. Su existencia había cumplido su propósito. Sus amigas estaban a salvo. Eso era todo lo que importaba...
+Finalmente, todo desapareció en un haz de luz.
 
-Finalmente, todo se desvaneció en un haz de luz.
-
------------------------------------
+[---]
 
 Lo último que Balor vio al cerrar los ojos fue un destello de luz cegador.
 
@@ -218,147 +216,153 @@ Definitivamente, no lo era.
 
 Las imágenes que reflejaba el estanque encantado mostraban algo que Balor ni nadie de los Caballeros del Orden había previsto.
 
------------------------------------
+[---]
 
-En el bosque celeste, a un lado de un sendero recto marcado en la tierra, tres victoriosas amigas avanzaban juntas.
+En el bosque celeste, a un lado de un sendero recto marcado en la tierra, tres amigas victoriosas avanzaban juntas.
 
-"Jeje, bien hecho, Fluttershy. Así se hace, amiga", aclamaba Rainbow Dash mientras llevaba a Fluttershy en su lomo.
+"Jeje, bien hecho, Fluttershy. Así se hace, amiga", aclamó Rainbow Dash mientras llevaba a Fluttershy en su lomo.
 
-"Gracias, Rainbow... pero ya me siento mejor. Ya puedo caminar", respondió la desorientada Fluttershy.
+"Gracias, Rainbow... pero ya me siento mejor. Puedo caminar", respondió Fluttershy, aún algo desorientada.
 
-"No lo creo, será mejor que descanses. Estuviste expuesta a demasiado estrés mágico", dijo Twilight, que caminaba firme delante de sus amigas, aunque sus ojos mostraban notables ojeras de cansancio.
+"No lo creo. Será mejor que descanses. Estuviste expuesta a demasiado estrés mágico", dijo Twilight, caminando con paso firme delante de sus amigas, aunque las profundas ojeras en sus ojos delataban su cansancio.
 
-Todas se pusieron en marcha poco después de la derrota de Balor. Aunque al principio estaban llenas de felicidad y alegría por la improbable victoria, quedaron desilusionadas al recordar que aún no había terminado.
+Habían reanudado la marcha poco después de la derrota de Balor. Al principio, la euforia por su improbable victoria las llenó de energía, pero esa alegría se desvaneció al recordar que la lucha no había terminado.
 
-Twilight fue quien las hizo volver a la realidad. Los Caballeros del Orden eran sus oponentes y aún estaban allí fuera, indemnes, esperando su momento.
+Twilight las había traído de vuelta a la realidad: los Caballeros del Orden seguían allí fuera, indemnes, esperando su momento.
 
-"Debemos encontrar el cubo de cristal sellador antes que los Caballeros del Orden lo encuentren. Luego nos refugiaremos y liberaremos a nuestras amigas, entonces...", recordó una agotada Twilight al resto de las ponis.
+"Debemos encontrar el cubo de cristal sellador antes que los Caballeros del Orden lo hagan. Luego nos refugiaremos y liberaremos a nuestras amigas. Después..." Twilight se detuvo, agotada, mientras recordaba a las otras ponis la importancia de su misión.
 
-Twilight y Rainbow Dash se recuperaron bastante rápido después del combate. Fluttershy, en cambio, casi no podía hablar. Después de ser cargada varios metros, finalmente recuperó su lucidez y les contó fragmentadamente lo que había pasado.
+Twilight y Rainbow Dash se habían recuperado relativamente rápido tras el combate, pero Fluttershy estaba mucho más afectada. Apenas podía hablar. Tras ser cargada varios metros por Rainbow Dash, finalmente recuperó algo de lucidez y les narró, de manera fragmentada, lo que había ocurrido.
 
-Twilight estaba llena de una multitud de preguntas, pero no tenía tiempo que perder.
+Twilight tenía mil preguntas en mente, pero el tiempo no estaba de su lado.
 
-Encontrar el cristal sellador era de vital importancia. Aún le quedaba algo de magia para realizar otra fusión...
+Encontrar el cristal sellador era crucial. Aún le quedaba algo de magia para realizar otra fusión, si era necesario.
 
-Una brisa fresca recorrió el bosque celeste, la luz de sus hojas se derramaba como lluvia a su alrededor.
+Una brisa fresca recorrió el bosque celeste, haciendo que la luz de las hojas brillantes cayera sobre ellas como lluvia resplandeciente.
 
-Twilight aún podía sentir la magia en los árboles celestes, pero ya no su cólera; ella había desactivado el hechizo que la vinculaba a la naturaleza. Aun así, el bosque no las atacaba, tampoco atacaba a Rainbow Dash ni a Fluttershy.
+Twilight aún podía sentir la magia de los árboles, pero ya no la cólera que antes los había animado. Había desactivado el hechizo que los vinculaba a la naturaleza, y ahora el bosque permanecía en calma. Ya no atacaba ni a ellas ni a Fluttershy.
 
-El bosque estaba en calma. Twilight no entendía por qué. ¿Era porque Balor había sido derrotado o había otra razón?
+El silencio del bosque era extraño. Twilight no podía entender si esa tranquilidad se debía a la derrota de Balor o a alguna otra razón.
 
-Twilight se detuvo un momento. Un sueño repentino la invadió. Sus instintos de poni le urgían a descansar en el verde pasto bajo la sombra de los árboles místicos.
+De pronto, un pesado cansancio invadió a Twilight. Sus instintos de poni le urgían a detenerse, a recostarse sobre el suave pasto verde bajo la sombra de los árboles místicos.
 
-Era como un llamado premonitorio. El cansancio comenzaba a pesar en sus párpados, sus cascos empezaban a pesarle... pero el tiempo era un enemigo implacable. ¡Debían continuar!
+Era como un llamado, una premonición imposible de ignorar. El agotamiento pesaba sobre sus párpados, y sus cascos parecían demasiado pesados. Pero no podía detenerse. ¡El tiempo era su enemigo!
 
-Sin embargo, el bosque susurraba... la melena de Twilight ondeó brevemente con el mismo brillo de las hojas de los árboles celestes.
+Sin embargo, los susurros del bosque eran tentadores. El viento agitó brevemente su melena, haciéndola brillar con el mismo resplandor de las hojas celestes.
 
-"Necesito descansar..." murmuró Twilight. Sin esperar la respuesta de sus amigas, se apartó del camino y se recostó en el frondoso pasto. El contacto de su pelaje con el suelo vivo solo acrecentó su cansancio. Al mirar a su alrededor, observó arbustos de tulipanes dorados y escarlatas que nunca antes había visto, junto con extrañas flores que parecían nubes de rocío multicolor.
+"Necesito descansar...", murmuró Twilight. Sin esperar una respuesta de sus amigas, salió del sendero y se dejó caer sobre el pasto frondoso. El contacto de su pelaje con el suelo, tibio y lleno de vida, solo intensificó su cansancio.
 
-Todo era tan mágico y sobrenatural. Extrañamente familiar... pero vacío.
+Al mirar a su alrededor, vio arbustos de tulipanes dorados y escarlatas que nunca antes había observado, junto con flores extrañas que parecían nubes de rocío multicolor.
 
-No había ningún ruido en aquel bosque, solo el sonido del viento entre la vegetación, era como estar en un desierto...
+Todo era mágico y sobrenatural, pero también inquietantemente vacío.
 
-Repentinamente, su olvidada hambre comenzaba a manifestarse. El pasto bajo ella se veía tan limpio y fresco que ya pensaba en comerlo allí mismo.
+No se oía más que el susurro del viento entre la vegetación. Era como si el bosque fuese un desierto escondido bajo su fulgor místico.
 
-Entonces, no muy lejos de ella, notó un objeto extraño entre las hierbas. Intrigada, se puso de pie y se acercó.
+De repente, un hambre olvidada comenzó a manifestarse en su interior. El pasto bajo ella lucía tan limpio y fresco que casi podía imaginarse comiéndolo ahí mismo.
+
+Fue entonces cuando notó algo extraño entre las hierbas cercanas. Intrigada, se incorporó y se acercó.
 
 Era una alforja.
 
-"¿La alforja de Fluttershy? ¿Cómo llegó aquí?" exclamó Twilight sorprendida, reconociendo de inmediato la colorida alforja de su amiga. Sin dudarlo, la tomó.
+"¿La alforja de Fluttershy? ¿Cómo llegó aquí?" exclamó Twilight, sorprendida. Reconoció de inmediato la colorida alforja de su amiga. Sin dudarlo, la tomó.
 
-En algún momento de su delirante paseo por el bosque, Fluttershy había perdido su alforja. Luego, arrastrada por el fragor de la batalla, la alforja había terminado al lado del recto camino que se había formado cuando Twilight-Dash embistió a Balor al final de su batalla.
+En algún momento, durante el errático y delirante recorrido de Fluttershy por el bosque, la alforja se había perdido. Más tarde, arrastrada por el caos de la batalla, había terminado al lado del sendero recto que había quedado tras el embate final de Twilight-Dash contra Balor.
 
-El sensible olfato de Twilight percibió un aroma muy conocido que emergía de la alforja de Fluttershy. Era un aroma que solo sentía cuando estaba en una biblioteca. Con una curiosidad innata despierta, Twilight abrió la alforja de Fluttershy para ver su contenido...
+El sensible olfato de Twilight percibió un aroma muy conocido que emergía de la alforja de Fluttershy. Era un aroma que solo sentía cuando estaba en una biblioteca. Con su curiosidad innata despertada, Twilight abrió la alforja de Fluttershy para ver su contenido...
 
-"¡Twilight, ven, mira!" el llamado de Rainbow Dash interrumpió a Twilight, que sin pensarlo, se colocó la alforja y partió rauda para darle alcance a Rainbow.
+"¡Twilight, ven, mira!" El llamado de Rainbow Dash interrumpió a Twilight, quien, sin pensarlo, se colocó la alforja y partió rápidamente para alcanzar a Rainbow.
 
-"¿Qué ocurre, Rainbow? ¿Acaso..." Twilight quedó muda junto a su amiga.
+"¿Qué ocurre, Rainbow? ¿Acaso...?" Twilight quedó muda junto a su amiga.
 
 No muy lejos, al lado del camino, un poco más adelante de donde estaban, yacía un cuerpo.
 
 Era Badwhiz.
 
-El mismo poni que hacía horas atrás las había amenazado y luchado contra ellas. Ahora se encontraba en el suelo con la armadura destrozada, sin llevar puesto sus alas o su cuerno. Tampoco se veían rastros de su peligrosa gema.
+El mismo poni que, hacía horas atrás, las había amenazado y luchado contra ellas. Ahora se encontraba en el suelo, con la armadura destrozada, sin sus alas ni su cuerno. Tampoco se veían rastros de su peligrosa gema.
 
-Las tres ponis, de pie, incluyendo a Fluttershy que se había bajado de la espalda de Rainbow Dash, estaban conmocionadas.
+Las tres ponis, de pie, incluida Fluttershy, que se había bajado de la espalda de Rainbow Dash, estaban conmocionadas.
 
-"¡¿No se convirtió en piedra?! ¡¿No dijeron que le lanzaron un arcoíris?!" preguntó la temblorosa Fluttershy, que volvía a ser presa de sus miedos.
+"¡¿No se convirtió en piedra?! ¡¿No dijeron que le lanzaron un arcoíris?!" preguntó Fluttershy, temblorosa, volviendo a ser presa de sus miedos.
 
-"Debe haber rechazado el ataque final en el ultimo momento. Tal vez es más resistente de lo que pensábamos," reflexionó en voz alta Twilight mientras observaba el área donde Twilight-Dash había desaparecido, dejando un cráter notable.
+"Debe haber rechazado el ataque final en el último momento. Tal vez es más resistente de lo que pensábamos", reflexionó en voz alta Twilight mientras observaba el área donde Twilight-Dash había desaparecido, dejando un cráter notable.
 
 "Así que de madera dura, ¿eh?" exclamó Rainbow Dash con un tono entre divertido y desafiante, exhalando fuertemente por la nariz. Sin esperar respuesta, se acercó al cuerpo de Badwhiz.
 
-"Rainbow, ten cuidado, podría ser una trampa," advirtió Twilight con una mezcla de preocupación y cautela ante la temeraria conducta de su amiga.
+"Rainbow, ten cuidado, podría ser una trampa", advirtió Twilight con una mezcla de preocupación y cautela ante la temeraria conducta de su amiga.
 
-"Ummhh," Rainbow Dash se detuvo y pareció pensarlo por un momento. Repentinamente, sin decir una palabra, lanzó una fuerte patada en el estómago de Badwhiz.
+"Ummhh", Rainbow Dash se detuvo y pareció pensarlo por un momento. Repentinamente, sin decir una palabra, lanzó una fuerte patada en el estómago de Badwhiz.
 
 El adolorido Badwhiz rodó por el suelo, soltando un lastimero gemido.
 
-"Bueno, parece que nuestro chico espectáculo solo está tomando un descanso después de que pateamos el trasero de sus amigos," comentó Rainbow Dash, colocando su casco sobre el cuerpo de Badwhiz para indicar a sus amigas que ya no representaba ningún peligro.
+"Bueno, parece que nuestro chico espectáculo solo está tomando un descanso después de que pateamos el trasero de sus amigos", comentó Rainbow Dash, colocando su casco sobre el cuerpo de Badwhiz para indicar a sus amigas que ya no representaba ningún peligro.
 
 Twilight y Fluttershy finalmente pudieron respirar tranquilas.
 
-"Vamos, Fluttershy, necesito ayuda aquí. Vamos a hacer que este tipo confiese todo," ordenó Rainbow Dash. Fluttershy, aunque se resistió inicialmente, después de un apremiante segundo llamado, se apresuró a ponerse al lado de Rainbow Dash para poner de pie al derrotado Badwhiz.
+"Vamos, Fluttershy, necesito ayuda aquí. Vamos a hacer que este tipo confiese todo", ordenó Rainbow Dash. Fluttershy, aunque se resistió inicialmente, después de un apremiante segundo llamado, se apresuró a ponerse al lado de Rainbow Dash para poner de pie al derrotado Badwhiz.
 
 Twilight no quería ser tan dura con el muchacho, pero no tenía más opción que dejar que Rainbow Dash se encargara... se sentía agotada.
 
-"Muy bien, señor Badwhiz. Ahora que 'aún' somos amables, ¿podría por favor decirnos dónde está el cristal en el que tienen encerradas a nuestras amigas?" preguntó Rainbow Dash, alistando sus cascos con un gesto amenazador, como si estuviera a punto de moler manzanas.
+"Muy bien, señor Badwhiz. Ahora que 'aún' somos amables, ¿podría, por favor, decirnos dónde está el cristal en el que tienen encerradas a nuestras amigas?" preguntó Rainbow Dash, alistando sus cascos con un gesto amenazador, como si estuviera a punto de moler manzanas.
 
-"He, Rainbow, creo que él está..." añadió delicadamente Fluttershy, intentando calmar la furia de su amiga.
+"He... Rainbow, creo que él está..." añadió delicadamente Fluttershy, intentando calmar la furia de su amiga.
 
 Y en ese momento, comenzó la tragedia.
 
-La cabeza de Badwhiz, que se balanceaba inconsciente, se desprendió y rodó tranquilamente hasta llegar en frente de Twilight.
+La cabeza de Badwhiz, que se balanceaba inconsciente, se desprendió y rodó lentamente hasta quedar frente a Twilight.
 
-Una mirada fría, llena de odio pero libre de cualquier oscuridad, observó directamente a los ojos de la Princesa de la Amistad. Era la misma mirada que había recibido cuando se conocieron por primera vez a lado del tren.
+Una mirada fría, llena de odio pero carente de oscuridad, la observó fijamente a los ojos de la Princesa de la Amistad. Era la misma mirada que había recibido cuando se conocieron por primera vez, junto al tren.
 
-La agotada mente de Twilight tardó demasiado en entender lo que pasaba. Estaba tan perturbada como sus amigas por lo que estaba sucediendo. Lo que veía ante sus ojos solo podía tener una explicación...
+La mente agotada de Twilight tardó un tiempo en comprender lo que ocurría. Estaba tan perturbada como sus amigas por lo que veía. Lo que estaba sucediendo ante sus ojos solo podía tener una explicación...
 
 Era una trampa.
 
-La cabeza de Badwhiz comenzó a deshacerse en una masa gris y deforme, similar al papel maché. Lo mismo ocurrió con su cuerpo.
+La cabeza de Badwhiz comenzó a deshacerse en una masa gris y deforme, parecida al papel maché. Lo mismo ocurrió con su cuerpo.
 
-Las ponis, incapaces de reaccionar, fueron atacadas. Un potente trueno salió disparado de uno de los árboles, estallando a los pies de Twilight. La explosión resultante hizo volar por los aires a la princesa, que terminó cayendo muy lejos de donde estaban.
+Las ponis, incapaces de reaccionar, fueron atacadas. Un potente trueno estalló desde uno de los árboles, disparándose a los pies de Twilight. La explosión resultante lanzó a la princesa por los aires, y terminó cayendo muy lejos de donde estaban.
 
-Fluttershy y Rainbow Dash se protegieron con sus alas al recibir la onda de choque de la explosión. Aun así, fueron empujadas varios metros atrás.
+Fluttershy y Rainbow Dash se protegieron con sus alas al recibir la onda expansiva de la explosión. A pesar de todo, fueron empujadas varios metros hacia atrás.
 
-Después de rodar por el suelo junto con otros restos de árboles y rodeadas de una espesa nube de polvo, finalmente se detuvieron.
+Tras rodar por el suelo, entre restos de árboles y rodeadas de una espesa nube de polvo, finalmente se detuvieron.
 
-"Cof, cof, ¡Fluttershy, ¿estás bien?" llamó entre el polvo Rainbow Dash a su amiga.
+"Cof, cof, ¡Fluttershy, ¿estás bien?" llamó Rainbow Dash a su amiga, entre el polvo.
 
-"Ahhh, mi cabeza," Fluttershy estaba mareada e intentaba ponerse de pie.
+"Ahhh, mi cabeza..." Fluttershy, mareada, intentaba ponerse de pie.
 
-El polvo se esfumó de repente, y Rainbow Dash se congeló.
+El polvo se disipó de repente, y Rainbow Dash se quedó paralizada.
 
-"¡Aquí estoy! ¿Dónde está Twilight?" dijo la preocupada pegaso de melena rosa, con la vista más clara. Sin embargo, Rainbow Dash no le respondió.
+"¡Aquí estoy! ¿Dónde está Twilight?" dijo la preocupada pegaso de melena rosa, ahora con la vista más clara. Sin embargo, Rainbow Dash no le respondió.
 
-"¿Qué ocurre, Rainbow?" preguntó confundida Fluttershy.
+"¿Qué ocurre, Rainbow?" preguntó Fluttershy, confundida a su amiga frente a ella.
 
-"No lo hagas," respondió Rainbow Dash con furia.
+"No lo hagas," respondió Rainbow Dash, con furia en su voz.
 
-"¿No hacer qué? ¿Hay algo malo?" preguntó Fluttershy, inconsciente del peligro que la acechaba.
+"¿No hacer qué? ¿Hay algo malo?" preguntó Fluttershy, sin ser consciente del peligro inminente.
 
-"¡No te atrevas a hacerlo!" respondió Rainbow Dash con más furia.
+"¡No te atrevas a hacerlo!" respondió Rainbow Dash, aún más furiosa.
 
-Detrás de Fluttershy estaba Badwhiz con el cristal sellador, apuntando directamente al cuello de su amiga.
+Detrás de Fluttershy, se encontraba Badwhiz con el cristal sellador, apuntando directamente al cuello de su amiga.
 
-"Ok," Fluttershy se sentó. Eso fue todo. Fluttershy desapareció, absorbida por el cristal. Badwhiz sonreía con una gema rosada agrietada en su cuello.
+Sin saber lo que pasaba, Fluttershy respondio sentándose: "Ok"
 
-Rainbow Dash había mantenido su calma hasta entonces. Había seguido las órdenes de Twilight. Había sido racional. Una buena poni. Pero por fin había alcanzado su límite.
+Eso fue todo. Fluttershy desapareció, absorbida por el cristal. 
 
-"¡Haaaaaaaaaaaaaaaa!" Rainbow Dash pegó un grito y se lanzó contra su oponente, llena de toda la furia que podía caber en ella. Con toda la fuerza que le quedaba, voló hacia Badwhiz a toda velocidad y, de una patada, hizo volar muy lejos el cristal sellador que tenía en su casco izquierdo. Luego, con otro ataque, dirigió una patada hacia su cabeza.
+En su lugar solo quedo Badwhiz, quien sonreía, con una gema rosada agrietada en su cuello.
 
-No fue suficiente. El escudo magico de Badwhiz se activó en el último momento y resistió el golpe que lo habría dejado inconsciente.
+Rainbow Dash había logrado mantener la calma hasta ese momento. Había seguido las órdenes de Twilight, había sido racional, había sido una buena poni. Pero finalmente había alcanzado su límite.
 
-El contraataque comenzaba.
+"¡Haaaaaaaaaaaaaaaa!" Rainbow Dash gritó, lanzándose contra su oponente. Llena de toda la furia que podía caber en ella. Con las pocas fuerza que le quedaba, voló hacia Badwhiz a toda velocidad y, de una patada, hizo volar muy lejos el cristal sellador que tenía en su casco izquierdo. Luego, con otro ataque, dirigió una patada hacia su cabeza.
+
+No fue suficiente. El escudo mágico de Badwhiz se activó en el último momento, resistiendo el golpe que lo habría dejado inconsciente.
+
+El contraataque comenzó.
 
 Badwhiz disparó un rayo tan grueso como un árbol, que por poco impactó en Rainbow Dash.
 
-La pegaso, aun con su velocidad reducida por el cansancio, no se desanimó y continuó atacando la barrera de Badwhiz desde otros ángulos.
+La pegaso, aunque su velocidad se veía reducida por el cansancio, no se desanimó y continuó atacando la barrera de Badwhiz desde otros ángulos.
 
-Badwhiz continuó lanzando más truenos...
+Badwhiz siguió lanzando más truenos...
 
-***
+[---]
 
 Twilight abrió los ojos, sintiendo los truenos resonar en la cercanía. El rastro de una nueva batalla se desplegaba frente a ella. Con cansancio palpable, se incorporó y examinó el campo de enfrentamiento.
 
@@ -398,7 +402,7 @@ Una visión terrible de destrucción.
 
 El sentimiento de fatalidad impregnó el aire mientras el inexorable final se acercaba.
 
------------------------------------
+[---]
 
 Cuando el armonia y la orden fallan ...
 
@@ -406,7 +410,7 @@ El caos y la destruccion se hacen presentes ... luego ... la oscuridad ...
 
 Nadie deberia de llegar tan lejos ...
 
------------------------------------
+[---]
 
 La expansión de la explosión mágica arrastraba consigo todo a su paso: piedras, árboles, fragmentos del tren e incluso la esencia misma del viento. Twilight, impotente, se aferraba a una gran roca mientras la marea de energía avanzaba inexorablemente.
 
@@ -432,7 +436,7 @@ El estruendo se intensificó, el suelo comenzaba a deslizarse. Más abajo, un su
 
 No pudo leer más. Una luz veló su vista y una cálida sensación la envolvió. Finalmente, Twilight fue absorbida por la explosión y desapareció de este mundo.
 
------------------------------------
+[---]
 
 Dentro de la sala de guerra, las paredes gemían, cediendo ante la furia desatada. Las grietas serpenteadas comenzaban a desgarrar la integridad de la habitación. El estanque encantado, en un frenesí mágico, hervía con intensidad, reflejando el caos y la destrucción que se desencadenaban dentro de la gran barrera.
 
@@ -440,7 +444,7 @@ Los Caballeros del Orden, conscientes de la gravedad de la situación, habían e
 
 No obstante, en medio de la agitación, un Caballero se mantenía imperturbable. Sentada fuera del perímetro formado por sus compañeros, Balor observaba con calma el epicentro del estanque encantado, ahora envuelto en la tétrica luz de la incontenible explosión que consumía cada rincón de la sala. Su rostro apenas reflejaba emoción, iluminado por el resplandor ominoso de la tragedia que se desplegaba ante ellos.
 
------------------------------------
+[---]
 
 El viento persistía en su aullido desgarrador. Los árboles, escasos y desahuciados, se convertían en polvo ante la vorágine. Toda presencia de agua se había desvanecido, y la tierra se desmoronaba, deslizándose hacia un horizonte inmaculado. La explosión, alimentada por las potentes fuerzas mágicas desencadenadas, crecía a un ritmo frenético. Había devorado implacablemente un tercio del espacio dentro de la gran barrera y seguía sin mostrar indicios de frenar.
 
@@ -456,7 +460,7 @@ La terrible explosión que había asolado el interior de la gran barrera desapar
 
 La naturaleza recuperó su aliento en un sosiego reparador.
 
------------------------------------
+[---]
 
 Las puertas del último vagón del tren de Ponyville a Canterlot se abrieron finalmente. Tras llegar a su destino, los Caballeros del Orden emergieron del vagón destrozado, lejos de la terrible explosión que había devastado el lugar momentos antes.
 
@@ -482,7 +486,7 @@ Incrédula, Balor sostuvo el cristal. Después de dar explicaciones y responder 
 
 El exhaustivo examen de Balor duró dos horas, y sorprendentemente todos los resultados eran consistentes. El cristal estaba en perfecto estado y contenía la magia necesaria para continuar con la segunda fase.
 
-A regañadientes, Balor salió del vagón. Sus compañeros la rodearon de inmediato, esperando una respuesta. Balor no deseaba admitirlo, pero su deber la obligaba.
+A regañadientes consigo misma, Balor salió del vagón. Sus compañeros la rodearon de inmediato, esperando una respuesta. Balor no deseaba admitirlo, pero su deber la obligaba.
 
 "La operación 'Estación de Medianoche' ha concluido. La misión ha sido completada", proclamó Balor con una voz marcial que resonó en todo el desolado lugar.
 

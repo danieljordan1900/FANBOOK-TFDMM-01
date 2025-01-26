@@ -7,7 +7,7 @@ Los Caballeros del Orden, en su valiente misión por preservar la paz y la estab
 
 Esta acusación se hace pública con el fin de poner de manifiesto la gravedad de la situación y la necesidad de tomar medidas inmediatas para contrarrestar esta amenaza. La estabilidad y la convivencia pacífica entre las razas de nuestro mundo están en juego.
 
----------------------------------------
+[---]
 
 Balor terminó de leer un pergamino que había llegado a su buzón en Cunabula.
 
@@ -29,13 +29,15 @@ Ante la ausencia de más protestas, Mannah decidió continuar.
 
 "Tengo plena confianza en él. Ya recibió mis órdenes. Si no regresamos a Cunabula antes de la medianoche de hoy, entregará todo directamente a tu hermano. El concilio se encargará del resto", respondió Balor con confianza.
 
+Asi en medio la conversacion otra voz se escucho.
+
 "Um, Sub-líder Mannah, ¿me permite hacer una consulta?" preguntó Taranis de repente, llamando la atención del grupo.
 
 Balor y Mannah se miraron entre ellos, pero Balor apartó la mirada rápidamente. Mannah pudo responder: "¿Qué ocurre, Taranis?"
 
-El ofiotauro tragó saliva y prosiguió: "¿Cómo planea explicar la participación de Badwhiz al final de la batalla contra la princesa y sus aliadas?" dijo Taranis con una expresión tan seria que dejo sorprendidos al resto de sus compañeros.
+El ofiotauro tragó saliva y prosiguió: "¿Cómo planea explicar la participación de Badwhiz Starheart al final de la batalla contra la princesa y sus aliadas?" cuestiono Taranis con una expresión tan seria que puso en alerta al resto de sus compañeros.
 
-Un silencio se cernió sobre la cima de la colina donde estaban.
+Un silencio frio se cernió sobre la cima de la colina donde estaban.
 
 "Es una buena pregunta, Taranis", pensó Balor para sí misma mientras reflexionaba sobre la situación.
 
@@ -43,17 +45,17 @@ Luego de declarar la operación como terminada, se llevó a cabo una votación a
 
 "Badwhiz..." era el nombre que todos tenían en mente. Era un tema delicado.
 
-La operación "Estación de Medianoche" estaba destinada a reafirmar el poder de los Caballeros del Orden. Consistía en encerrar a la princesa y obligarla a luchar contra diversos esbirros bajo el control de los caballeros. Oleada tras oleada de enemigos, la princesa perdería gradualmente fuerza hasta finalmente capitular. Entonces, los Caballeros del Orden saldrían de su escondite y la forzarían a admitir la culpa por haber activado los Árboles de la Armonía y las terribles consecuencias de estas acciones. Acto seguido, su magia sería confiscada y llevada como prisionera a Cunabula, donde sería enjuiciada por sus crímenes y encerrada para siempre.
+La operación "Estación de Medianoche" planteada forzosamente por Balor y apoyada por sus compañeros la noche anterior, estaba destinada a reafirmar el poder de los Caballeros del Orden y justificar su ausencia del reino de Cunabula al enfrentarse a un enemigo sumamente dificil. Planificada para ser mas un proceso que una accion determinante, consistía en encerrar a la princesa y obligarla a luchar contra diversos esbirros bajo el control de los caballeros. Oleada tras oleada de enemigos, la princesa perdería gradualmente fuerza hasta finalmente encontrarse en un posicion de capitular. Entonces, los Caballeros del Orden saldrían de su escondite, la derrotarian y la forzarían a admitir la culpa por haber activado los Árboles de la Armonía y las terribles consecuencias de estas acciones. Acto seguido, su magia sería confiscada y llevada como prisionera a Cunabula, donde sería enjuiciada por sus crímenes y encerrada para siempre.
 
-Por supuesto, este plan era demasiado optimista, un sueño despierto. Balor lo sabía y no estaba de acuerdo. Sin embargo, dado el historial de la princesa de evitar el combate, sus compañeros confiaban en que este escenario era posible. En el peor de los casos, tenían el Blazón de la Unidad como última muralla infranqueable que la princesa jamás superaría.
+Por supuesto, este plan era demasiado optimista, un sueño despierto. Balor sabía de los riesgos y no estaba de acuerdo con los cambios que Mannah y el resto terminaron añadiendo al plan original. Sin embargo, dado el historial de la princesa de evitar el combate, cabia la posibilidad que este escenario fuera posible. En el peor de los casos, contaba con el Blazón de la Unidad como última muralla infranqueable que la princesa jamás superaría.
 
 Pero al final, la situación se descontroló por completo.
 
-La respuesta de la princesa al encierro fue desmesurada. A pesar de haber colocado al terrible Gallodragón Titanicus como guardián de su base de operaciones dentro del tren secuestrado, la princesa derrotó con facilidad a los dos esbirros más importantes que tenían dentro del escenario que habían preparado. Ante la grave amenaza que representaba esta situación para la misión, se decidió utilizar el Cubo de Cristal Sellador y el Cristal de Posesión Directa sobre el agente encubierto Badwhiz.
+La respuesta de la princesa al encierro fue desmesurada. A pesar de haber colocado al terrible Gallodragón Titanicus como guardián de su base de operaciones dentro del tren secuestrado, la princesa derrotó con facilidad a la bestia que se suponia que seria el esbirro mas fuerte dentro del escenario que habían preparado. Ante la grave amenaza que representaba esta situación para la misión, se decidió utilizar el Cubo de Cristal Sellador y el Cristal de Posesión Directa sobre el agente encubierto Badwhiz.
 
 Badwhiz estaba destinado a ser un comodín encubierto en el campo de batalla, limitándose a observar y tomar muestras de los cambios que ocurrieran. En otras palabras, era simplemente una herramienta más en el plan.
 
-Al final, Badwhiz terminó tomando una parte activa en el conflicto y sacrificándose por Cunabula, a pesar de ser un extranjero. No quedó rastro de el, ni de la princesa, aunque algunas de sus amigas estaban dentro del Cubo de Cristal Sellador. Ninguna de ellas tenía suficiente peso para un juicio.
+Al final, simple Badwhiz un poni terrestre de Equestria, terminó tomando una parte activa en el conflicto y sacrificándose por Cunabula, a pesar de ser un extranjero. No quedó rastro de el, ni de la princesa y sus aliadas, aunque algunas de sus compañeras estaban dentro del Cubo de Cristal Sellador. Ninguna de ellas tenía suficiente peso para un juicio.
 
 Balor pensó para sí misma, "Se cometieron demasiados errores, ¿Qué tienes que decir al respecto, Gran Sub-lider Mannah?"
 
@@ -77,7 +79,7 @@ Balor se contuvo la risa, aunque en realidad le hubiera gustado hacerlo. Había 
 
 Al mirar al resto de sus compañeros, notó expresiones mixtas en sus rostros.
 
-"No necesito leer mentes para saber en qué están pensando... 'políticos'", meneó la cabeza Balor en su mente.
+"No necesito leer mentes para saber en qué están pensando... 'políticos'", meneó la cabeza Balor en su interior.
 
 Finalmente, Balor decidió hablar.
 
@@ -91,7 +93,7 @@ Después de unos minutos escribiendo la carta, se la entregó a Balor sin más d
 
 "Un cristal de memoria tiene más validez en un juicio que una carta escrita, que podría falsificarse. Qué conveniente...", murmuró Balor en su interior.
 
----------------------------------------
+[---]
 
 Balor acababa de teletransportarse, dejando atrás a sus compañeros en la cima de la colina mientras la Gran Barrera comenzaba a deshacerse.
 
@@ -121,13 +123,13 @@ Con la misma trayectoria de cuatro flechas mortales se diriguieron a toda veloci
 
 La venganza de los caballeros del orden apenas habia comenzado.
 
----------------------------------------
+[---]
 
 Dentro de una madriguera de conejos que se veia extrañamente sofisticada. El menor de la familia habia traido algo que encontro afuera. Sus padres, que aun estaban confundidos de porque su casa habia cambiado tanto en unos segundos, observaron curiosos el descubrimiento de su 24avo hijo.
 
 Era un libro muy dañado con grabados de plantas y flores ... habia una luz purpura misteriosa que emergia de sus cerradas paginas.
 
----------------------------------------
+[---]
 
 Balor, de regreso en el Tartaro, apagó las proyecciones holográficas que había encontrado en el rosario de cristales de Twilight y sus amigas.
 
@@ -169,7 +171,7 @@ Lágrimas comenzaron a asomar en el rostro de Balor al recordar ese oscuro día.
 
 Nuevamente, la gran mente de Balor se enfocó en la misión.
 
-Sus compañeros estaban en camino a una misión suicida. Realmente dudaba que Mannah y los demás fueran capaces de llevar a cabo la segunda fase del plan. Tenían suficiente ira, pero ¿tenían la determinación para soportar la tribulación que causarían?
+Sus compañeros estaban en camino a una misión suicida. Realmente dudaba que Mannah y los demás fueran capaces de llevar a cabo la segunda fase del plan con exito. Tenían suficiente ira, pero ¿tenían la determinación para soportar la tribulación que causarían?
 
 "¿Realmente Mannah seguiría el plan o tenía otra agenda?" Pensó Balor. Ya no podía hacerse cargo de ellos. Habían elegido su camino, ella había elegido el suyo.
 
