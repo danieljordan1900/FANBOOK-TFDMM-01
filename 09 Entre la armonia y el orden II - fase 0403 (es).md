@@ -132,7 +132,7 @@ Finalmente, Balor cometió su primer y único error en la batalla. Parpadeó.
 
 [---]
 
-Rainbow Dash nunca dudaba, ni siquiera en los momentos más desesperados. Siempre confiaba en que algo o alguien vendría a salvarla. Aunque esa fe a veces la llevaba a subestimar su propia seguridad, y en otras ocasiones había tambaleado por trivialidades, cuando se trataba de sus amigas y del destino de Equestria, su lealtad permanecía inquebrantable hasta el final.
+Rainbow Dash nunca dudaba, ni siquiera en los momentos más desesperados. Siempre confiaba en que algo o alguien cambiaria la situacion. Aunque esa fe a veces la llevaba a subestimar su propia seguridad, y en otras ocasiones había tambaleado por trivialidades, cuando se trataba de sus amigas y del destino de Equestria, su lealtad permanecía inquebrantable hasta el final.
 
 Un parpadeo. Eso era todo lo que necesitaba.
 
