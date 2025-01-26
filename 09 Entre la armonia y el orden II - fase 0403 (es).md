@@ -22,7 +22,7 @@ Fluttershy, en su pasado, había sufrido el acoso de sus compañeros en la escue
 
 Bajo la mirada rabiosa de los cientos de árboles celestes, Fluttershy perdió la conciencia en el aire y cayó fulminada al suelo.
 
-***
+[---]
 
 "¿Tanto cuidado solo por un libro? ¡Quédate con tu tonto libro!" exclamó Magi después de rebuscar en la alforja de Fluttershy. Lo había hecho esperando encontrar algo de valor, pero una vez más, solo había hallado decepción. Molesta, metió el libro nuevamente en la alforja y lo tiró junto a la amarrada Fluttershy, quien forcejeaba por escapar del armario de limpieza.
 
