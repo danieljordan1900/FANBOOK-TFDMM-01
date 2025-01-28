@@ -55,7 +55,7 @@ La respuesta de la princesa al encierro fue desmesurada. A pesar de haber coloca
 
 Badwhiz estaba destinado a ser un comodín encubierto en el campo de batalla, limitándose a observar y tomar muestras de los cambios que ocurrieran. En otras palabras, era simplemente una herramienta más en el plan.
 
-Al final, simple Badwhiz un poni terrestre de Equestria, terminó tomando una parte activa en el conflicto y sacrificándose por Cunabula, a pesar de ser un extranjero. No quedó rastro de el, ni de la princesa y sus aliadas, aunque algunas de sus compañeras estaban dentro del Cubo de Cristal Sellador. Ninguna de ellas tenía suficiente peso para un juicio.
+Al final, Badwhiz, un simple poni terrestre de Equestria, terminó tomando una parte activa en el conflicto y sacrificándose por Cunabula, a pesar de ser un extranjero. No quedó rastro de el, ni de la princesa y sus aliadas, aunque algunas de sus compañeras estaban dentro del Cubo de Cristal Sellador. Ninguna de ellas tenía suficiente peso para un juicio.
 
 Balor pensó para sí misma, "Se cometieron demasiados errores, ¿Qué tienes que decir al respecto, Gran Sub-lider Mannah?"
 
