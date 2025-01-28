@@ -16,6 +16,8 @@
     ->  Respeta los nombres y términos específicos de la obra original.
     ->  Por favor respeta el uso de comillas dobles "" no las reemplaces.
     ->  Por favor tomate tu tiempo para revisar el texto paso a paso.
+    ->  Se menciona el personaje "Gallo Dragón Titanicus" el cual traducido al ingles es "Cocatriz Titanicus"
+    ->  El personaje Balor tiene un genero femenino
 ]
 
 tan hermosa como una estrella en una noche gris, 
