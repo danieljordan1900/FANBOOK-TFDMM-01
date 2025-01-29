@@ -177,7 +177,7 @@ Una terrible ola, tan alta como dos establos, se aproximaba como un muro negro, 
 
 Applejack cerró la puerta y cerró los ojos, abrazando a sus amigas mientras se preparaban para lo que fuera que sucediera.
 
-...
+[---]
 
 Un silbido. Nada más.
 
@@ -187,7 +187,7 @@ Más silencio, y el tambor seguía resonando.
 
 Todo oscuro. Ella abre los ojos, pero todo sigue oscuro. El tambor aún resuena, aunque ahora parece lejano...
 
-...
+[---]
 
 Applejack siente cómo su corazón se calma poco a poco. Había esperado escuchar un estruendo, un golpe sordo, algo similar a la embestida de un toro. Ella sabía de esas cosas. Pero no sintió nada.
 
@@ -209,7 +209,7 @@ Applejack siente miedo, un miedo real, profundo. No estaba lista. No lo está. N
 
 Entonces, una fuerza irresistible la jala hacia afuera, alejándola de todo lo que conocía.
 
-...
+[---]
 
 Dentro de uno de los vagones médicos del tren, en una blanca cama, una desorientada Applejack miró a su alrededor. Allí estaban Pinkie Pie, Rarity y Fluttershy, totalmente sanas e íntegras, con expresiones de felicidad.
 
