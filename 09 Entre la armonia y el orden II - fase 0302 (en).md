@@ -443,3 +443,206 @@ Without saying another word, she stood up and headed toward the door leading to 
 "I know it's not much, but... would you like an autograph from the Averages team?"
 
 [---]
+
+"All set! A full set of friendship crystals completed!" Pinkie Pie proclaimed excitedly, linking the last crystal into its respective rosary.
+
+"Twilight is going to be so surprised when she sees these beautiful crystals shining with our glow," added Rarity radiantly, inspecting the six enchanted crystals with the light of her horn.
+
+"Well, I have to admit, they do look impressive now that they’re complete. All that’s left is explaining to Magi how they work. I hope she takes it well," said Applejack, adjusting her hat.
+
+Then, there was a knock on the train car door.
+
+"Hello? Am I interrupting?" came Fluttershy’s voice from the other side.
+
+"Of course not, dear Fluttershy," Rarity replied, opening the door with her magic and allowing their friend inside.
+
+"Did something happen?" Applejack asked, noticing the concern on Fluttershy’s face.
+
+"Well, it's just that I had an idea that might help you enchant the crystals faster. I know I haven’t been much help, but at least let me explain what I have in mind," the timid pegasus responded.
+
+"Huh? We’d never think that, sugarcube. You’re one of the most important among us, and you’ve certainly proven that today," said Applejack, placing a hoof on her shoulder. At her sides, Pinkie Pie and Rarity added similar words of encouragement.
+
+"Oh, thank you, girls. That means a lot to me."
+
+"Well, if that makes you happy, this will make you even happier!" Pinkie Pie exclaimed, bouncing up to reveal the six enchanted gems.
+
+"Wow," Fluttershy was awestruck by the glow of the newly finished gems.
+
+"Touch them and feel the perfection, darling," added Rarity, guiding Fluttershy’s hooves toward the rosary of gems.
+
+"This is wonderful! You really finished them! Yessss!" Fluttershy cheered, giving an excited flutter, confident that everything would go smoothly from that moment on.
+
+"So… about that, there’s something we need to discuss," Applejack interrupted, looking at the others.
+
+That’s when a sudden chill ran through all of them. A disturbing cold, accompanied by a hostile presence, filled the train car. Fluttershy froze, her gaze fixed on something behind Applejack. Rarity and Pinkie Pie felt it too. Though they didn’t look at each other, they all knew exactly who was there.
+
+For Applejack, everything was clear as day. Yet, strangely, she felt calm. She knew that with just one word, everything would end.
+
+She took one last look at Fluttershy. She noticed a detail she had overlooked before: Fluttershy seemed to have adjusted her mane again.
+
+But that little detail could wait. The important thing was what she was about to do next.
+
+"VANILLA!" Applejack shouted, spinning around just before a bolt of magic struck her squarely.
+
+Beside her, her two friends met the same fate.
+
+As Applejack faded into a blinding flash, one last thought crossed her mind.
+
+Sacrificing herself to protect another pony had been the source of many nightmares when she was a filly. That fear had haunted her for years, making her believe that such an act was the most foolish thing she could ever do in her life. Now, however, the feeling that enveloped her was entirely different.
+
+A soft smile of peace appeared on Applejack’s face before she vanished.
+
+[---]
+
+"Little rat, you won’t get far..." Ceridwen murmured as she watched the doors of the room close.
+
+The pink-maned pegasus had skillfully dodged the magical attack that would have trapped both her and her friends. Though the other three had fallen into the ambush, now Ceridwen would have to hunt down that pony.
+
+Frowning, she assessed the situation. She couldn't allow her to escape; that pegasus had in her hooves crystals that glowed with a unique magical light. A weapon, no doubt. And if they reached the princess’s hooves, they could endanger the entire mission.
+
+"You won’t escape."
+
+Without wasting time, Ceridwen blasted the door open with her magic and entered the waiting room. To her surprise, it was empty. It was perplexing. She hadn’t sensed the pegasus leaving the carriage nor detected any signs of teleportation. Moreover, the magical gem she carried should have prevented any attempt at advanced magical escape.
+
+And yet, there was no one there.
+
+Another illusion?
+
+Ceridwen recalled what Balor had explained about the carriage where the ponies had taken refuge. It was protected by an illusion so powerful that it prevented direct detection. Unlike invisibility, this illusion clouded the mind, stopping individuals from recognizing the hidden object. They could see it, even interact with it, but their senses would simply ignore it or mistake it for something else. It was a magic so complex that it affected all five senses and interfered with magical detection techniques.
+
+But no magic is perfect.
+
+An illusion is still an illusion, and eventually, reality finds a way to break through it.
+
+That was when Ceridwen noticed something. The reflection of the enchanted carriage was visible in the water pooled on the floor, even though she couldn’t see it directly. A simple rule of reality that the illusion had failed to bypass had betrayed it.
+
+How was it possible that these ponies had access to such magic? She didn’t know, but one thing was clear—Balor was right: they needed to be captured immediately or, if they resisted, eliminated without hesitation.
+
+Ceridwen cast a counterspell around her. Now that she understood how this trick worked, she was sure she wouldn’t be fooled again.
+
+A wave of light emanated from the pony she controlled, expanding throughout the room.
+
+Soon, the hidden objects began to reveal themselves one by one. Ceridwen swallowed hard.
+
+Dozens of explosive crates appeared, attached to the walls, under the seats, and even on the ceiling. At that moment, the sound of a timer became audible, echoing with an unrelenting rhythm.
+
+"Crud," Ceridwen thought before the entire place was engulfed in a tremendous explosion.
+
+[---]
+
+Fluttershy swam gently in the lake, hidden beneath a suitcase. Around her floated more suitcases, bags, and remnants of luggage, along with shattered parts of the train drifting on the water's calm surface, where the railway tracks once stood.
+
+As she moved forward, some fragments collided with each other or sank with a soft splash. Fluttershy remained alert. With calculated and silent movements, she distanced herself from the center of the lake. Behind her, the traces of the massive explosion that had destroyed the medical carriage were still visible: a column of black smoke slowly ascended, darkening the sky.
+
+Several minutes had passed since the attack, and there were no signs of enemy movement. Taking advantage of the calm, Fluttershy continued toward the other shore. Her goal was to reach the rocky mounds bordering the lake and, from there, slip into the dense forest surrounding the Great Barrier to the south.
+
+Even so, even as she swam, her gaze constantly returned to the site of the explosion.
+
+In her hooves, she held the gems her friends had entrusted to her. Tears rolled down her face as she remembered the sacrifices those ponies had made for her.
+
+"They were truly good friends," she murmured, pausing for a moment to observe the smoke rising from the charred medical carriage.
+
+However, something else began to surface on the pegasus' face. The tears continued to flow, but they no longer seemed to be caused by sadness—quite the opposite. Fluttershy started to laugh softly, a dark and unsettling chuckle that would have shocked anyone who knew her usual kindness.
+
+Because, in reality, she was not Fluttershy.
+
+She was Magazin Doublereport.
+
+The real Fluttershy would have wept inconsolably for the loss of her friends. But Magi did not share those feelings. To her, friendship was nothing more than a useful label, a concept she could wield to charm and manipulate those around her. The only thing that had changed after recent events was her perspective: she now saw friendship as an even more powerful tool.
+
+("If friendship is about others sacrificing themselves for you, then I have many friends back home, hee hee hee"), she thought amusedly as she continued swimming toward the shore.
+
+Magi was elated. Though she had faced a considerable setback, she now had everything she needed to continue her plan.
+
+In her hooves was the princess's legacy: a powerful magical amulet that would undoubtedly grant her the strength necessary to escape from this "cage of doom." If all else failed, she could always use the amulet’s magic to fake her own death and hide until the danger passed.
+
+Initially, her plan had been to remain hidden and avoid drawing attention ever since they were intercepted by Badwhiz. But when the Great Barrier was raised, everything changed. A very bad feeling overtook her, and she decided to consult the most powerful magical amulets in her possession.
+
+These were:
+
+The Memory Stone, a lesser copy she had acquired at an auction.
+
+The Imagination Stone, stolen from a museum during her teenage years.
+
+The Vision Stone, a legacy from the only pony she had ever respected and admired.
+
+Combined, these stones held the power to reveal the near future with 90% accuracy and the distant future with 50%. Although the future was not set in stone, Magi knew how to manipulate it to her advantage.
+
+With practice and patience, she had learned to master the stones, using them to stay ahead of her competitors and build her commercial empire. Her success had been galloping, but so had her overconfidence, which eventually turned into arrogance. Over time, she stopped using the stones, relying solely on her intuition, except in cases of doubt or emergency.
+
+Today, however, she had broken that confidence.
+
+The vision the stones had shown her was so terrifying that it made every feather on her body tremble.
+
+It was nothing more than a blank image. Just that.
+
+Magi refused to accept it. She would not accept it. That vision, which she had once witnessed in a dark chapter of her past, meant only one thing:
+
+Her life would end that day.
+
+Desperate, she used all her skills to explore other possible scenarios, but the result was always the same. Only one possibility, among an infinite number of futures, gave her a remote and improbable chance to extend her fate. However, the image that appeared in that vision left her bewildered.
+
+In it, Fluttershy, the princess’s friend, held a striking rosary adorned with colorful gems.
+
+At first, she didn’t understand its significance. It was only later, while invisibly lurking around the train in search of answers, that everything clicked. In an unguarded moment, she saw Twilight handing that very same rosary to Fluttershy.
+
+Everything became clear to her at that moment. If she wanted to survive, she had to get those crystals. Her life depended on it.
+
+Step by step, she crafted her plan to obtain them. She deceived the princess’s friends, manipulating them to complete the set of gems. Then, she captured Fluttershy and locked her inside the medical car’s cleaning locker. Finally, she took on the appearance of the pegasus and got close enough to the ponies to seize the rosary.
+
+All of this happened just before the enemy caught up with them.
+
+That’s why she now cried tears of joy upon reaching the lake’s shore. Once again, she had cheated fate. She felt as if she had been born anew.
+
+The fears that had haunted her all afternoon since the beginning of the entrapment faded away, and arrogance, that old companion, returned to take control of her thoughts.
+
+("Haaa... They really gave me a hard time, but now Magi is back!") she thought, looking at the lake’s interior with satisfaction. Invisible thanks to one of her magical artifacts, she wiped her tears with her wings, still maintaining Fluttershy’s form.
+
+From a distance, the lake seemed calm. The wreckage of the train still floated, and there were no signs of movement. Even her spy birds confirmed that the enemy wasn’t moving.
+
+Despite the growing sense of calm, something continued to unsettle her: the Knights of Order.
+
+("They must have noticed the reflection of the car in the water... and to think they’d do it with this light,") she thought, glancing up at the oval-shaped sky above her.
+
+The sky, illuminated by a white light from all directions, lacked a sun. The shadows of the trees and rocks were diffuse, but the reflection in the water was still clear enough to betray objects near the surface.
+
+That natural illusion had ruined her attempt to hide the medical car. Though Magi was aware of that flaw, she didn’t possess a magical artifact capable of making such a large object invisible. Because of that, she had no choice but to rely on the princess’s friends and her own luck to avoid being discovered too soon.
+
+("Well... I’ve had enough of these guys. I can imagine what they’re planning, so I’d better keep a low profile until they’re done with their agenda.")
+
+Magi understood perfectly that capturing or destroying the princess and her friends was only the first step for the Knights of Order. Next, their plan would involve attacking the capital, the rest of Equestria, and the other kingdoms. Everything pointed to their ultimate goal being the elimination of any possible threat to their mysterious homeland.
+
+For a moment, she considered the possibility of negotiating with them, but her instincts warned her that it would be a fatal mistake. She knew far too little about their intentions and methods, making the idea even more dangerous. If they had planned their attack in such detail, it was unlikely they would adjust their strategies based on unexpected circumstances, even if they were favorable.
+
+There was also another troubling variable: the enigma surrounding the boy working with the Knights. His identity remained unknown, and not even the princess’s friends seemed to have any clues about who he could be.
+
+"Uhmmm..." Magi exhaled deeply as she processed her thoughts. Finally, she made a decision.
+
+It no longer mattered.
+
+The explosion she had prepared had likely injured or eliminated one of the Knights. Now, the rest must be disoriented or reconsidering their next move. The absence of an immediate response confirmed that theory. This was the perfect moment to take advantage of the confusion and escape for good.
+
+A gentle breeze brushed the lake’s surface.
+
+Magi convinced herself that the danger had passed. She turned around confidently and, without haste, continued on her way.
+
+[---]
+
+A light burst on one of the shores of the lake. Magazin Doublereport had disappeared into the white radiance without even knowing what had happened to her.
+
+[---]
+
+"Good job, Ceridwen," Balor communicated mentally with her friend. "That was perfect. The great sub-leader Mannah is so moved by your performance that he's practically melting."
+
+"Give me the princess's coordinates, Balor," Ceridwen responded dryly from the shore of the lake. Despite the time they had worked together, she still didn't appreciate the occasional sarcastic jokes her friend made during missions.
+
+"Heh heh, alright. But first, send me those crystals through the secondary object transmission channel. I need to examine them personally."
+
+"Uhmm..." Ceridwen knew that this channel bypassed Mannah's filter, which could be considered an infringement of his authority.
+
+"Fine... but does the sub-leader approve?" Ceridwen asked suspiciously.
+
+"Of course."
+
+Without further delay, Ceridwen sent Twilight and her friends' crystal rosary to Balor in a simple burst of light.
+
