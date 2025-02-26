@@ -1,3 +1,37 @@
+Private Sub Document_PageChanged(ByVal Page As IVPage)
+    Dim shp As Visio.Shape
+    Dim button As Object
+    Dim categoria As String
+    
+    Dim pagActual As Visio.Page
+    Set pagActual = Visio.ActivePage
+    
+    ' Recorremos todas las formas de la página
+    For Each shp In pagActual.Shapes
+        ' Intentamos obtener el objeto del botón ActiveX
+        On Error Resume Next
+        Set button = shp.Object
+        On Error GoTo 0
+        
+        ' Verificamos si es un botón ActiveX
+        If Not button Is Nothing Then
+            If TypeName(button) = "CommandButton" Then ' Verifica que sea un botón
+                ' Leer la propiedad "Categoría"
+                If shp.CellExists("Prop.Categoria", False) Then
+                    categoria = shp.Cells("Prop.Categoria").ResultStr("")
+                    
+                    ' Si la categoría es "activo", darle focus real y salir del bucle
+                    If LCase(categoria) = "activo" Then
+                        DoEvents
+                        button.SetFocus ' Intenta dar focus real al botón
+                        Exit For ' Salimos tras encontrar el primer botón válido
+                    End If
+                End If
+            End If
+        End If
+    Next shp
+End Sub
+
 Public Sub CalcularSumaInputs()
     Dim sumaTotalH As Double
     Dim sumaTotalW As Double
