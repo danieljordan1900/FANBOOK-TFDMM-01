@@ -16,8 +16,9 @@
     ->  Respeta los nombres y términos específicos de la obra original.
     ->  Por favor respeta el uso de comillas dobles "" no las reemplaces.
     ->  Por favor tomate tu tiempo para revisar el texto paso a paso.
-    ->  Se menciona el personaje "Gallo Dragón Titanicus" el cual traducido al ingles es "Cocatriz Titanicus"
+    ->  Se menciona el personaje "Twilight-Dash" el cual es la fusion de los personajes Twilight y Rainbow Dash, este personaje en algunos momentos tendra pensamientos propios y de ambos personaje, tenerlo en cuenta.
     ->  El personaje Balor tiene un genero femenino
+    ->  El personaje Badwhiz Starheart es llamado a veces como Vainilla, tiene un genero masculino
 ]
 
 tan hermosa como una estrella en una noche gris, 

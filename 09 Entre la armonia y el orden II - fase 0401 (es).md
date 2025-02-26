@@ -132,7 +132,7 @@ Su suposición había sido correcta. Tal como había imaginado, Vainilla había 
 
 "Siento llegar tan tarde, chicas", se dijo a sí misma Twilight-Dash, entristecida.
 
-"Viiiiiiiiiiiiiii", se escuchó un silbido. Twilight-Dash observó a su alrededor. El falso cubo de cristal sellador que estaba entre Vainilla y Badwhiz comenzó a brillar. Vainilla, por un lado, había empezado a moverse un poco más rápido y ahora apuntaba lentamente su cuerno contra Twilight-Dash. El Badwhiz de sombras, en cambio, parecía no haberse percatado de nada.
+"Fiiiiiiiiiiiiiu", se escuchó un silbido. Twilight-Dash observó a su alrededor. El falso cubo de cristal sellador que estaba entre Vainilla y Badwhiz comenzó a brillar. Vainilla, por un lado, había empezado a moverse un poco más rápido y ahora apuntaba lentamente su cuerno contra Twilight-Dash. El Badwhiz de sombras, en cambio, parecía no haberse percatado de nada.
 
 "Villanos colaborando... no es la primera vez, pero aún así no deja de ser molesto", Twilight-Dash ya había tenido suficiente de esos tipos. Extendió las alas y las agitó. Dos intensas corrientes de aire salieron disparadas contra ambos enemigos. Demasiado lentos para reaccionar, tanto Vainilla como Badwhiz fueron empujados por el viento a chorro en direcciones opuestas, impactando contra las rocas.
 
