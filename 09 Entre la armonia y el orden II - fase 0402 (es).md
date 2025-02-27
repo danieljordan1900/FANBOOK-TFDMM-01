@@ -4,7 +4,7 @@ Bajo la vigilante mirada de sus compañeros, el cuerpo real de Balor se acercó 
 
 Con un movimiento firme, Balor extendió sus garras, como si intentara aplastar un globo invisible. En un instante, la magia que la rodeaba comenzó a comprimirse, atrayendo los cristales hacia ella. Poco a poco, estos se fusionaron en un único y deslumbrante fragmento.
 
-La sala de guerra se inundó de una luz cegadora, un estallido de poder que hizo vibrar el aire y erizó el pelaje de todos los presentes.
+La sala de guerra se inundó de una luz cegadora, un estallido de poder que hizo vibrar el aire y puso en guardia a todos los presentes.
 
 Mannah, con una voz solemne y cargada de determinación, proclamó: "¡Que la justicia se imponga!"
 
