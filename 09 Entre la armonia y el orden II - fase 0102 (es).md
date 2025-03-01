@@ -84,7 +84,17 @@ Justo como Twilight había indicado, se encontraban dentro de una barrera. Todo 
 
 "Cualquier opinión en este momento será útil. Yo tampoco lo sé. Si Vainilla quisiera atraparnos rápidamente, habría hecho la barrera mucho más pequeña".
 
-Twilight no dijo nada más y continuó observando junto con Dash.
+"Uhmm, tiene sentido...", respondió Rainbow Dash con duda, para luego dirigir una mirada seria hacia el cielo. Tras un breve silencio, dijo: "Oye, Twilight, ¿por qué no volamos por los aires esta barrera con el rayo de arcoíris de siempre?".
+
+Era una idea lógica. Sin embargo, Twilight frunció el ceño de inmediato. Ya lo había pensado antes y había llegado a una respuesta inquietante.
+
+"Rainbow Dash, piénsalo un momento... ¿realmente crees de corazón que eso funcionará?", preguntó Twilight sin volverse hacia ella.
+
+Rainbow Dash se quedó en silencio, con la mirada fija en el falso cielo.
+
+"No lo sé... pero tengo la impresión de que no podría ser tan fácil", respondió, entrecerrando los ojos.
+
+"A mí tampoco me parece que vaya a ser tan fácil, Rainbow Dash...", murmuró Twilight antes de guardar silencio y continuar observando el horizonte.
 
 La gran nube de tormenta que cubría el lugar hasta hace poco se había desvanecido, dejando grandes áreas de la llanura inundadas. Ahora el cielo estaba despejado y tenía una forma ovalada, generada por la cúpula de magia en la que se encontraban. En el centro de esta barrera, se encontraba el tren y una inusual mancha oscura que se asemejaba a un gran establo.
 

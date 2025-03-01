@@ -358,7 +358,7 @@ Un escalofrío recorrió la columna vertebral de Twilight-Dash mientras la magia
 
 Cada hebra de energía mágica estallaba en su interior, como si hiciera cortocircuito con sus propios nervios, dejando un rastro de dolor angustiante. Era como si una parte fundamental de sí misma estuviera siendo destrozada por miles de tajos invisibles.
 
-A medida que descendía, el pánico crecía en su pecho, oprimiéndola cada vez más. Su mente luchaba desesperadamente contra la idea aterradora de perder aquello que siempre había considerado parte de su esencia. Cerró los ojos con fuerza, como si eso pudiera detener la gravedad que la empujaba inexorablemente hacia el suelo.
+A medida que descendía, el pánico crecía en su pecho, oprimiéndola cada vez más. Su mente luchaba desesperadamente contra la idea aterradora de perder aquello que se suponia era parte fundamental de su esencia. Cerró los ojos con fuerza, como si eso pudiera detener la gravedad que la empujaba inexorablemente hacia el suelo.
 
 "No... no puede estar pasando", susurró. Sin embargo, sus palabras apenas eran audibles por encima del zumbido ominoso del viento y la magia que agonizaba en su interior.
 
@@ -468,11 +468,11 @@ Una protesta inútil. Balor no se inmutó lo más mínimo. El ataque se disipó 
 
 "¡Entonces te desgarraré el alma y lo que quede se lo entregaré a tu amiga antes de ejecutarla!" rugió Balor. Las garras que aprisionaban a Twilight-Dash la tiraron con fuerza, y una masa de luz comenzó a emerger de su cuerpo. La expresión de terror en el rostro de Twilight-Dash lo decía todo. No era dolor físico, sino espiritual. Desesperada, intentó concentrarse, pero poco a poco sentía que las fuerzas la abandonaban.
 
-"¡Twilight, reacciona, Twilight!" La mente independiente de Rainbow Dash llamaba angustiada a su amiga, que había dejado de comunicarse. "¡No te rindas!"
+"¡Twilight, reacciona, Twilight!" La mente independiente de Rainbow Dash llamaba angustiada a su amiga, que había dejado de comunicarse. "¡No te rindas Twilight!"
 
 [---]
 
-"¡No te rindas!"
+"¡No te rindas Twilight!"
 
 Pero Twilight ya no escuchaba y tampoco se había rendido.
 

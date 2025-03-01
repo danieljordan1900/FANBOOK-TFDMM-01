@@ -84,7 +84,17 @@ Just as Twilight had indicated, they were trapped inside a barrier. The entire h
 
 "Any opinion right now could be helpful. I don’t know either. If Vainilla wanted to catch us quickly, he’d have made the barrier much smaller."
 
-Twilight said no more and continued observing alongside Dash.
+"Uhmm, makes sense...", Rainbow Dash replied hesitantly, then turned a serious gaze skyward. After a brief silence, she said, “Hey, Twilight, why don't we blow up this barrier with the usual rainbow beam?".
+
+It was a logical idea. However, Twilight frowned immediately. She had thought about it before and had come up with a disturbing answer.
+
+"Rainbow Dash, think about it for a moment.... Do you really believe wholeheartedly that that will work?", Twilight asked without turning to her.
+
+Rainbow Dash remained silent, her gaze fixed on the fake sky.
+
+"I don't know... but I have a feeling it couldn't be that easy," she replied, squinting.
+
+"It doesn't look like it's going to be that easy to me either, Rainbow Dash...", Twilight muttered before falling silent and continuing to stare at the horizon.
 
 The large storm cloud that had covered the area earlier had dissipated, leaving vast stretches of flooded plains. The sky now appeared clear, though its oval shape reflected the dome of magic enclosing them. At the center of the barrier stood the train and an unusual dark figure resembling a large stable.
 

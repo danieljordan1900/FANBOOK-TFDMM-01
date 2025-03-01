@@ -351,3 +351,350 @@ Twilight-Dash glared at her in anger as she slowly descended. What she had just 
 "You!" Twilight-Dash tried to shout, but it was already too late. Her wings and the rest of her body lost strength, tilting sideways like a wounded bird. After an erratic flight, her figure began to plummet toward the radiant celestial forest below.
 
 [---]
+
+She was falling. She was losing everything.
+
+A shiver ran down Twilight-Dash’s spine as the magic within her began spiraling out of control. At first, it had been just a numbness, but now it had turned into genuine torture.
+
+Every strand of magical energy burst inside her, short-circuiting through her own nerves, leaving a trail of excruciating pain. It was as if a fundamental part of her being was being torn apart by thousands of invisible cuts.
+
+As she descended, panic swelled in her chest, pressing down on her more and more. Her mind fought desperately against the terrifying thought of losing what was supposed to be an essential part of her essence. She shut her eyes tightly, as if that could somehow stop the gravity pulling her inexorably toward the ground.
+
+"No... this can't be happening," she whispered. Yet, her words were barely audible over the ominous hum of the wind and the dying magic within her.
+
+She opened her eyes again. The surface, covered in celestial trees, was rushing toward her at a terrifying speed.
+
+Her heart pounded frantically, as if trying to compensate for the imminent loss. Though physically unharmed, Twilight-Dash felt torn apart inside. How could she face Balor without her magic?
+
+Losing her wings was already devastating. Losing her magic meant losing everything.
+
+In the thin, distorted air, she desperately searched for any remaining threads of magic within her. But it was useless. The feeling of helplessness wrapped around her like a shadow, and as she fell, a sharp pang of anguish pierced her chest.
+
+"No... not like this. Not yet," she murmured. Her eyes welled up with tears as she accepted the cruel reality—she was defenseless, and Balor knew it.
+
+Her strategy had failed, and now she was one step away from the end.
+
+Then, her body crashed through the thick canopies of the celestial trees. Finally, Twilight-Dash struck the ground.
+
+[---]
+
+"Twilight, this is serious!" exclaimed Rainbow Dash’s independent mind.
+
+"I know!" Twilight replied with the same intensity.
+
+"TWILIGHT, THIS IS REALLY SERIOUS!"
+
+"I KNOW, RAINBOW DASH! I KNOW!" she snapped, her voice filled with frustration.
+
+After crashing, Twilight-Dash sprinted through the dense celestial forest. She tried flapping her wings, but they refused to lift her. Her body felt strangely clumsy and uncoordinated. Though the stabbing pains had subsided, each breath was an exhausting effort.
+
+She stumbled and fell face-first into a muddy puddle surrounded by red tulips. A wave of nausea surged through her as she got up, but she managed to hold it back.
+
+What was this place? Why did everything feel so unnatural? Twilight-Dash scanned her surroundings with anxious eyes, desperately searching for answers that could shed light on this strange forest. She had no idea what kind of magic was being used against her. Despite Twilight and Rainbow Dash’s vast experience, they had never faced anything like this before.
+
+The only remotely similar situation was when Twilight traveled to a world without magic through a mirror. However, even then, the discomfort of being unable to use magic was comparable to having a stuffy nose. This time, the unease was far worse, like slowly drowning in a pit of burning tar while all her senses warped around her.
+
+"We still have our magic inside us; that’s what matters," noted Twilight’s independent mind, striving to stay calm as they continued trotting forward.
+
+Though the last remnants of magic she could sense were faint, Twilight was convinced that the magic was still within them. She knew it was there, even if she couldn’t connect to it. It had to be... because if it wasn’t...
+
+"Fine, but we still can’t fly," Rainbow Dash lamented.
+
+"We can’t use spells or magical abilities," Twilight continued, making a futile attempt to ignite Twilight-Dash’s horn.
+
+"AND WE CAN’T FLY!"
+
+Twilight-Dash came to an abrupt halt as they reached a clearing surrounded by large rocks. She remained alert for several minutes, but there were no signs of anyone approaching. She let out a small sigh. A brief moment of calm—that was all she needed.
+
+Her vast mind got to work immediately.
+
+Twilight was certain that a pegasus' ability to fly was linked to the elemental magic that surrounded their wings. At that moment, Twilight-Dash’s wings seemed to be in good condition and filled with magic.
+
+So why couldn’t they fly?
+
+She studied the mystical forest around her. It was clear that this place was to blame. Every corner radiated magic so powerful and unnatural that it seemed to twist reality itself…
+
+Twilight-Dash pushed her mind to the limit, trying to unravel the mystery. The forest was interfering with their magic somehow, and she needed to understand and counteract it as soon as possible. Balor could attack at any moment.
+
+"Arcane flows, magic channelling, catalysts..." she murmured hastily, hugging herself as her mind raced at full speed.
+
+She dug deep into her memories—basic lessons from magic school, countless travels, even the bedtime stories she was told as a filly. She searched for answers, even in the most outlandish rumors she had ever heard.
+
+Nothing.
+
+Twilight-Dash pushed herself harder, her concentration so intense it felt like smoke might start coming out of her head. And then, she found something: a zebra.
+
+"Without magic, you say? Why do you keep repeating that to me?" That was the eloquent response Zecora had given when Twilight asked her how other creatures lived in a world without magic. Zecora, with her vast knowledge and travels through distant lands, had learned to handle enchantments despite not possessing innate magical abilities.
+
+"Unicorn magic is channeled through their horns, pegasus magic through their wings... from the inside out," murmured Twilight-Dash, recalling Zecora’s words.
+
+"And what about from the outside in?" teased the zebra’s memory.
+
+The idea was absurd. Channeling magic from the environment almost always led to chaotic results. To do so, one needed amulets, talismans, or even living beings as catalysts. A direct flow of magic of that nature was like trying to catch a worm underground without getting dirty at all.
+
+But Zecora had attempted something different and, surprisingly, had achieved promising results. Twilight had tried to imitate her under her guidance, but her efforts ended in complete failure.
+
+A bitter expression crossed Twilight-Dash’s face.
+
+She had abandoned Zecora’s lessons out of frustration when she couldn’t make any progress. Even though she knew the basics and meditation postures perfectly, she had never been able to produce results. She never shared that experience with her friends. She thought it wasn’t important... but deep down, she knew the truth: she felt ashamed.
+
+Another mistake. How many things had she been neglecting?
+
+"From the outside in... come on," she told herself with determination. She had a hunch. Her magic wasn’t being absorbed or blocked. She could feel it flowing in the wrong direction. But reversing that flow would be a monumental challenge.
+
+The alicorn adopted a meditation posture, closing her eyes as she tried to connect with the magic within her. A numbing sensation began to envelop her, and soon she felt the magic flowing... outward.
+
+"No!" Twilight-Dash exclaimed upon realizing she was rapidly losing part of the magic she had accumulated.
+
+"Hey, shouldn’t we find shelter first? This place isn’t safe," Rainbow Dash’s independent mind suggested, trying to be helpful.
+
+"We don’t have time anymore, Rainbow!" Twilight’s independent mind snapped in frustration. "Balor will catch up to us..."
+
+Indeed, time had run out.
+
+"Ayyyyyyyyyyy..."
+
+A powerful blow struck her head at that very moment. Twilight-Dash cried out in pain as she was sent flying through the air, crashing into a tree that split in two.
+
+Balor, no longer invisible, had no intention of being merciful. She summoned chains that shot toward Twilight-Dash. The alicorn, still trying to recover from the previous attack, was ensnared by the thick chains, left completely incapacitated. She barely managed to move one of her front hooves. With great effort, she shifted just in time to dodge a powerful lightning strike that struck the ground where she had been.
+
+But it wasn’t enough. A second bolt was launched at her, hitting her directly and weakening her even further.
+
+Twilight-Dash began to be dragged. Balor pulled the chains toward her, like a spider reeling in its prey.
+
+"It’s over, princess. End your fusion, and your friend’s life will be spared," Balor threatened, keeping Twilight-Dash under her control. Of course, it was obvious Balor was lying.
+
+"NOT YET!" Twilight-Dash roared, making the chains creak as she freed one of her front hooves. Then, she unleashed a concentrated dust blast around her, pushing back.
+
+A futile protest. Balor didn’t even flinch. The attack dissipated like smoke. Claws of dark magic emerged from Balor’s sides and seized Twilight-Dash midair.
+
+"Then I’ll tear your soul apart and give whatever remains to your friend before I execute her!" Balor growled.
+
+The claws constricting Twilight-Dash pulled at her forcefully, and a mass of light began to emerge from her body. The sheer terror on Twilight-Dash’s face said it all. It wasn’t physical pain—it was something far worse.
+
+Desperate, she tried to concentrate, but she could feel her strength fading bit by bit.
+
+"Twilight, snap out of it, Twilight!" Rainbow Dash’s independent mind called out in distress, her friend no longer responding. "Don’t give up, Twilight!"
+
+[---]
+
+"Don't give up, Twilight!"
+
+But Twilight was no longer listening, nor had she given up.
+
+From the deepest part of her being, Twilight entered a state of deep meditation, immersing herself in a simulated space within her mind. This was her last card, the final move she could make to save her friends from total defeat.
+
+It was a virtual reality, an imaginary place where she could create possible scenarios based on all the knowledge she possessed. More than a magical ability, it was a mental discipline that only someone like her could have developed after so many years of study and dedication. Even so, this exercise required a passive consumption of magic to function; the fact that it was working at that moment was proof that magic was still within her.
+
+Twilight expanded her mental focus, and slowly, reality began to take shape.
+
+In the past, she had used this ability to visualize the possible future of her friends. This time, she would use it to conclude what she had left unfinished long ago.
+
+Just like back then, when she trained with Zecora in the Everfree Forest. She stood on a pond, balancing her body on the water, with calm and steady breathing. She perceived all the magic around her with her eyes closed.
+
+Twilight felt the water. Twilight felt the wind. Twilight felt the earth.
+
+But Twilight did not feel the forest.
+
+The Everfree Forest had existed long before the founding of Equestria. It had a dark and scattered history: stories of malevolent creatures that inhabited it, stories of princesses who walked through its clearings, stories of unimaginable treasures and sinister secrets.
+
+But Twilight still did not feel the forest.
+
+Why couldn’t she feel the forest? She perceived with her magic the movement of the wind, the water, and the earth, but not the forest. The forest was hidden. It did not speak to her. It was not there...
+
+Twilight opened her eyes again. She was failing. It was the same result she had obtained when training with Zecora.
+
+The simulated space in her mind began to darken.
+
+She felt like a failure. She couldn’t save her friends. The enemy had been right in front of her, and she hadn’t seen it. After the battle against the Villainous Trio, she had promised everyone: "It won’t happen again."
+
+But it had happened again.
+
+The simulated space in her mind darkened even further.
+
+Twilight looked at her own reflection in the water, doubtful. Now she was a princess. Back in those training days, she had been just a unicorn.
+
+Everything had been so simple in those days.
+Wings and a horn. How extraordinary! Now they were useless against the threat that had cornered her. She also had hooves, but all ponies had those.
+
+Twilight’s thoughts faded even further...
+
+"Applejack is more responsible with her farm than I am with Equestria," Twilight reflected aloud to herself. "At least she has backup seeds in case of disasters. I, on the other hand, only have escape plans..."
+
+She remembered the moment Applejack planted a new orchard after a storm. Applejack rejoiced, saying things like, "These new apple trees will be even better than the last ones, I’d bet my left hind leg on it!"
+
+Twilight smiled at the memory, though she never really thought the new apples were any better.
+
+"Look at them grow, haha, I could stay up all night waiting to see the first sprout," Applejack continued speaking. And she wasn’t joking. On many occasions, Twilight had caught her friend sleeping in the middle of the orchard.
+
+"Oh, yeah! Look at them grow! Just like in my parents’ rock farm," confirmed Pinkie Pie.
+
+"Rocks don’t grow, Pinkie. They just emerge from the ground due to geological shifts. Even I know that," Rainbow Dash replied.
+
+"But it would be nice if they did. If diamonds could grow bigger..." Rarity fantasized.
+
+"A rock forest also grows larger, and watching it grow is lovely; bears like to play there..." Fluttershy added, but no one paid attention.
+
+No one except Twilight.
+
+"...they help the rock trees grow by bringing stones from far away and placing them on top of each other. That’s how they create a new rock tree, teaching their cubs, and in the future, more bears come to play in it."
+
+A lump formed in Twilight’s throat.
+
+The distant vision of her friends cheerfully strolling through Applejack’s farm brought tears to her eyes. These were the memories she cherished most.
+
+And they were also the key to solving the mystery of the sky forest.
+
+Zecora had told her something like: "Feel the elements and nature. Listen to how they breathe, see how they grow, follow their flow..."
+
+Twilight closed her eyes. She dispelled her thoughts and focused on just one. She needed to change her approach. She couldn’t follow the flow of magic; instead, she needed to let magic find its own flow within her.
+
+"From the outside in." A block of stone took shape in Twilight’s mind. A brown stain emerged in the darkness.
+
+"From a seed in the earth." Another block of stone took shape. Another brown stain appeared in the darkness.
+
+"It grows toward the sky." One more block of stone took shape. From the brown stain, a tiny green dot was revealed.
+
+"And opens its leaves to the stars!" The green dot was now a sprout in the earth...
+
+Twilight opened her eyes.
+
+Sweat cascaded down her forehead and all over her body. She wasn’t tired, but she was extremely tense. Then, she saw in front of her a small mound of stones.
+
+She had done it. She had managed to feel a tiny part of the forest. She had experienced the process of making a seed grow.
+
+"This felt very different from how Zecora described it. Maybe I didn’t understand her well because of her rhymes. Haha..." Twilight laughed; she wanted to jump for joy right there. But time was running out.
+
+The small mound of stones crumbled.
+
+"The bond to magically connect with nature must be different for each species... zebras have their way, ponies have another..." Twilight reflected.
+
+But she had grasped the trick. Now it was a matter of replicating it over and over until she could finally make a tree grow.
+
+"I can do it!" she encouraged herself.
+
+Twilight would not give up.
+
+[---]
+
+Balor pulled hard once more. Half of Twilight's soul had already been extracted from Twilight-Dash's body.
+
+"Just a little more..." Balor murmured to herself, calculating that in just twelve seconds, the extraction would be complete. The fusion would collapse, and then everything would be over.
+
+Twilight-Dash, for her part, fought with all her strength. Her wings were busy keeping the chains at bay, while she desperately tried to reconnect Twilight's soul to her body with her front hooves. But it wasn't enough. The ethereal figure of her friend slipped through her hooves, like sand escaping from an hourglass. Time was running out.
+
+"You won't take her! Huuuuuuuuuu!" cried Rainbow Dash's independent mind, trying to hold firm.
+
+However, the process barely slowed, and Twilight-Dash's body grew more and more numb.
+
+"Five more seconds..." Balor murmured with a triumphant smile, eager to finish the remaining moments. The last fraction of Twilight's soul was about to be completely torn away.
+
+And then, something changed.
+
+"Huh?" Balor frowned, puzzled. Two seconds had passed, but there was no progress.
+
+She pulled harder. But this time, she couldn't move the soul even a millimeter.
+
+No, it wasn’t just that Twilight's soul was resisting extraction. It was something worse. It was returning to her body.
+
+"WHAT?!" Balor exclaimed, unable to believe what she was seeing.
+
+Suddenly, Twilight-Dash opened her eyes. The expression of despair and exhaustion had vanished from her face, replaced by a firm and determined gaze. Her coat, which until a few seconds ago had looked dull and lifeless, began to shine once again with intensity. A renewed energy radiated from her. Magic had begun to flow through her body once more!
+
+With a firm movement, "PAMMMM," Twilight-Dash landed forcefully on the ground. Until then, she had been suspended in the air, trapped in Balor’s magic, but now she was completely in control. She stood on the earth with determination, making it clear that she was no longer an easy target.
+
+Balor took a step back, unable to hide the consternation washing over her. How could this be happening?
+
+The battle had taken an unexpected turn.
+
+Now she was the one in danger. She was within Twilight-Dash’s attack range, and at that moment, the alicorn possessed the greatest magical power. If Twilight-Dash used her extreme speed, she could charge at her with a critical blow.
+
+Balor knew she could teleport or raise a magical barrier to avoid the attack, but both options would take time. With the chains still tangled and the extraction process incomplete, any action would take at least an extra second.
+
+And in this instant, a second was too much.
+
+[---]
+
+Twilight-Dash smiled confidently. She could see Balor’s distress and knew exactly what she was thinking.
+
+Inside her, Rainbow Dash was overflowing with excitement. "I don’t know how you did it, but this is amazing! I can feel my wings again!"
+
+"Don’t celebrate just yet… I can barely hold this… we don’t have much time," Twilight’s independent mind responded, exhausted.
+
+Twilight had spent hours practicing within her simulated mental space, where time flowed much more slowly. This wasn’t just the result of her magic and experience with these exercises; thanks to the special nature of her fusion with Rainbow Dash, Twilight could harness Twilight-Dash’s mental agility to enhance her own inner space. Now, that training was paying off.
+
+However, despite the advantages of the mental realm, Twilight couldn’t ignore the strain. Eventually, she grew fatigued and had to return her consciousness to the normal flow of thoughts shared with Twilight-Dash.
+
+When she came back, she was ready. She had achieved her goal: learning to establish a bond with nature. Even though she didn’t fully understand the ancient magic surrounding the celestial forest, she knew it was a living forest, and she could communicate with it.
+
+In her mental space, she allowed the magic of the environment to flow into her, planting within herself the seed of a celestial tree. Soon after, the seed sprouted and grew into a young sapling. That was when Twilight finally heard the voice of the enchanted forest around her.
+
+In her lessons with Zecora, the zebra had explained how trees sometimes whispered or softly spoke one’s name.
+
+However, the celestial forest was very different.
+
+A thunderous chant resonated everywhere. The celestial trees sang true hymns in a language unknown to Twilight, accompanied by a unique and harmonious symphony. Sometimes intense, other times gentle—even the fallen leaves on the ground followed the same rhythm. The sensation was unlike anything she had ever experienced, overwhelming in every way.
+
+But she also felt something else… anger. A dense, bitter anger.
+
+The forest was upset with her. Its voice rose in protest against her presence.
+
+Twilight wasn’t entirely sure why, but she had a hunch and decided to try something. She opened her mental space once again, allowing the voice of the forest to reach the young celestial sapling she had created. Then, something unexpected happened.
+
+A new voice emerged.
+
+This new voice joined the trees’ song, and with it, all the hostility Twilight had felt disappeared.
+
+Now, the forest allowed her to be among them. She didn’t feel like they were her friends… but at least they tolerated her.
+
+If the situation weren’t so dramatic, Twilight might have cried from emotion.
+
+"Wow! That happened? Turns out fantasizing about planting a singing tree was the key… makes sense," Rainbow Dash commented, still a bit confused as she processed Twilight’s memories.
+
+"I’m so tired, Rainbow… it’s up to you now," Twilight weakly whispered before falling silent again. She hadn’t lost consciousness completely, but she was no longer able to speak while maintaining the mental space where the celestial sapling continued to sing.
+
+Twilight was reaching her limit.
+
+Now, it was Rainbow Dash’s turn to reach hers.
+
+"Leave it to me!" Twilight-Dash exclaimed in Rainbow’s voice. She spun around, and the chains binding her tightened even more. The pressure visibly increased on Balor’s side.
+
+[---]
+
+The struggle was still ongoing, but Balor no longer had the initiative. If she retreated now, she would be caught in an instant. She had spent too much magic on the celestial forest, a trap the princess was never supposed to overcome. And yet, she had. How?
+
+Balor had studied ponies in general and the circle of individuals surrounding Twilight. There was no record of any pony ever awakening floral magic at any point in history. Some ponies could make plants grow with spells, but that was due to their talent or the traditional use of magic they had learned. It was not the same method used in Cunabula. Even among the nations allied with Equestria, there were no similar precedents. Only in Cunabula was the ancient art of floral magic preserved in its purest form.
+
+So how had the princess managed to appease the eternal forest? Had she discovered an unknown method in record time to communicate with it and subdue it?
+
+Unheard of. Balor bit her inner lip.
+
+She had summoned the forest with her magic. That was why the forest respected her—because it respected its summoner. Balor could delegate her honor to others, and the forest would respect them as well. But she could not rule over it. The forest had a will of its own and was magical; it would only obey someone who spoke its language and used its magic.
+
+That person was in Cunabula at that very moment. Did the princess possess such power?
+
+Sweat dripped down Balor’s forehead as she weighed the possibility and tightened the chains further.
+
+"No," she told herself. "The princess must have tricked the forest or offered it a tribute. If this forest already obeyed her, this fight would be over."
+
+The forest was powerful. If her opponent were Dana… ridiculous, it didn’t even make sense to think about it.
+
+Meanwhile, Twilight-Dash began to expand the grip of the chains. The dark claws pulling at Twilight’s soul were losing strength. Balor had already lost half of her progress.
+
+"What’s wrong? Why so quiet? Things aren’t going the way you wanted, are they?" Twilight-Dash taunted arrogantly. Now she had the upper hoof, her magic was intact, and Balor was weakening more with each passing second. Soon, she would break free and launch a counterattack.
+
+Balor looked at her with a mix of rage and desperation.
+
+Then… she smiled triumphantly.
+
+"Don't worry… I'm already used to this!" Balor responded.
+
+At that moment, the chains tightened once more. Twilight-Dash felt a sharp pain, but something else alarmed her… When she looked to her sides, she saw cracks beginning to form on her skin. They glowed with her inner light, but it wasn’t just light escaping… it was her magic!
+
+"No! No! No!" Twilight-Dash repeated in panic. The fusion had reached its limit. Although Balor hadn’t managed to fully extract Twilight’s soul, she had kept it out long enough to destabilize the bond with Rainbow Dash. On top of that, the chains—designed to break magic—were intensifying the process.
+
+Twilight-Dash was losing magic at an alarming rate. She had to strike now if she wanted any chance of success, but Balor was too far away. Time was running out.
+
+Balor pressed harder. The chains were doing their job. She only needed to hold on a little longer and not release Twilight’s soul. Time would do the rest.
+
+At the brink of catastrophe, only a miracle could save Twilight-Dash.
