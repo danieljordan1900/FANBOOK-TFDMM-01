@@ -23,7 +23,7 @@ As he removed the towel, Dal became King Dal once again, sovereign of Cunabula.
 
 With renewed calm, King Dal returned to his quarters. The newly arrived guest represented all the hope he needed in his heart.
 
-----
+[---]
 
 Dana waited impatiently in the room for the arrival of King Dal. The space, usually reserved for the monarch's breakfasts with other prominent members of Cunabula's society, took on a different air at that moment. Although the meetings typically had a purely ceremonial nature, without sentimental connotations, that day promised to be different.
 
@@ -133,7 +133,7 @@ Dana, who remained on the sidelines of the conversation, did not view Mashal fav
 
 "Thank you very much, your majesty," Dana replied, bid farewell to Mashal, and immediately left the room.
 
---------------------
+[---]
 
 With the doors closed and Dana gone, the old King turned his gaze towards the guest who had just taken a seat.
 
@@ -141,7 +141,7 @@ With the doors closed and Dana gone, the old King turned his gaze towards the gu
 
 "Don't worry, your majesty. I have no intention of doing anything of the sort... for the moment," Mashal responded with a calm demeanor before taking a sip of tea. Behind Mashal, his companions began to clear a table and take out several sheets of documents.
 
---------------------
+[---]
 
 At the top of one of the watchtowers, far from the royal chambers, Dana gazed at the gray atmosphere that covered the entire island that morning.
 
