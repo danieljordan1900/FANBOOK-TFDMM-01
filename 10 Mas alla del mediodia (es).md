@@ -131,17 +131,23 @@ Era un libro muy dañado con grabados de plantas y flores ... habia una luz purp
 
 [---]
 
-Balor, de regreso en el Tartaro, apagó las proyecciones holográficas que había encontrado en el rosario de cristales de Twilight y sus amigas.
+La imagen de la princesa Twilight y sus amigas brillaba en medio de las tinieblas...
+
+Balor, de regreso en el Tartaro, apagó las proyecciones holográficas que emanaban del rosario de cristales incautado a Twilight y sus aliadas.
 
 "Solo recuerdos..." murmuró Balor descepcionada mientras mascaba chicle en su oscura habitación.
 
-Con su magia, tomó el rosario de cristales y lo tiro en un cofre especial.
+Con un movimiento de su magia, tomó el rosario y lo arrojó dentro de un cofre especial.
 
-La princesa y sus aliadas habían demostrado ser adversarios formidables a los que nunca debieron dar una sola oportunidad. Esta había sido la mayor debilidad de toda la operación.
+La princesa y sus compañeras habían demostrado ser adversarias formidables, a quienes nunca debieron dar una sola oportunidad. Ese había sido el mayor error de toda la operación.
 
-Sin embargo, actuar sin misericordia no estaba en línea con el título que ostentaba.
+Sin embargo, actuar sin misericordia iba en contra del título que ostentaba.
 
-Balor no tenía problemas con eso, hasta ahora.
+A Balor, por su parte, ignorar ese detalle no le causaba molestias.
+
+Hasta ahora...
+
+"Uffff..." suspiro irritada en la habitación.
 
 Haber estado tan cerca de la total destrucción durante la batalla. Todo por haber confiado en un niño para representarlos...
 
