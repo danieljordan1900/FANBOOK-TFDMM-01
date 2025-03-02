@@ -53,7 +53,7 @@ Pero al final, la situación se descontroló por completo.
 
 La respuesta de la princesa al encierro fue desmesurada. A pesar de haber colocado al terrible Gallodragón Titanicus como guardián de su base de operaciones dentro del tren secuestrado, la princesa derrotó con facilidad a la bestia que se suponia que seria el esbirro mas fuerte dentro del escenario que habían preparado. Ante la grave amenaza que representaba esta situación para la misión, se decidió utilizar el Cubo de Cristal Sellador y el Cristal de Posesión Directa sobre el agente encubierto Badwhiz.
 
-Badwhiz estaba destinado a ser un comodín encubierto en el campo de batalla, limitándose a observar y tomar muestras de los cambios que ocurrieran. En otras palabras, era simplemente una herramienta más en el plan.
+A todo esto. Badwhiz estaba destinado a ser un comodín encubierto en el campo de batalla, limitándose a observar y tomar muestras de los cambios que ocurrieran. En otras palabras, era simplemente una herramienta más en el plan.
 
 Al final, Badwhiz, un simple poni terrestre de Equestria, terminó tomando una parte activa en el conflicto y sacrificándose por Cunabula, a pesar de ser un extranjero. No quedó rastro de el, ni de la princesa y sus aliadas, aunque algunas de sus compañeras estaban dentro del Cubo de Cristal Sellador. Ninguna de ellas tenía suficiente peso para un juicio.
 
@@ -61,7 +61,7 @@ Balor pensó para sí misma, "Se cometieron demasiados errores, ¿Qué tienes qu
 
 Mannah se había mantenido en silencio durante un buen lapso de tiempo, con la mirada en el horizonte, hasta que finalmente se volvió para mirar a sus compañeros.
 
-"Es un héroe. Un miembro pleno de la hermandad de caballería. Con su propia vida, ha probado su lealtad a nuestra causa y a Cunabula", respondió solemnemente Mannah.
+"Es un héroe. Un miembro pleno de la hermandad de caballería. Con su propia vida, ha probado su lealtad a nuestra causa y a Cunabula", respondió solemnemente el sub-lider de los Caballeros del Orden.
 
 "¡Es un extranjero!", exclamó Ceridwen indignada.
 
@@ -115,7 +115,7 @@ Cada uno de los Caballeros del Orden llevaba gemas doradas que los adornaban, y 
 
 El deseo de Mannah y sus compañeros era uno solo.
 
-"¡VENGANZA!¡VENGANZA!¡VENGANZA!¡VENGANZA!¡VENGANZA!¡VENGANZAAAAAAAAAAAAAA!" Clamaron al unisono Mannah y sus compañeros.
+"¡VENGANZA!¡VENGANZA!¡VENGANZA!¡VENGANZAAAAAAAAAAAAAA!" Clamaron al unisono Mannah y sus compañeros.
 
 Una luz dorada ilumino a cada uno. Encendiendose en una ardiente ira, se elevaron del suelo y salieron disparados al cielo en columnas de luz pura. Atravesando las nubes, los meteoros de luz llegaron hasta lo mas alto y abruptamente cambiaron de rumbo.
 
