@@ -1,10 +1,3 @@
-[center][img]https://i.postimg.cc/T3YC3vb3/tren-de-la-amistad-II.png[/img][/center]
-
-[quote]
-[color=#2caf26]Greetings, Fimfiction readers. This document was edited on 27/11/2024.[/color]
-[color=#2caf26]This chapter has direct links to the story  [b][url=https://www.fimfiction.net/story/532607/rainbow-dash-goes-to-the-averages-tower]Rainbow Dash goes to The Averages Tower[/url][/b] read on for more information.[/color]
-[/quote]
-
 On the train bound for Canterlot, inside one of the cargo cars, nestled among stacked crates and bulky luggage, a young pony sat shrouded in oppressive darkness. His face, faintly illuminated by the dim light filtering through the hatch above, betrayed nervousness. He hadn’t slept the previous night and had gone hours without eating. Yet none of this was the true source of his unease. His spirit remained strong, his mind sharp and alert.
 
 Rather, it was his clarity of thought—the cruel awareness of his situation—that fed his anguish.
@@ -19,7 +12,7 @@ The headphones were so new that the box still lay beside him, untouched except f
 
 Curious about the sleek device, he picked up the box and read aloud: "Gamma Silente Headphones - Averages C."
 
-[hr]
+[---]
 
 "...and that’s what happened," Rainbow Dash concluded confidently. Before her, her friends listened attentively.
 
@@ -95,7 +88,7 @@ A few steps ahead, Dash’s outline was visible. Her head stuck out the window, 
 
 "Ha, ha! It’s so hot today, isn’t it?" Dash commented nervously, slowly returning to the center of the car while avoiding her friends’ inquisitive gazes.
 
-[hr]
+[---]
 
 The train car erupted into a deafening roar of cheers and cries of excitement.
 
@@ -179,7 +172,7 @@ Feeling the weight of her friends’ disapproval, Dash decided she’d had enoug
 
 All heads turned toward the back. There, lounging comfortably with a soda can in hoof, was none other than Magazine Doublereport.
 
-[hr]
+[---]
 
 The train's progress had slowed. In the middle of a wide plain, peaceful flocks of sheep casually crossed the tracks, disrupting the train's path and irritating the rushed engineers, whose schedule was already "way" behind.  
 
@@ -291,7 +284,7 @@ Meanwhile, Magi...
 
 "I want some!" Pinkie Pie exclaimed, raising her right hoof excitedly.
 
-[hr]
+[---]
 
 On the delayed train heading from Ponyville to Canterlot, Applejack trotted toward the last car. When she arrived, she discovered that it was locked, which didn’t surprise her, since it was a special cargo car. However, something caught her attention: it was heavily secured, with the windows sealed and the doors reinforced. Despite her curiosity, she decided not to pay it much mind. She had an important mission to complete. Determined, she climbed a small ladder to the roof of the car, searching for her friend.
 
@@ -437,7 +430,7 @@ Throughout the explanation, Applejack stayed by her side, and no one interrupted
 
 Rainbow Dash could only smile to herself at that.
 
-[hr]
+[---]
 
 "And that’s what really happened," Rainbow Dash concluded, lowering her gaze.
 
@@ -563,7 +556,7 @@ It was strange. It was barely past noon, but outside, it was as dark as if night
 
 Then, a sharp whistle from the train echoed through the car, startling everyone. An instant later, chaos broke out.
 
-[hr]
+[---]
 
 Abruptly, the train heading to Canterlot came to a screeching halt.
 

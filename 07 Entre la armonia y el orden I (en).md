@@ -30,7 +30,7 @@ Her smile widened. Soon, those dear friends would come to visit her. They would 
 
 With her mind occupied imagining what kind of surprise it might be this time, Twilight dived swiftly toward the waterfalls cascading from the city, only to rise again like a beam of purple light toward one of the castle’s towers. The passersby on the streets watched in awe, marveling at the beautiful rainbow left in the wake of the princess’s fleeting flight through the sky.  
 
-[hr]
+[---]
 
 In one of the storage rooms near the royal suite of the castle, Twilight was organizing kitchen and cleaning supplies. She had just finished washing a few commemorative plates from last year’s festival, a task that usually fell to the butlers or cleaning staff. However, they were all absent, as Twilight had ordered them to enjoy the day’s festivities. Only the guards remained on duty.
 
@@ -48,7 +48,7 @@ Suddenly, a swirl of magic formed in front of her, and a sealed scroll appeared 
 
 Twilight caught it with her magic and quickly read its contents. Her eyes widened in surprise: she hadn’t expected her guests to arrive so early. Wasting no time, she hurried out of the room, carrying the box she had just found with her.
 
-[hr]
+[---]
 
 In the throne room, Twilight waited impatiently for the arrival of her unexpected guests. The grand doors slowly opened, revealing two figures she knew all too well. Celestia and Luna, the former rulers of Equestria, entered with an elegant gait that reflected their royal demeanor. Though they had long since stepped down from the throne, the air of nobility they carried was unmistakable.
 
