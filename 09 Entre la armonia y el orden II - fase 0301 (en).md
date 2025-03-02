@@ -92,7 +92,7 @@ Meanwhile, in the medical car...
 
 "Yes, that's what she told us," Rarity confirmed.
 
-"She mentioned that she was really worried about us after Vainilla kicked her out of the car. She said she had a bad feeling and decided to stay," Fluttershy added.
+"She mentioned that she was really worried about us after Vanilla kicked her out of the car. She said she had a bad feeling and decided to stay," Fluttershy added.
 
 Applejack scratched her head; something about that story didn’t quite fit—or rather, none of it did. She remembered Twilight mentioning that the Great Barrier had expelled anyone who could help them, but had she only meant animals? The farmer shook her head; she still felt a little too dizzy to think clearly.
 
@@ -116,9 +116,9 @@ Magi sighed.
 
 "I’ve introduced myself before... Look, we don’t have time for this. We need to work together," Magi said, emotionless.
 
-"Oh, really? And how do we know you’re not on Vainilla’s side?" Applejack questioned.
+"Oh, really? And how do we know you’re not on Vanilla’s side?" Applejack questioned.
 
-"Vainilla? You mean one of the guys who attacked you? Or the kid he has as a servant?"
+"Vanilla? You mean one of the guys who attacked you? Or the kid he has as a servant?"
 
 "Uhmm?" Applejack had no response; her mind froze as she tried to process the question. Magi seemed to smirk slightly. She realized that despite Applejack’s determined stance, she was still disoriented and weakened.
 
@@ -134,7 +134,7 @@ She couldn’t think about it too much. Finally, after a long pause, she spoke.
 
 Behind her, the rest of the ponies seemed to regain a bit of hope at that moment.
 
-"Perfect, then let’s not waste any time," Magi replied with sincere relief—so much so that her colors seemed to return to her face, making her look less menacing. "You mentioned Vainilla earlier. Well, I don’t know her. But I do know these guys."
+"Perfect, then let’s not waste any time," Magi replied with sincere relief—so much so that her colors seemed to return to her face, making her look less menacing. "You mentioned Vanilla earlier. Well, I don’t know her. But I do know these guys."
 
 Before she finished speaking, one of the orbs floating around Magi drifted away and positioned itself on the ceiling. Then, a light shone from the orb, projecting a holographic image in the middle of the car.
 
@@ -268,9 +268,9 @@ Her friends had fallen; it was her duty to avenge them.
 
 She was the last one standing. The fate of Equestria rested in her hooves.
 
-Vainilla, cowardly protected by his magical bubble, withstood the constant attacks she delivered. But that wouldn’t last forever. This wasn’t the first time she faced a mage convinced that his defenses were impenetrable and that his opponent would surrender from exhaustion.
+Vanilla, cowardly protected by his magical bubble, withstood the constant attacks she delivered. But that wouldn’t last forever. This wasn’t the first time she faced a mage convinced that his defenses were impenetrable and that his opponent would surrender from exhaustion.
 
-Guys like that didn’t know Rainbow Dash. All of them ended up learning a hard lesson, and Vainilla was learning it too. It showed on his face—he was getting tired.
+Guys like that didn’t know Rainbow Dash. All of them ended up learning a hard lesson, and Vanilla was learning it too. It showed on his face—he was getting tired.
 
 Driving him through the sky, Dash continued slamming him against rocks, hills, and trees.
 
@@ -280,9 +280,9 @@ Finally, a breach and an explosion of light.
 
 But Rainbow didn’t flinch. It was a pathetic trick to scare her. She charged straight in, trapping her enemy in midair. Before he could react, she swiftly slid to his back and grabbed him by the front legs, immobilizing him. Fast and furious, she ascended into the sky and then, like a comet, plummeted with him toward the earth, spinning wildly to prevent him from concentrating.
 
-Incapacitated by the incredible attack, Vainilla offered no resistance. His end had come. A violent explosion shook a small forest.
+Incapacitated by the incredible attack, Vanilla offered no resistance. His end had come. A violent explosion shook a small forest.
 
-Once the dust settled, Vainilla lay defeated on the ground, in the middle of a crater. At the last second, Rainbow Dash had released her opponent’s body, allowing him to crash into the ground.
+Once the dust settled, Vanilla lay defeated on the ground, in the middle of a crater. At the last second, Rainbow Dash had released her opponent’s body, allowing him to crash into the ground.
 
 Victory and arrogance reflected in Rainbow Dash’s flight as she positioned herself over her opponent, placing a hoof on the head of the vanquished villain.
 
@@ -314,9 +314,9 @@ Rainbow Dash was Rainbow Dash, the greatest hero that had ever existed or would 
 
 Then, real rain fell on her face, soaking her and silencing all those fantasies.
 
-Rainbow Dash looked around again. The world was no longer colorful or bright. Now it was gray and dusty. Under her hooves was not Vainilla’s body, but Twilight’s.
+Rainbow Dash looked around again. The world was no longer colorful or bright. Now it was gray and dusty. Under her hooves was not Vanilla’s body, but Twilight’s.
 
-The pegasus was speechless for a few seconds, staring at the scene in disbelief. Then, memories of her fight with Badwhiz hit her—how she was defeated, and then... how she attacked Vainilla. No... how she attacked Twilight.
+The pegasus was speechless for a few seconds, staring at the scene in disbelief. Then, memories of her fight with Badwhiz hit her—how she was defeated, and then... how she attacked Vanilla. No... how she attacked Twilight.
 
 "Is this a dream? It’s a dream, right?" she told herself incredulously, biting her hoof. She felt pain but didn’t wake up. She was no longer in a dream.
 

@@ -70,7 +70,7 @@ Wasting no time, all the ponies got to work.
 
 [---]
 
-Beyond the rocks covering the hilltop, Twilight and Rainbow Dash carefully moved through the bushes. Twilight's first objective was to get a clear view of the current state of the terrain within the barrier. The second objective was to find a safe place where they could hide from Vainilla.
+Beyond the rocks covering the hilltop, Twilight and Rainbow Dash carefully moved through the bushes. Twilight's first objective was to get a clear view of the current state of the terrain within the barrier. The second objective was to find a safe place where they could hide from Vanilla.
 
 Slowly, they reached a clearing and began surveying the horizon.
 
@@ -82,7 +82,7 @@ Just as Twilight had indicated, they were trapped inside a barrier. The entire h
 
 "Uh… I think you’re asking the wrong pony. I don’t know much about this magic stuff, Twilight."
 
-"Any opinion right now could be helpful. I don’t know either. If Vainilla wanted to catch us quickly, he’d have made the barrier much smaller."
+"Any opinion right now could be helpful. I don’t know either. If Vanilla wanted to catch us quickly, he’d have made the barrier much smaller."
 
 "Uhmm, makes sense...", Rainbow Dash replied hesitantly, then turned a serious gaze skyward. After a brief silence, she said, “Hey, Twilight, why don't we blow up this barrier with the usual rainbow beam?".
 
@@ -114,7 +114,7 @@ Indeed, it was a cocatriz, but unlike any they had seen before. Its size rivaled
 
 "Whatever. So, do you know this thing? Do you know how to beat it?" Dash asked, slightly bewildered by Twilight’s enthusiasm.
 
-"Yes, but it’s better if I explain it with the others. Besides… I don’t see Vainilla. Do you spot him anywhere, Rainbow?" Twilight asked, her gaze turning serious as she scanned the horizon.
+"Yes, but it’s better if I explain it with the others. Besides… I don’t see Vanilla. Do you spot him anywhere, Rainbow?" Twilight asked, her gaze turning serious as she scanned the horizon.
 
 "Nope. He might be hiding behind that giant cocatriz. But that’d be way too convenient," Dash replied, glaring warily toward the imposing creature.
 
@@ -148,7 +148,7 @@ After listening to the chant for several seconds, Twilight finally reacted.
 
 "Yes, Twilight. There’s a big rabbit burrow beneath the hill. It’s abandoned, but it’s in really good condition. All of us could fit in there without any problem," Fluttershy explained.
 
-Twilight felt a flicker of joy inside her. This was good news. They had, to some extent, achieved the initial objectives they had set. Now, they needed to assess the situation with the rest of the group and start working on a plan. Even though they still didn’t know where Vainilla was…
+Twilight felt a flicker of joy inside her. This was good news. They had, to some extent, achieved the initial objectives they had set. Now, they needed to assess the situation with the rest of the group and start working on a plan. Even though they still didn’t know where Vanilla was…
 
 "Is that… is that a cocatriz?" Fluttershy asked, her voice a mix of fear and amazement as she stared into the distance.
 

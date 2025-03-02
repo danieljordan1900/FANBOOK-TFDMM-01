@@ -150,7 +150,7 @@ Several minutes earlier, in the burrow...
 
 "Coming this way, of course," the pegasus answered with a nonchalant tone that almost seemed like a challenge.
 
-Twilight was alarmed. Vainilla already knew where they were, and now he was coming for them. And she still hadn't explained about the Cocatriz Titanicus or the possible identity of Vainilla. This was bad. In the past, Twilight would have been on the floor having a panic attack. And certainly, a part of her still felt inclined to do that at this moment. However, those three years of constant stress and procrastinated tasks had toughened her enough to handle such a complicated situation.
+Twilight was alarmed. Vanilla already knew where they were, and now he was coming for them. And she still hadn't explained about the Cocatriz Titanicus or the possible identity of Vanilla. This was bad. In the past, Twilight would have been on the floor having a panic attack. And certainly, a part of her still felt inclined to do that at this moment. However, those three years of constant stress and procrastinated tasks had toughened her enough to handle such a complicated situation.
 
 With a deep sigh and making a mental effort, Twilight closed her eyes, cleared her mind, and envisioned the best courses of action she should take, using the little information they had gathered so far. After a few seconds, she opened her eyes, finally figuring out what needed to be done.
 
@@ -162,19 +162,19 @@ Without paying attention to her friends’ gazes, Twilight stood up and created 
 
 "And what about this bubble?" Pinkie Pie asked, placing her helmet on the walls of the magical barrier.
 
-"Vainilla already knows our position, and he’s probably been watching us with magic since the moment we arrived here. If he didn’t take action before, it was because he was cautious about what we might do. After observing us enough, he must be sure that we’re not a threat, and he’s decided to take the initiative. This barrier will prevent him from continuing to observe us," Twilight explained as her expression grew more serious.
+"Vanilla already knows our position, and he’s probably been watching us with magic since the moment we arrived here. If he didn’t take action before, it was because he was cautious about what we might do. After observing us enough, he must be sure that we’re not a threat, and he’s decided to take the initiative. This barrier will prevent him from continuing to observe us," Twilight explained as her expression grew more serious.
 
-"So that Vainilla thinks we’re not a threat? Well, let him keep thinking that. We’ll show him that we’re not just defenseless ponies," Applejack said. All the other ponies stood up, emboldened by her words, except Fluttershy, who remained somewhat uncertain in her seat.
+"So that Vanilla thinks we’re not a threat? Well, let him keep thinking that. We’ll show him that we’re not just defenseless ponies," Applejack said. All the other ponies stood up, emboldened by her words, except Fluttershy, who remained somewhat uncertain in her seat.
 
 "I agree, Applejack, but it won’t be here where we show him," Twilight said, keeping her calm as she looked at them all.
 
 "Really?" Rainbow Dash replied, looking slightly disappointed.
 
-"Yes, Rainbow Dash. If we fight here, we’ll fall into the scenario that Vainilla must have prepared. Right now, we need to go to a new shelter and prepare."
+"Yes, Rainbow Dash. If we fight here, we’ll fall into the scenario that Vanilla must have prepared. Right now, we need to go to a new shelter and prepare."
 
 "Isn’t that what we’ve already done?" Pinkie Pie asked, peeking her head behind Fluttershy.
 
-"Yes, but now I have a plan," Twilight responded with a smile. Seeing the confidence in her princess friend, they all began to calm down. "I know how to quickly defeat the Cocatriz Titanicus, and thanks to Rainbow Dash, we know Vainilla is coming this way. This is a good opportunity to surprise him separately. The first thing we need to do is move to a new refuge. I’ll use teleportation for that, and I’ll explain the rest when we get there."
+"Yes, but now I have a plan," Twilight responded with a smile. Seeing the confidence in her princess friend, they all began to calm down. "I know how to quickly defeat the Cocatriz Titanicus, and thanks to Rainbow Dash, we know Vanilla is coming this way. This is a good opportunity to surprise him separately. The first thing we need to do is move to a new refuge. I’ll use teleportation for that, and I’ll explain the rest when we get there."
 
 Upon hearing Twilight’s explanation, everyone agreed and began gathering around her, preparing for the teleportation. However, Rainbow Dash stayed where she was, watching them with narrowed eyes. Twilight could already imagine what her daring friend had in mind, as she too had seen that scenario.
 
@@ -182,13 +182,13 @@ Upon hearing Twilight’s explanation, everyone agreed and began gathering aroun
 
 "What’s going on, Rainbow Dash?" Twilight asked, hiding her pain.
 
-"I have a better idea. I’ll stay. I’ll fight Vainilla here," Rainbow Dash said with a serious look.
+"I have a better idea. I’ll stay. I’ll fight Vanilla here," Rainbow Dash said with a serious look.
 
 "Huh?" All the ponies, except Twilight, exclaimed in unison.
 
 "WHAT ARE YOU TALKING ABOUT, RAINBOW?!" Applejack exclaimed first, facing the pegasus.
 
-"What you heard, Applejack. I’ll stay and fight Vainilla while you all defeat that Cocatriz Titanicus. That way, we’ll have a better chance of winning," Rainbow Dash responded, completely calm.
+"What you heard, Applejack. I’ll stay and fight Vanilla while you all defeat that Cocatriz Titanicus. That way, we’ll have a better chance of winning," Rainbow Dash responded, completely calm.
 
 "NOW ISN’T THE TIME TO PLAY THE HERO. WE’RE SUPPOSED TO BE UNITED TO..."
 
@@ -196,13 +196,13 @@ Upon hearing Twilight’s explanation, everyone agreed and began gathering aroun
 
 "But, Twilight?!" Applejack appealed.
 
-"I know it’s a tough decision. But now that we know Vainilla is alone, this might be our best chance to defeat him. Given the countermeasures our opponent has taken so far, he probably expects us to act together. If Rainbow Dash attacks him separately while we face the Cocatriz Titanicus, it will increase our chances of success. However..." Twilight said, turning to her friends who were surrounding her and then to Rainbow Dash, "... Rainbow Dash, you don’t need to face him without reservations. It will be enough for you to distract him while we deal with the Cocatriz Titanicus. Do you understand?"
+"I know it’s a tough decision. But now that we know Vanilla is alone, this might be our best chance to defeat him. Given the countermeasures our opponent has taken so far, he probably expects us to act together. If Rainbow Dash attacks him separately while we face the Cocatriz Titanicus, it will increase our chances of success. However..." Twilight said, turning to her friends who were surrounding her and then to Rainbow Dash, "... Rainbow Dash, you don’t need to face him without reservations. It will be enough for you to distract him while we deal with the Cocatriz Titanicus. Do you understand?"
 
-"Of course! I’m not going to charge at him like a runaway cart. But if that Vainilla turns out to be some kind of show-off, don’t blame me if I finish before you all," Rainbow Dash replied confidently. Twilight knew how much her pegasus friend liked to boast, but seeing her firm posture and serious look, she knew that in that moment, Rainbow Dash wasn’t bragging.
+"Of course! I’m not going to charge at him like a runaway cart. But if that Vanilla turns out to be some kind of show-off, don’t blame me if I finish before you all," Rainbow Dash replied confidently. Twilight knew how much her pegasus friend liked to boast, but seeing her firm posture and serious look, she knew that in that moment, Rainbow Dash wasn’t bragging.
 
 "Alright, if that’s the case... now I’d like to know who’s in favor of Rainbow Dash’s idea," Twilight asked the rest of the ponies.
 
-They all fell silent. It was undeniable that their athletic pegasus friend was the best flyer in all of Equestria and that she had gained even more experience on her journey around the world. If there was a pony capable of facing Vainilla alone, it was Rainbow Dash.
+They all fell silent. It was undeniable that their athletic pegasus friend was the best flyer in all of Equestria and that she had gained even more experience on her journey around the world. If there was a pony capable of facing Vanilla alone, it was Rainbow Dash.
 
 Unable to deny the truth, and with clear concern, each of the ponies raised one of their hooves. Even Applejack did, although with great discomfort.
 
@@ -224,9 +224,9 @@ Twilight nodded, bringing the discussion to an end. On the other side, Rainbow D
 
 "Wow, awesome, Twilight! Since when are you able to do stuff like this?" Rainbow Dash asked as the other ponies murmured, surprised by the amazing magic of the crystal.
 
-"This year. I was invited to the seminar on innovative applications of transmutational magic in inanimate bodies at the School of Magic. You’d be surprised at the huge breakthroughs Estigia and Star Swirl are making in this field of magic. And also..." Twilight froze, her friends, especially Rainbow Dash, were watching her with smiles. Despite her urgent readiness to leave immediately to avoid being ambushed by Vainilla, she had just started talking about academic topics that weren’t appropriate for the situation they were in.
+"This year. I was invited to the seminar on innovative applications of transmutational magic in inanimate bodies at the School of Magic. You’d be surprised at the huge breakthroughs Estigia and Star Swirl are making in this field of magic. And also..." Twilight froze, her friends, especially Rainbow Dash, were watching her with smiles. Despite her urgent readiness to leave immediately to avoid being ambushed by Vanilla, she had just started talking about academic topics that weren’t appropriate for the situation they were in.
 
-"Ahem," Twilight cleared her throat. "Please, be very careful, Rainbow. And pay close attention to the pink gem that Vainilla has on his neck," the alicorn said with a look that reflected her worry, as well as that of her friends. Twilight’s horn began to gather magic to use the teleportation spell that would take them away from there.
+"Ahem," Twilight cleared her throat. "Please, be very careful, Rainbow. And pay close attention to the pink gem that Vanilla has on his neck," the alicorn said with a look that reflected her worry, as well as that of her friends. Twilight’s horn began to gather magic to use the teleportation spell that would take them away from there.
 
 "I’ll keep that in mind. And don’t worry so much. I know how to take care of myself," Rainbow Dash replied with her typical grin.
 

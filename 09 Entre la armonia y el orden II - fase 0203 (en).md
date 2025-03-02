@@ -108,7 +108,7 @@ Pinkie Pie hopped down from the rock and joined the other ponies. But no one sai
 
 "But…? Why…?" Pinkie Pie didn’t finish her question because her tail suddenly started twitching, drawing everyone’s attention.
 
-Then, a dark figure landed atop the large rock behind them. A slight cloud of dust rose, and from within it emerged the infamous figure of a pony with a pink mane and navy-blue armor: Vainilla. His gaze was as dark as the deepest, most unfathomable abysses. But he wasn’t alone; beside him stood a presence that seemed to be the very embodiment of his shadow.
+Then, a dark figure landed atop the large rock behind them. A slight cloud of dust rose, and from within it emerged the infamous figure of a pony with a pink mane and navy-blue armor: Vanilla. His gaze was as dark as the deepest, most unfathomable abysses. But he wasn’t alone; beside him stood a presence that seemed to be the very embodiment of his shadow.
 
 Both figures, wrapped in an aura of menace, observed the ponies with intense stares, causing them to instinctively step back.
 
