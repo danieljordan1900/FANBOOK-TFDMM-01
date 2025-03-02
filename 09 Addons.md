@@ -21,6 +21,7 @@
     ->  El personaje Badwhiz Starheart es llamado a veces como Vainilla, tiene un genero masculino
 ]
 
+
 tan hermosa como una estrella en una noche gris, 
 no importa que tan sucio este el cielo sobre ti, 
 tu siempre seras una luz clara para mi

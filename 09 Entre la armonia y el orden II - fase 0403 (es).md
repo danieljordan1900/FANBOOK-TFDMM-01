@@ -132,7 +132,7 @@ Finalmente, Balor cometió su primer y único error en la batalla. Parpadeó.
 
 [---]
 
-Rainbow Dash nunca dudaba, ni siquiera en los momentos más desesperados. Siempre confiaba en que algo o alguien cambiaria la situacion. Aunque esa fe a veces la llevaba a subestimar su propia seguridad, y en otras ocasiones había tambaleado por trivialidades, cuando se trataba de sus amigas y del destino de Equestria, su lealtad permanecía inquebrantable hasta el final.
+Rainbow Dash nunca dudaba, ni siquiera en los momentos más desesperados. Siempre confiaba en su propia fuerza o que algo o alguien cambiaria la situacion a su favor. Aunque esa fe a veces la llevaba a subestimar su propia seguridad, y en otras ocasiones había tambaleado por trivialidades, cuando se trataba de sus amigas y del destino de Equestria, su lealtad permanecía inquebrantable hasta el final.
 
 Un parpadeo. Eso era todo lo que necesitaba.
 
@@ -368,7 +368,9 @@ Twilight abrió los ojos, sintiendo los truenos resonar en la cercanía. El rast
 
 En la distancia, divisó a Rainbow Dash enfrentándose a Badwhiz, como si estuvieran inmersos en un baile caótico. Sin embargo, un rayo perdido cambió el ritmo de la danza y se dirigió hacia Twilight. Reaccionando con dificultad, se agachó justo a tiempo. El rayo masivo cruzó el aire, errando su blanco y desatando una explosión que hizo volar una colina completa detrás de ella.
 
-La impactante escena dejó a Twilight estupefacta. Sus sentidos, ahora alerta, hicieron funcionar su mente a toda marcha. "¿La gema Starheart poseía ese poder? ¡No debería ser así!"
+La impactante escena dejó a Twilight estupefacta. Sus sentidos, ahora alerta, hicieron funcionar su mente a toda marcha. 
+
+"¿La gema Starheart poseía ese poder? ¡No debería ser así!" grito consternada.
 
 En sus estudios sobre artefactos mágicos antiguos, le enseñaron que la gema Starheart tenía la capacidad de contrarrestar hechizos y absorber magia del ambiente. Sin embargo, la cantidad de magia que emanaba ahora era abrumadora, superando con creces las capacidades normales del amuleto. Una revelación aterradora se apoderó de Twilight.
 
