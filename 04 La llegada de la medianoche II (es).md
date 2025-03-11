@@ -14,7 +14,7 @@ Tales eran los rumores que el Tártaro inspiraba. Aunque algunos entendían que 
 
 No obstante, más allá del misticismo y el temor que rodeaban a esta fortaleza, un peligro muy real habitaba en su interior.
 
-Los prisioneros, cuyos nombres aparecían en cuentos de brujas y leyendas, existían de verdad. Y bien se podía agradecer al cielo que sufrieran un tortuoso encierro en aquel sitio infernal en lugar de vagar libres por el exterior, esparciendo su maldad.
+Los prisioneros, cuyos nombres aparecían en cuentos de brujas y leyendas, existían de verdad. Y bien se podía agradecer al cielo que estuvieran sufriendo un tortuoso encierro en aquel sitio infernal en lugar de deambular libres por el exterior, sembrando el caos con su maldad.
 
 Precisamente en ese instante, en un rincón oculto de la prisión, se llevaba a cabo un caso particular de "sufrimiento".
 
