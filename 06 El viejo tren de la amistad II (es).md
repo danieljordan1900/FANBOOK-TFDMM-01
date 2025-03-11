@@ -32,7 +32,7 @@ Las cuatro ponis observaron el montón de documentos desordenados y maltratados 
 
 Rainbow Dash ya había imaginado ese momento una y otra vez. Sus amigas la inundarían de preguntas y alabanzas por su brillante idea, y ella respondería con entusiasmo a cada una. Si lograba evitar mencionar 'el otro asunto peligroso', todo lo que había pasado para conseguir esos documentos habría valido la pena.
 
-Solo necesito su aprobación... nada más.
+"Solo necesito su aprobación… nada más." se repitia a si misma.
 
 Guardando cuidadosamente sus emociones, Dash esperó con una sonrisa. Pero...
 
