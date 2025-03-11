@@ -1,22 +1,24 @@
 El Tártaro, una hora antes del día del "Festival de las Dos Hermanas".
 
-Ubicada en una de las regiones más hostiles de Equestria, esta infame prisión alberga a los monstruos y criminales más peligrosos de la historia del reino. Considerada la prisión más importante y segura, el Tártaro consiste en una vasta red de bóvedas subterráneas divididas en múltiples niveles y subcámaras, todas situadas bajo una oscura cadena montañosa de origen volcánico. Como gran prisión, solo cuenta con un acceso al exterior: una enorme y gruesa puerta doble de metal, sellada con magia, que actúa como una barrera infranqueable para mantener cautivos a sus prisioneros.
+Ubicada en una de las regiones más hostiles de Equestria, esta infame prisión alberga a los monstruos y criminales más peligrosos del reino. Considerada la prisión más importante y segura, el Tártaro es una vasta red de bóvedas subterráneas divididas en múltiples niveles y subcámaras, todas situadas bajo una oscura cadena montañosa de origen volcánico. Como gran fortaleza, solo cuenta con un acceso al exterior: una enorme y gruesa puerta doble de metal, sellada con magia, que actúa como una barrera infranqueable para mantener cautivos a sus prisioneros.
 
-Más allá de esta puerta, un páramo desolado, de clima impredecible, se extiende por kilómetros, otorgando al paisaje un aspecto sombrío, pocas veces visto en esas tierras.
+Más allá de esta puerta, un páramo desolado de clima impredecible se extiende por kilómetros, otorgando al paisaje un aspecto sombrío pocas veces visto en esas tierras.
 
-Con estas características, es fácil entender por qué los ponis evitan acercarse a este lugar, que se convierte en motivo de recelo siempre que se menciona en una conversación.
+Con tales características, es fácil entender por qué los ponis evitan acercarse a este lugar, convirtiéndolo en motivo de recelo cada vez que se menciona en una conversación.
 
-"...¡escapar de allí es imposible!", "...¡Es un foso de oscuridad y maldad!", "...un amigo se perdio en ese lugar ¡Fue horrible!"
+"…¡Escapar de allí es imposible!"
+"…¡Es un foso de oscuridad y maldad!"
+"…Un amigo se perdió en ese lugar… ¡Fue horrible!"
 
-Tales eran los rumores y temores que el Tártaro inspiraba; su nombre se había convertido en sinónimo de "sufrimiento inimaginable" para la mayoría de los ponis. Aunque algunos comprendían que solo se trataba de una prisión fuertemente vigilada y no veían razón para temerla, eran pocos los que pensaban así; la mayoría estaba muy convencida de lo contrario.
+Tales eran los rumores que el Tártaro inspiraba. Aunque algunos entendían que no era más que una prisión fuertemente vigilada y no veían razón para temerla, eran pocos los que pensaban así; la mayoría estaba convencida de lo contrario.
 
-No obstante, más allá del misticismo y el temor que rodeaban a esta prisión, había un peligro latente muy real en ese lugar.
+No obstante, más allá del misticismo y el temor que rodeaban a esta fortaleza, un peligro muy real habitaba en su interior.
 
-Sus prisioneros, cuyos nombres aparecían en cuentos de brujas y leyendas, eran reales. Y se podía agradecer que estuvieran sufriendo un tortuoso encierro en aquel sitio, en lugar de estar libres en el exterior, haciendo sufrir a otros con sus "maldades".
+Los prisioneros, cuyos nombres aparecían en cuentos de brujas y leyendas, existían de verdad. Y bien se podía agradecer al cielo que sufrieran un tortuoso encierro en aquel sitio infernal en lugar de vagar libres por el exterior, esparciendo su maldad.
 
-Precisamente en ese momento del día, en un rincón oculto de la prisión, un caso especial de "sufrimiento" estaba ocurriendo.
+Precisamente en ese instante, en un rincón oculto de la prisión, se llevaba a cabo un caso particular de "sufrimiento".
 
-Balor de Cunabula, miembro de los Caballeros del Orden y portadora del elemento de la Magia, supuesta prisionera del Tártaro, soportaba a duras penas una incómoda e inusual “tortura”.
+Balor de Cunabula, miembro de los Caballeros del Orden y portadora del Elemento de la Magia, supuesta prisionera del Tártaro, soportaba a duras penas una incómoda e inusual “tortura”.
 
 [---]
 
