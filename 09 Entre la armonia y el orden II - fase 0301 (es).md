@@ -52,7 +52,7 @@ Sobre la única roca que sobresalía en medio de aquel lugar inundado, Mannah es
 
 "Quizás me excedí un poco", pensó, ya que no percibía señales de vida en el agua. Se suponía que debía capturar a las ponis, pero, dado el estado del terreno, era muy probable que hubieran sido eliminadas...
 
-De reojo, observó a Badwhiz, quien parecía impresionado, aunque resultaba difícil confirmarlo dado que gran parte de su cuerpo estaba compuesto por sombras imprecisas.
+De reojo, observó a Badwhiz, quien parecía impresionado, aunque resultaba difícil confirmarlo dado que gran parte de su cuerpo estaba compuesto por sombras.
 
 "Uhmm", aclaró su garganta el sub-líder de los Caballeros del Orden. "Esto es solo una pequeña muestra de mi inmenso poder. ¡QUE LOS ENEMIGOS DE CUNÁBULA SE ARREPIENTAN DE SU NECEDAD!" exclamó con orgullo, levantando sus extremidades superiores hacia el cielo. Sin embargo, se tambaleó un poco debido a su poca familiaridad con su nuevo cuerpo de poni.
 
