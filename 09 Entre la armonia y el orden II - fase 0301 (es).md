@@ -100,7 +100,7 @@ Applejack se rascó la cabeza; algo en esa historia no encajaba del todo, o más
 
 "Fue al baño... dijo que necesitaba prepararse adecuadamente," respondió Pinkie Pie mientras comía de una bolsa de galletas Yumi.
 
-Justo en ese momento, la puerta del baño se abrió y Magi salió. Sin embargo, no era la misma Magi sonriente que las había salvado usando una de sus cápsulas de emergencia y que luego las había atendido para que se recuperaran. La Magi que ahora se mostraba a ellas tenía una mirada fría y oscura; estaba equipada con toda clase de artefactos y herramientas mágicas. Más que una amiga lista para ayudar, parecía preparada para entrar en una batalla.
+Justo en ese momento, la puerta del baño se abrió y Magi salió. Sin embargo, no era la misma Magi sonriente que las había salvado usando una de sus cápsulas de emergencia y que luego las había atendido para que se recuperaran. La Magi que ahora se mostraba a ellas tenía una mirada fría y oscura; estaba equipada con toda clase de artefactos y herramientas mágicas. Más que una amiga lista para ayudar, parecía un mercenario preparado para entrar en una batalla.
 
 Estos eran sus verdaderos colores.
 
