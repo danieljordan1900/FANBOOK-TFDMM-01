@@ -110,9 +110,9 @@ El ambiente se llenó de tensión entre el grupo de amigas y la pegaso pelirroja
 
 Magi suspiró.
 
-"Ya me he presentado antes... Miren, no tenemos tiempo para esto. Debemos trabajar juntas," dijo Magi sin mostrar emociones.
+"Ya me he presentado antes... Miren, no tenemos tiempo para esto. Debemos trabajar juntas," dijo sin mostrar emociones.
 
-"¿De verdad? ¿Cómo sabemos que no estás del lado de Vainilla?" cuestionó Applejack.
+"¿De verdad? ¿Cómo sabemos que no estás del lado de Vainilla?" cuestionó Applejack con desconfianza.
 
 "¿Vainilla? ¿Te refieres a uno de los tipos que les atacaron? ¿O al chico que tiene como sirviente?"
 
@@ -120,7 +120,7 @@ Magi suspiró.
 
 "Puedo ayudarles, pero nos estamos quedando sin tiempo. Solo... necesito que confíen en mí, por favor," continuó Magi, casi implorando, aunque se notaba que se esforzaba en decirlo.
 
-Applejack miró a sus amigas, quienes se veían tan preocupadas y exhaustas como ella. ¿Debería confiar en esa poni que parecía tan amenazadora y emanaba un aura de tan poca confianza? ¿Qué haría Twilight?
+Applejack miró a sus amigas, quienes se veían tan preocupadas y exhaustas como ella. ¿Debería confiar en esa poni que parecía tan amenazadora y emanaba un aura de tan poca amistosa? ¿Qué haría Twilight?
 
 No podía pensarlo demasiado. Finalmente, después de una larga pausa, habló.
 
@@ -202,7 +202,7 @@ Todas las ponis recordaron con pesar el repentino ataque de Rainbow Dash, la pé
 
 Entonces, Applejack notó lo evidente.
 
-"Esperen... ¿aún estamos en el tren? ¡Vendrán por nosotras en cualquier momento! ¡Tenemos que salir de aquí ahora!" exclamó alarmada Applejack.
+"Esperen... ¿aún estamos en el tren? ¡Vendrán por nosotras en cualquier momento! ¡Tenemos que salir de aquí ahora!" exclamó alarmada.
 
 Pero Magi simplemente se rió al ver a las ponis entrar en pánico.
 
