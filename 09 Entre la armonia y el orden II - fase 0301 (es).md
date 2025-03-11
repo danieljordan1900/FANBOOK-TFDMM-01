@@ -1,4 +1,4 @@
-Magazine Doublereport, o Magi, como prefería que la llamaran, podía jactarse de tener muchas cualidades que la colocaban por encima de otras ponis: una buena fortuna, un agudo sentido para los negocios y una novia extremadamente amorosa. Magi realmente creía que era una pegaso sumamente afortunada cuando dejó Manehattan aquella mañana, convencida de que lo sería aún más al caer la noche.
+Magi podía jactarse de tener muchas cualidades que la colocaban por encima de otras ponis. Una buena fortuna, un agudo sentido para los negocios y una novia extremadamente amorosa... Magi realmente creía que era una pegaso sumamente afortunada cuando dejó Manehattan aquella mañana. Estaba convencida de que su día sería aún más brillante al caer la noche.
 
 Sin embargo, esa confianza comenzó a desmoronarse a medida que avanzaba la tarde, enfrentando una serie de infortunios que no había anticipado en absoluto.
 
